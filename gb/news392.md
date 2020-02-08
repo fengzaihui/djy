@@ -30,14 +30,7 @@
 在此次重灾区的武汉，让许多武汉人寒心的是.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月07日 3:55 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11848573.md#1" target="_blank">越清：控制疫情真实信息 只为维护中共自身</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11848573.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2014/07/1407042049392039-150x120.jpg" align ="left"></a>随着武汉疫情的蔓延，越来越多的真相也浮现出来。疫情爆发初期有8人因称“出现SARS”，被武汉市公安局以“散播不实消息”为由被训诫。最新消息指这8人都是医生，并且都在抗疫第一线，这一事实，令国人震惊。“疫情不可控，但人民可控”。控制不住病毒，就控制真相，然而正是对真相的控制，导致控制病毒错过了最佳的时机，到现在造成泛滥.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月06日 9:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11848490.md#1" target="_blank">金言：武汉新型冠状病毒探源</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11848490.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/15f07ecf8cabd0af_ttl7dayPIw_tn0204new-150x120.jpg" align ="left"></a>自从去年底武汉新型冠状病毒感染肺炎爆发以来，这种令人防不胜防的病毒，正以前所未有的“中国速度”，攻城越池，四处扩散，蔓延传播。短短一个多月的时间就让中国大陆31个省市自治区全部沦陷，并漂洋过海，至今已扩散至全球28国家和地区，甚至还有人怀疑已经穿越红墙，攻入密不透风的中南海，远远超过当年SARS！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月06日 9:22 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853483.md#1" target="_blank">慧真：欲上方舟 先弃红船</a><br></h3>武汉疫情 凶猛蔓延
-中共维稳 天天谎言
-说是天灾 实为人祸
-赤魔邪灵 狠毒凶残
-毒遍全国 危害世界 
-真相掩盖 死亡万千
-毫无作为 一骗再骗
-缺医少药 民众哀叹......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月08日 3:59 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11848626.md#1" target="_blank">程晓容：疫情延烧 武汉副书记承认了什么</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11848626.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1198465044-150x120.jpg" align ="left"></a>胡立山承认的只是皮毛，真正惊悚的事实仍被中共严密掩盖。官方公布的新冠肺炎病例数据与武汉病床告急、患者喊救命、火葬场连轴转等多方情况不符。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月06日 6:17 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/7/n11852575.md#1" target="_blank">吐为快：中共封网有感</a><br></h3>逆天虐民气数残，禁网岂能延苟安？
 下思歪理遭众唾，犹提初心显愚顽；
 藏污纳垢成粪坑，封城闭区余孤孱；
