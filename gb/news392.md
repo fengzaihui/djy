@@ -27,9 +27,12 @@
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11850021.md#1" target="_blank">王友群：中共即将亡党 国人应做准备</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11850021.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/1211290826301497-600x400-1-150x120.jpg" align ="left"></a>“武汉肺炎”疫情正蔓延全中国，扩散到海外28个国家和地区。
 
 中国大陆已有36个城市封城。中国大陆以外，已有70多个国家和地区对中国人实行“入境管制”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月07日 6:18 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11849730.md#1" target="_blank">周晓辉：防民甚于防川 红朝崩塌倒计时</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/6/n11849730.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/91d57dc13485504f91aacda517650ea5-600x400-1-150x120.jpg" align ="left"></a>当下，最为牵动国人和世界的大事件当属新型冠状病毒引发的武汉肺炎疫情。究竟有多少人感染？有多少人得到治疗？有多少人治愈？有多少人死亡？这些数字虽然中共官方每天都在披露，但如果对照民间藉由网络披露的情况和海外爆料提供的数字，中共在瞒报是确凿无疑的，其根本目的还是维持其政权。
-
-在此次重灾区的武汉，让许多武汉人寒心的是.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月07日 3:55 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853840.md#1" target="_blank">苦胆：眼科医生的职责是让人看清</a><br></h3>你拉响生命的警报而当权者置之不理，
+过后的回声竟是尖厉刺耳的警笛。
+有人缘于你的提醒侥幸逃过一劫，
+而你，却倒在了这个寒冷的春天里。
+作为率先曝光武汉疫情的八勇士之一，
+医院即战场你抵抗到最后一息。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月08日 6:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853832.md#1" target="_blank">欧卓尔：中共者，我中华民族举族之大敌也！</a><br></h3>中共假马列之学说，设共产主义之骗局，动辄即冠以人民之名，败坏我中华礼仪伦理，精心构筑其帝王专制之牢笼。所区别于古代者，唯由一位帝王而变为八位、九位乃至千百之帝王。呜呼哀哉，呜呼哀哉，近代革命之成果百无余一，辛亥所推翻之独裁借尸还魂，我中华十四亿民众何其苦哉！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月08日 6:17 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853483.md#1" target="_blank">慧真：欲上方舟 先弃红船</a><br></h3>武汉疫情 凶猛蔓延
 中共维稳 天天谎言
