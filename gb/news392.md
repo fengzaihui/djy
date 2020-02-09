@@ -16,7 +16,15 @@
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853413.md#1" target="_blank">常忍：武汉肺炎的神奇解方</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853413.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2011/10/1110042206162431-150x120.jpg" align ="left"></a>“武汉肺炎”疫情蔓延中国大陆之际，明慧网近日登载了一位患者的经历，发人省思。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月08日 4:29 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853527.md#1" target="_blank">程晓容：国监委调查李文亮事件 作秀操控舆情</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853527.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/120-02-072.26-150x120.jpg" align ="left"></a>国监委要对李文亮的有关问题作全面调查，“有关”问题指哪些问题？是否包括警方诬陷，武汉中心医院和市政府向员工隐瞒疫情、致其受病毒感染，还有医院救治不力甚至涉嫌杀？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月08日 3:28 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853341.md#1" target="_blank">谭笑飞：疫情对中共体制的冲击</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853341.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/240485_medium-600x400-150x120.jpg" align ="left"></a>中共应对冠状病毒疫情的措施，包括瞒报疫情，舆论维稳，简单粗暴方式封城，拒绝外援等等，完全视民众生命如草芥。中共的邪恶本质再一次淋漓尽致地展现出来。在血淋淋的事实面前，更多的民众清醒过来，这是加速中共解体的决定性力量。此外，中共体制本身也将因为疫情的冲击而瘫痪。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月08日 1:13 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853263.md#1" target="_blank">长风拂泪：为众人抱薪者，不可使其冻毙于风雪</a><br></h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/8/n11853263.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1199162702-600x400-1-150x120.jpg" align ="left"></a>那个李医生，走了。今年这个年关，对武汉、对湖北，对中国大陆乃至世界来说，过的是那样的不平静，不平凡。在那场瘟疫来临的前夜，人，都做了什么。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月08日 12:43 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/9/n11856256.md#1" target="_blank">武振荣：生死存亡之际的人民呐喊</a><br></h3>一党独裁，
+遍地是灾。
+灾中自救，
+你当起来！
+
+一党专政，
+人民生病。
+病后长思，
+我当革命。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月10日 2:48 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/kmtpx253/djy/blob/master/gb/20/2/9/n11856341.md#1" target="_blank">木天：它们一直掩盖着真相</a><br></h3>我苦难的中国同胞
 正为疫情所伤
 是谁把刀子
