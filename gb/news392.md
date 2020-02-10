@@ -23,12 +23,6 @@
 <tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/9/n11856417.md#1" target="_blank">周晓辉：川普要求查病毒来源 北京怕啥来啥</a><br></h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/9/n11856417.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/15f1cf3771b2363b_ttl7dayFOp_Screen_Shot_2020-02-08_at_8.20.51_PM-600x400-1-150x120.png" align ="left"></a>或许，这个机会就在美国确认新冠状病毒来自于中共的武汉病毒研究所之后。北京无论怎样回应，都将会在国内外掀起新的惊涛骇浪。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月10日 4:02 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/9/n11856414.md#1" target="_blank">何清涟：武汉肺炎背后波谲云诡的政治豪赌</a><br></h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/9/n11856414.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/GettyImages-1195464209-150x120.jpg" align ="left"></a>在武汉封城之后，武汉肺炎的政治冲击波接连不断，但主要不是针对中共政权，而是针对习近平。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月10日 3:52 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/9/n11856381.md#1" target="_blank">颜丹：从武汉肺炎看科学战胜病毒的能力</a><br></h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/9/n11856381.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/1702171114091456-600x400-150x120.jpg" align ="left"></a>时至今日，饱受“无神论”、“进化论”毒害的中国人很难不随波逐流，不知不觉间就在战天斗地、亵渎神灵。这样的中国人，随时都可能遭逢灭顶之灾。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月10日 3:33 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/10/n11859419.md#1" target="_blank">陈达：大疫昭告：社会主义集中力量坏大事</a><br></h3>集中力量办大事，总吹独裁是好事。
-回头看都做嘛事，无一好事尽坏事。
-正事一概不懂事，一路杀骗毁人事。
-好话说尽行骗事，坏事做绝流氓事。
-无法无天蛮干事，虚头滑脑糊弄事。
-昏头拍头干蠢事，大事全是大坏事。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月11日 4:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/10/n11859230.md#1" target="_blank">李清：武汉肺炎的警示</a><br></h3>“武汉肺炎”爆发，影响极大，在很短时间内造成多城封城。很多人关心何时能平息，何时能复工。这样想都能理解。但对“武汉肺炎”的深层考虑不能疏忽。现将本人的思考成文如下。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月11日 4:12 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/10/n11859195.md#1" target="_blank">伍新：关于口罩一点思考</a><br></h3>人人紧捂口罩，不知如何是好。
 
@@ -69,5 +63,14 @@
 大法航船要启航。
 决断邪灵三退好，
 春风送暖上天堂！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月10日 3:54 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/20/2/9/n11856256.md#1" target="_blank">武振荣：生死存亡之际的人民呐喊</a><br></h3>一党独裁，
+遍地是灾。
+灾中自救，
+你当起来！
+
+一党专政，
+人民生病。
+病后长思，
+我当革命。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月10日 2:48 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/liahn236/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/liahn236/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/liahn236/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/liahn236/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/liahn236/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
