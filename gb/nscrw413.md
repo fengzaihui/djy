@@ -31,7 +31,7 @@
 武汉肺炎疫情在元宵节过后似乎并未见缓，10日北京、上海都宣布采取“封闭式管理”严控疫情扩散。有消息称武汉开始局部断网，以防武汉真实疫情被民众发送上网。
 
 2.广州豪宅住户被确诊仍居家 同楼2户被感染
-武汉肺炎疫情在广东省广.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月12日 9:20 PM			</td></tr>
+武汉肺炎疫情在广东省广.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月12日 3:06 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rpmruk214/djy/blob/master/gb/20/2/12/n11862531.md#1" target="_blank">广州豪宅住户被确诊仍居家 同楼2户被感染</a><br></h3><a href="https://github.com/rpmruk214/djy/blob/master/gb/20/2/12/n11862531.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1199862056-150x120.jpg" align ="left"></a>武汉肺炎疫情在广东省广州市出现社区感染。在广州市一栋高档居民楼，一确诊住户1月底从湖北返回广州后已被确诊感染武汉肺炎，但其却被允许回家居住。不久该栋楼不同楼层的2名住客也被感染武汉肺炎。
 
 事发于广州市海珠区保利天悦屋苑。据陆媒报道，从湖北回家的确诊住户居于18栋的15楼02室，一直拒绝配合体温监测。至1月31日及.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月12日 1:42 PM			</td></tr>
