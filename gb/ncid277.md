@@ -2,7 +2,7 @@
 <tr><td><h3><a href="https://github.com/vntxf2407/djy/blob/master/gb/20/2/13/n11865307.md#1" target="_blank">【翻墙必看】近3千军队医护被派往武汉</a><br></h3><a href="https://github.com/vntxf2407/djy/blob/master/gb/20/2/13/n11865307.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2007/08/70810143934459-320x200.jpg" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
 
 1.疫情恶化 2600军队医护被调派武汉支援
-中共当局近日将增派2600名军队医护人员支援武汉，显示新冠肺炎疫情在.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 9:00 PM					</td></tr>
+中共当局近日将增派2600名军队医护人员支援武汉，显示新冠肺炎疫情在.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 9:35 PM					</td></tr>
 <tr><td><h3><a href="https://github.com/vntxf2407/djy/blob/master/gb/20/2/13/n11866362.md#1" target="_blank">形势危急 北京疾控中心发“战时状态令”</a><br></h3><a href="https://github.com/vntxf2407/djy/blob/master/gb/20/2/13/n11866362.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1200225034-150x120.jpg" align ="left"></a>大陆武汉肺炎疫情形势严峻，湖北省十堰市张湾区实施“战时管制”后，北京市疾控中心称“大仗即将来临”，并发布战时状态令。任何中层干部和支部书记给“防控工作造成重大不良影响和严重后果”，一律先行停职或免职。
 
 2月13日，《中国网》报导，北京市疾控中心发布的战时状态令称，目前是“关键时刻”、“危急关头”、“非常时期”，需要旗下每个成员无条件服从相关指令等。
