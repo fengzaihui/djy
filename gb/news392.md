@@ -35,11 +35,7 @@
 
 我看到这消息更是一头雾水，但我马上查了美国流感的信息，发现在武汉肺炎期间这个消息铺天.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 7:52 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/12/n11864399.md#1" target="_blank">夏小强：政令难出中南海 上海武警为何异动</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/12/n11864399.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1199135565-150x120.jpg" align ="left"></a>武汉肺炎的爆发，中国的经济更加雪上加霜，习近平当局连日来不断向地方政府企业发出复工的指令。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 7:20 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/15/n11870453.md#1" target="_blank">袁斌：封口丧心病狂 警察连垂死患者都不放过</a><br></h3>有网友说，如果讲李文亮揭露了被官方刻意隐瞒的疫情，那么伯曼儿则揭露了武汉封城之后的人道灾难！
-
-李文亮大家都知道，伯曼儿是谁？
-
-她是一位湖北女大学生，微博账户名叫“伯曼儿”。因发烧住院，1月24日伯曼儿被查出肺部有问题，期间她冒着被抓的风险，在抖音和微博直播自己的住院经历，曝光医院方面只是每天给发两颗奥司他韦.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 12:18 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/12/n11864353.md#1" target="_blank">洪微：川习通话扯出武汉疫情背后的生化战担忧</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/12/n11864353.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/2019-nCoV-CDC-23312_without_background-e1581372945289-2-150x120.png" align ="left"></a>新型冠状病毒肆虐，中国大陆疫情失控，美国同样紧张。日前，川普和习近平，都下令尽快查清病毒来源。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 6:25 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/14/n11869698.md#1" target="_blank">钟延：大瘟疫前的深度思考</a><br></h3>从去年年底开始的新型冠状病毒肺炎，从武汉发生，如今肆虐全球，造成无数国人不幸染病，许多家庭失去亲人，更多的人则是受困家中、备受煎熬。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 3:54 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/14/n11869684.md#1" target="_blank">项云：武汉肺炎疫情让人民更不信任中共</a><br></h3>从初露疫情苗头就闻到中共官方没人味气息：别影响武汉两会、别影响全国过年气氛的隐瞒疫情。也就是别影响树立“太平盛世”形象机会。接下来步步都是中共无人性的表演。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 3:20 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/14/n11868686.md#1" target="_blank">劳东燕：为铭记这一刻，我们能做些什么？</a><br></h3>一
