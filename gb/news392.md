@@ -33,7 +33,10 @@
 一、诉湖北省公安厅副厅长赵志飞案
 2001年12月21日，美国联邦纽约南区法院法官丹尼斯.科特，对原湖北省公安厅副厅长赵志飞作出缺席判决，判定赵正飞对湖北省法轮功修炼者.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月14日 2:00 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865533.md#1" target="_blank">方毅：岂止李文亮？千百万被封杀的吹哨人——</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865533.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1199162702-150x120.jpg" align ="left"></a>李文亮，走了。人们无不惋惜，因为他告诉了人们真情；吹哨人，带着被污的灵魂走了，人们无不愤懑，因为他说的那些可以救人的真相被称作“谣言”而隐瞒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月14日 1:10 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11866798.md#1" target="_blank">王赫：武汉“断网”阴影笼罩</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11866798.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/page-1-150x120.jpg" align ="left"></a>在疫情危急、混乱的局势背后，有只巨大的黑手在操控着，断网的阴影一直笼罩着武汉。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月14日 12:31 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/15/n11870998.md#1" target="_blank">林泉：民主联邦灭独裁</a><br></h3>政令不出中南海，妖娥泉涌煞瀛台。
+独裁维稳酿瘟疫，贪腐谎言生雾霾。
+一统荒风沙漠广，各自润吐茂林徊。
+官民常慕小国易，何必病身连体挨。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 7:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/15/n11870963.md#1" target="_blank">归航：警示录</a><br></h3>瘟疫无情天有情，是非善恶录分明。
 福报缘由多行善，行恶犯奸天必惩。
 罗马尼禄逆天道，教徒饲虎点天灯。
