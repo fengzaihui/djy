@@ -770,8 +770,6 @@ Basking Ridge镇Environmental Education Center at.........<br><img align="bottom
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865709.md#1" target="_blank">首批从武汉撤离侨民结束隔离    硅谷母女开心回家</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865709.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/Ttu2-ebeka-150x120.jpg" align ="left"></a>在经过了14天的隔离期后，美国疾病控制与预防中心（CDC）与河滨县卫生局代表官员，于2月11日（周二）召开记者会宣布，美国首批撤侨的195位侨民都通过了健康筛查，无人感染新型冠状病毒（武汉肺炎），已开始陆续返回各自的家乡。
 
 CDC全球健康保护部（DGHP）主任南希?奈特（Nancy Knight）说：“这些人结束.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 3:32 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865628.md#1" target="_blank">四名武汉肺炎患者均痊愈 新州暂无感染者</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865628.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1198710085-150x120.jpg" align ="left"></a>新州最后一名武汉肺炎感染者已经出院，意味着新州4名感染者现都已康复，州内目前已无人被确诊感染此病。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 3:28 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865623.md#1" target="_blank">台第10例武汉肺炎确诊个案 今解除隔离</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865623.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/f2fd004c414dee72834d9bc0c52f2376-150x120.jpg" align ="left"></a>台湾疫情指挥中心今天宣布，台湾第10例罹患武汉肺炎病患解除隔离，近日可望出院。康复个案表示，感谢第一线医护人员细心、无微不至的照顾……生在台湾真的很幸福。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 3:22 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/15/n11871257.md#1" target="_blank">神韵引领全世界舞台 艺术大学校长赞了不起</a><br></h3>2020年2月14日午间，美国神韵纽约艺术团莅临韩国昌原3.15艺术中心展开当地第四场演出，现场各界精英名流慕名齐聚，只为一睹神韵风采。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 10:16 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/15/n11871263.md#1" target="_blank">神韵舞蹈蕴含丰富意境 舞蹈团长赞风采别具</a><br></h3>“（神韵舞蹈）蕴含了来自中华大地的文化与历史，气势恢弘、雄壮无比。”2月15日下午，韩国庆南舞蹈团代表薛秀锡观赏了美国神韵纽约艺术团在韩国昌原3.15艺术中心的演出后，惊喜地表示，神韵让她眼界大开，也带给她深刻的启发，演出对韩国舞蹈发展深有助益。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 9:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/15/n11871286.md#1" target="_blank">欧洲第一例 感染武汉肺炎中国游客法国去世</a><br></h3>2月15日（周六），法国卫生部长Agnès Buzyn公布，来自中国的80岁游客因感染武汉肺炎在巴黎医院去世，“这是亚洲以外，也是在欧洲第一个感染者死亡。”部长说。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 8:36 PM			</td></tr>
@@ -1051,15 +1049,4 @@ NBC新闻2月4日报导，李晓江（Li?Xiaojiang，音）面临的联邦指控
 肯定明天，会有更多的方斌从更多的地方怒吼咆哮。
 
 灭绝的萌芽太多了，灭顶的天谴临头了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 3:41 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/13/n11865673.md#1" target="_blank">陆明：蝶恋花?三退把命保</a><br></h3>武汉肺炎疫延烧。
-
-全国各地，
-
-多国波及到。
-
-死亡人数知多少，
-
-中共娴熟隐瞒报。
-
-愿君清醒细思考。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月13日 3:25 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/xgqfwa2071/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xgqfwa2071/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
