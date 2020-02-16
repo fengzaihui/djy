@@ -26,11 +26,9 @@
 
 她是一位湖北女大学生，微博账户名叫“伯曼儿”。因发烧住院，1月24日伯曼儿被查出肺部有问题，期间她冒着被抓的风险，在抖音和微博直播自己的住院经历，曝光医院方面只是每天给发两颗奥司他韦.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 12:18 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/14/n11869837.md#1" target="_blank">周晓辉：上海要变成第二个武汉？</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/14/n11869837.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/5f5034120a35b0c8c6780abe6e0e16ca-600x400-1-150x120.jpg" align ="left"></a>而以上海作为大城市的体量和2400万的人口，以新冠病毒的狡猾和潜伏期来推测，3000例或者4000例背后还会有多少人感染？一旦爆发，上海做好准备了吗？上海会不会成为又一个武汉？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 5:21 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/16/n11872822.md#1" target="_blank">归航：救命良方告诉你</a><br></h3>设路障，
-封城乡，
-阻控肺炎室内藏。
-莫惊慌，
-救命有良方。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 5:27 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/14/n11869739.md#1" target="_blank">颜丹：中共行政管制下的民间救援</a><br></h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/14/n11869739.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/b39f6988114421c9663662c747199d20-600x400-1-150x120.jpg" align ="left"></a>据大陆财新网最新发布的《疫区志愿者的疑问：为什么民间救助总是不能及时送到一线？》一文披露，“新冠肺炎爆发之初，一批志愿者抢在第一时间启动民间救援，却在将物资送入疫区的途中遭遇了行政管制下的各种麻烦”。
+
+其实，“麻烦”并不多，主要归结为两类：其一、“物资运到了武汉海关，却遭遇拦截”，“说要缴关税”；其二、“物资到了.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 4:36 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/xgqfwa2071/djy/blob/master/gb/20/2/16/n11872801.md#1" target="_blank">吐为快：春愁</a><br></h3>金鼠闹肺封新年，死于人祸计万千；
 身逃异地躲追查，心随医属援汉炎；
 寰球每日忧疫情，妖共依然掩瘟源；
