@@ -21,11 +21,23 @@
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870288.md#1" target="_blank">【名家专栏】教会及大屠杀与苏联的假信息</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870288.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2005/04/5042130041164-150x120.jpg" align ="left"></a>1月27日，作为大屠杀纪念日的一部分，联合国在纽约举办名为“记住大屠杀﹕天主教会拯救生命的记录在案的努力”（Remembering the Holocaust: The Documented Efforts of the Catholic Church to Save Lives）的活动。
 
 该活动由“铺路基金会”.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 12:50 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870453.md#1" target="_blank">袁斌：封口丧心病狂 警察连垂死患者都不放过</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870453.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/f770e017021e4816f83a368c335aae9d-150x120.jpeg" align ="left"></a>有网友说，如果讲李文亮揭露了被官方刻意隐瞒的疫情，那么伯曼儿则揭露了武汉封城之后的人道灾难！
-
-李文亮大家都知道，伯曼儿是谁？
-
-她是一位湖北女大学生，微博账户名叫“伯曼儿”。因发烧住院，1月24日伯曼儿被查出肺部有问题，期间她冒着被抓的风险，在抖音和微博直播自己的住院经历，曝光医院方面只是每天给发两颗奥司他韦.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 12:18 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872842.md#1" target="_blank">郑言：中共才是祸首</a><br></h3>肺炎肆虐人人惊恐
+举国上下深陷疫中
+封城隔离争抢口罩
+死亡阴影遮蔽天空
+瘟疫爆发绝非偶然
+祸首当属邪党中共
+隐瞒真相粉饰太平
+钳制民口疫情失控
+缺医少药死者相籍
+推诿责任不忘内斗
+人工合成瘟疫病毒
+生化武器惊天阴谋
+国内国际追查压力
+毁灭证据痞子做秀
+上窜下跳欺瞒世人
+满嘴谎言活脱小丑
+.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 6:37 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872822.md#1" target="_blank">归航：救命良方告诉你</a><br></h3>设路障，
 封城乡，
 阻控肺炎室内藏。
