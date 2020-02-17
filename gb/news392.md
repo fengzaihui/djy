@@ -16,7 +16,15 @@
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11873586.md#1" target="_blank">颜丹：方舱里的红色弥撒再显中共邪教本质</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11873586.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1198465048-1-600x400-1-150x120.jpg" align ="left"></a>如今看来，它最擅长的就是拉人“入教”，唱红歌、搞“追魂弥撒”。中共假装有信仰，背地里却把坏事做绝、恶事做尽；说它不是邪教，都没人相信。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 4:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11871916.md#1" target="_blank">【名家专栏】与中共分享学术研究成果很致命</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11871916.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1200760956-150x120.jpg" align ="left"></a>中国共产党已经签署了《生物武器公约》 （Biological Weapons Convention），但他们对这一点并不是很在意。中共政权正在研发生物（细菌）武器，来自中国的致命病毒或许就可以证明这一点。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 10:50 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870356.md#1" target="_blank">【名家专栏】弹劾程序奏效</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870356.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1196237909-crop-1200x720-150x120.jpg" align ="left"></a>纵观整个弹劾过程，可以看到国父们设计的框架得以全面展示。正如他们所期望的那样，众议院被证明是政治激情和党派之争的主体。民主党人举行政治听证会，众议员亚当?希夫（Adam Schiff）（美国加利福尼亚州民主党人）和其他人成为明星，他们在媒体上以及议会厅中审问总统。而参议院则以一定的尊严并按照既定规则进行了弹劾审判。这两.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 5:59 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872865.md#1" target="_blank">钟延：说说“神目如电”</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872865.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/06/95d4b9ee87d4abf9229f27be738525d0-600x400-150x120.jpg" align ="left"></a>一个多月来，武汉新型冠状病毒肺炎疫情泛滥，许多人只能关在家里，情绪越来越紧张、焦虑，甚至惶恐。古人云，“神目如电”、“三尺头上有神灵”、“善恶有报”。中国传统文化称，每个人的命运都和自己和自己祖上的德行有关。下面的故事或许能帮您静下心来，缓解焦虑。清朝礼部尚书、协办大学士纪晓岚讲过这么一个真实故事。北京房山西山深处有一.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 5:11 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11876084.md#1" target="_blank">祝君安：警惕共匪的“治疫”大跃进</a><br></h3>共产跃进逝千万，共党依然言不惭；
+合成病毒正戾悍，砖家叫嚣放心玩；
+妖魔党性终不改，居心叵测毁人寰；
+万方多难党独欢，陪葬黑洞须察看。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 5:15 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11876071.md#1" target="_blank">陆言：浪淘沙?细思量</a><br></h3>病毒肆虐狂
+蔓延甚广
+死患无数不能详
+中共娴熟隐瞒术
+可笑荒唐......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 5:08 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11876063.md#1" target="_blank">陈达：灭共天象明</a><br></h3>武昌起大疫，
 满目乌鸦翅。
 京汉响霹雳，
@@ -92,9 +100,5 @@
 阻控肺炎室内藏。
 莫惊慌，
 救命有良方。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 5:27 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872801.md#1" target="_blank">吐为快：春愁</a><br></h3>金鼠闹肺封新年，死于人祸计万千；
-身逃异地躲追查，心随医属援汉炎；
-寰球每日忧疫情，妖共依然掩瘟源；
-帮派乘机夺统权，病人绝望坠深渊。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 4:18 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dagcey288/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dagcey288/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/dagcey288/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dagcey288/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
