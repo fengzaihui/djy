@@ -19,7 +19,16 @@
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872653.md#1" target="_blank">成都老师开课致辞：不能把冬天唱成春的开始</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872653.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/EPc980XU4AAY4ec-600x400-150x120.jpeg" align ="left"></a>因为武汉肺炎爆发扩散，全中国的学生至今都没法到学校上学，只能在网校上上课。网校也是学校，开学也有仪式。日前，一篇成都七中网校高三年级语文老师的开学致辞在网上广为流传。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 4:11 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872660.md#1" target="_blank">程晓容：中共习惯性造假 三大事件透邪恶本质</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872660.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1200760956-150x120.jpg" align ="left"></a>谎言欺骗是中共建立政权并维持统治的主要手段，本文概述中共在武汉疫情、香港反送中和迫害法轮功这三大事件中的造假罪恶。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 4:11 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872372.md#1" target="_blank">袁斌：中国，需要用摩斯电码交流的神奇国家</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872372.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2009/06/906232341372139-150x120.jpg" align ="left"></a>中共越来越严的网络封锁，逼的大陆网民不停的与其斗智斗勇。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 3:03 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872205.md#1" target="_blank">洪微：罗斯福号航母印太巡航威慑中共</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11872205.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/Capture-31-600x364-150x120.jpg" align ="left"></a>2020年开始，美国海军再次加强太平洋军事部署。1月17日，罗斯福号航母打击群从美国本土的圣地亚哥港启程，开始执行印太地区巡航任务。2月6日，罗斯福号航母抵达关岛，随后进入菲律宾海域，与驻扎日本的里根号航母，形成南北犄角之势，针对中共的军事挑战，展示强大威慑力量。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 12:42 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11875984.md#1" target="_blank">读者投书：做正确的选择</a><br></h3>近日来人们出现了一种焦虑的心情；
+那是因为一场特大的疫情；
+在中国那块土地上肆虐横行；
+有多少的生命瞬间倒下，令人不忍去看那样的场景；
+简直不敢相信自己的耳朵和眼睛；
+令人触目惊心，令人心情久久不能平静；
+这是举世罕见的重大疫情；
+让人们感到了极大的恐惧和震惊。
+
+为什么人们不能安居乐业天下不能太平.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 3:54 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11875850.md#1" target="_blank">袁斌：惊涛骇浪真来了，武汉肺炎引发高层恶斗</a><br></h3>时至今日，越来越多人都在如何看待武汉肺炎的问题上达成了一种共识，那就是这次疫情既是天灾更是人祸！现在迫切要追问的是造成这起人祸的罪魁祸首究竟是谁？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 2:06 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11874822.md#1" target="_blank">杜彼得：华人应悬灯照亮跟前 卷幔观天下之时势</a><br></h3>杨安泽急流勇退
 
