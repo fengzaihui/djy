@@ -23,7 +23,16 @@
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870315.md#1" target="_blank">【名家专栏】公民权利与《第二修正案》</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870315.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1200779946-crop-1200x720-150x120.jpg" align ="left"></a>每个人，无论年龄、种族、性别或背景如何，都生而平等，应被允许享有“生命、自由和追求幸福的权利”。民权游行和后来的立法无非是1776年7月4日宣布的自由的自然延伸。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 6:44 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11871434.md#1" target="_blank">夏小强：风暴来临 习近平公开表示“不背锅”</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11871434.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/6ad5e9301feaf8ff7e3e6deaa75cc169-150x120.jpg" align ="left"></a>在武汉肺炎疫情肆虐，大量快速夺去中国民众生命的同时，中共高层的激烈内斗正在同时进行，一场更大的政治风暴即将来临。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 1:46 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11871564.md#1" target="_blank">金言：地方诸侯不服 习核心如何“定于一尊？”</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11871564.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/xi-jinping-GettyImages-598847582-600x400-150x120.jpg" align ="left"></a>常言道：“临阵换将，乃兵家之大忌。”由于中共各级政府隐瞒疫情，导致局势失控，官方急盼的疫情“拐点”也未如期而至，加上腐败无能的地方官员救治不力，物资调配混乱，无数患者长时间就医无门，致使疫情不断扩大，确诊人数和死亡人数节节攀升，从而引来国内外舆论的强烈谴责。尤其是疫情“吹哨人”李文亮的去世，更是点燃了全民怒火。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月16日 1:22 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870815.md#1" target="_blank">【名家专栏】中共隐瞒疫情 致使防治步履蹒跚</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/15/n11870815.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/5f5034120a35b0c8c6780abe6e0e16ca-150x120.jpg" align ="left"></a>随着所出现疫情的大流行威胁的增加，医学专家已经预测，导致“武汉肺炎”疫情的这种致命的新型冠状病毒（COVID-19）可能会传播到地球上的每一个国家。他们还警告说，疫情持续的时间越长，爆发全球性疫情大流行的风险就越大，并可能威胁到数以百万计的人们的生命。与此同时，中共仍在隐瞒并歪曲有关该疫情的重要信息和数据。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月15日 11:51 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11874292.md#1" target="_blank">慧真：伦敦最美的建筑——真相看板</a><br></h3>在中共驻英大使馆的对面
+有一座大法弟子的真相看板
+它被称为伦敦最美的建筑①
+它震动着中外世人的心弦
+它记录了众多的三退名单
+它签写下来往者的支持留言
+它把真相揭示唤醒民众
+它将慈悲善心送给人间
+它揭露中共的暴力谎言
+它痛斥那最邪恶的活摘器官......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 1:22 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/16/n11873712.md#1" target="_blank">海网：换将谣</a><br></h3>招来天谴恶党惧，
 武昌起疫蕴起义。
 一捂再捂疫生翼，
