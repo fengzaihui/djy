@@ -2,7 +2,7 @@
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11874247.md#1" target="_blank">【翻墙必看】内部文件流出 中共军队早知疫情</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11874247.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1197870977-320x200.jpg" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
 
 1.内部文件曝光 中共军方1月初就防范武汉肺炎
-武汉肺炎早在去年12月初就爆发，但中共隐瞒疫情迟迟未向国人通报。但.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 1:25 PM					</td></tr>
+武汉肺炎早在去年12月初就爆发，但中共隐瞒疫情迟迟未向国人通报。但.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 2:00 PM					</td></tr>
 <tr><td><h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11874068.md#1" target="_blank">敏感时刻 科技部发文管理好实验室引舆论热议</a><br></h3><a href="https://github.com/dagcey288/djy/blob/master/gb/20/2/17/n11874068.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/Screen-Shot-2020-02-17-at-10.28.49-am-150x120.png" align ="left"></a>近日科技部发文称加强对实验室特别是对病毒的管理，确保生物安全。在外界纷纷指向病毒是武汉病毒研究所P4实验室泄漏的敏感时刻，此番言论更引起舆论热议。
 
 2月15日，科技部社会发展科技司司长吴远彬在中共国务院联防联控新闻发布会上介绍，科技部出台了《关于加强新冠病毒高等级病毒微生物实验室生物安全管理的指导意见》。
