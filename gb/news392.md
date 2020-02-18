@@ -18,9 +18,14 @@
 <tr><td><h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11874153.md#1" target="_blank">【名家专栏】应对疫情失败暴露世卫深层问题</a><br></h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11874153.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-865755744-crop-1200x720-150x120.jpg" align ="left"></a>在当“武汉肺炎”疫情已经爆发的时候，中国共产党再次采取了它的默认应对模式：谎言、掩盖和宣传辩解。这极大的拖延了遏制疫情应对措施的实施。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 2:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11873926.md#1" target="_blank">项云：关键时候中共国库从来不酷</a><br></h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11873926.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/Screen-Shot-02-10-20-at-07.31-PM-1-600x400-1-150x120.jpg" align ="left"></a>国库当然是应急储备，战时用于军队和百姓之需，平时用于灾难救助，是明显两大用处。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 12:29 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11874187.md#1" target="_blank">方华：刻意隐瞒武汉瘟疫源头 中共在对人类犯罪</a><br></h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11874187.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/WhatsApp-Image-2020-02-07-at-7.34.46-PM-600x400-1-1-150x120.jpeg" align ="left"></a>国际医学权威期刊《柳叶刀》1月24日曾发表有关武汉肺炎的论文《新型冠状病毒感染患者的临床特点》，该论文披露了武汉最早收治的41名患者的情况，其中第一例患者出现在12月1日，并无华南海鲜市场接触史；而全部41个确诊感染新冠病毒的病例中，共有14例与华南海鲜市场无接触史。据此论文第一作者、武汉市金银潭医院副院长黄朝林认为.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 11:34 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11874135.md#1" target="_blank">方平：病毒或将在社区传播 全球准备好了吗？</a><br></h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/17/n11874135.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1199852888-600x400-1-150x120.jpg" align ="left"></a>2月15日，台湾出现了第一个COVID-19（俗称武汉肺炎）死亡的案例，引发了“社区传播”的疑虑。什么是“社区传播”呢？台湾时间2月16日，台湾卫生服务部部长陈时中特别说明，意思是：“在社区中走动都会被感染。”
-
-据CNN报导，2月13日，美国疾病控防中心（CDC）主任罗伯特?雷德菲尔德表示：“这种病毒可能会和人类.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月17日 11:12 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/18/n11877497.md#1" target="_blank">方能达：中共应付疠疫乏力却坚拒外援</a><br></h3>中美交际应兴旺，
+共同纽带太平洋，
+物资互换属次要，
+重在人员常来往。
+惜哉彼此欠融洽，
+缘于治理不同向，
+孰是孰非易判断，
+合乎民意才正当。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月19日 2:48 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/rgtkqo2398/djy/blob/master/gb/20/2/18/n11877475.md#1" target="_blank">方能达：武汉冠状病毒肺炎肆虐 凸显专制之害</a><br></h3>疠疫源头未截堵，
 传染急剧呈增速，
 有名无实“人代会”，
