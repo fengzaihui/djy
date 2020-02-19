@@ -25,6 +25,15 @@
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/18/n11876249.md#1" target="_blank">谢田：中国工厂复工必须有个前提</a><br></h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/18/n11876249.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/473af7d72188f9c0c36567672587a5c1-600x400-1-150x120.jpg" align ="left"></a>中国大陆的工厂，新年过后，在当前武汉瘟疫的特殊状况之下，到底应该复工还是不复工？这是一个很关键的问题。这不仅仅是一个国家经济、政府GDP、卫生防疫、和公共安全的问题，还涉及了成千上万人的生命权力的问题。有些武汉疫区被隔离的人们说，复工染病会慢慢死；不复工没得活会马上死。是这样吗？这几乎就像英国戏剧家莎士比亚在《哈姆雷特.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 8:17 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11876098.md#1" target="_blank">陈思敏：中共官方吹风不同调 疫情关键WHO难解</a><br></h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11876098.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/01-2-600x400-1-150x120.jpg" align ="left"></a>中共卫健委官员在16日记者会上就新冠疫情（COVID-19、武汉肺炎）表示，武汉、湖北和全国重症比例均明显下降，这说明疫情防控效果显现。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 7:45 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/16/n11873679.md#1" target="_blank">方天亮：习承认生物技术谬用 中南海内斗凶猛</a><br></h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/16/n11873679.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/000_1O84MH-150x120.jpg" align ="left"></a>全球正关注美国对中国疫情病毒来源调查之际，受川普尊重的美参议员汤姆．科顿（P Tom Cotton）2月14日在接受美国战情室的疫情话题采访时，公开质疑这次武汉病毒是人工制造的、公开询问习近平是否知道全部的内幕呢？他的公开质疑触发中南海政情突变，引发“习明泽”与中共中宣部江派王沪宁控制的《求是》杂志打擂台，中南海政局与.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 7:36 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/19/n11880601.md#1" target="_blank">苦胆：愿你也能得救</a><br></h3>受骗不明世道，
+自我感觉良好，
+从未有过人权，
+却谓岁月静好。
+
+既然岁月静好，
+怎会全戴口罩？
+封城封区封村，
+快要关门吃草。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月19日 10:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/19/n11880583.md#1" target="_blank">祝君安：登黄鹤楼</a><br></h3>亲人皆染肺炎去，恐怖鹰犬城网搜；
 二水合流泪淘淘，五桥空横鬼啾啾；
 女追灵车哭妈妈，母喊儿啊撵车走；
@@ -60,13 +69,5 @@
 死患无数不能详
 中共娴熟隐瞒术
 可笑荒唐......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 5:08 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11876063.md#1" target="_blank">陈达：灭共天象明</a><br></h3>武昌起大疫，
-满目乌鸦翅。
-京汉响霹雳，
-内蒙现五日。
-青海红龙坠，
-新疆蝗虫至。
-灭共天象明，
-亡党眼前事。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 4:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/czicxj2368/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/czicxj2368/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/czicxj2368/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
