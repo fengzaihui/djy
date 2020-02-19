@@ -25,6 +25,10 @@
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/16/n11873679.md#1" target="_blank">方天亮：习承认生物技术谬用 中南海内斗凶猛</a><br></h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/16/n11873679.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/000_1O84MH-150x120.jpg" align ="left"></a>全球正关注美国对中国疫情病毒来源调查之际，受川普尊重的美参议员汤姆．科顿（P Tom Cotton）2月14日在接受美国战情室的疫情话题采访时，公开质疑这次武汉病毒是人工制造的、公开询问习近平是否知道全部的内幕呢？他的公开质疑触发中南海政情突变，引发“习明泽”与中共中宣部江派王沪宁控制的《求是》杂志打擂台，中南海政局与.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 7:36 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11875956.md#1" target="_blank">张菁：武汉疫情中的院士 中国的学术江湖</a><br></h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11875956.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/shutterstock_372606571-450x300-1-150x120.jpg" align ="left"></a>网友戏称高院士为“悬浮院士“，其实，毫无实践经验而仅凭论文而存在的“悬浮院士”折射的是中共体制的扭曲和社会道德的堕落。使得本来应该用客观中立的研究推动社会发展、增进人类福祉的专家学者、科学家们，却利用公众对学术头衔的信任，出卖良心，助恶为虐。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 4:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11875934.md#1" target="_blank">金言：江泽民才是大瘟疫幕后真凶？</a><br></h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11875934.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1200155402-600x400-1-1-150x120.jpg" align ="left"></a>正当外界集中将新型冠状病毒源头指向武汉P4病毒实验室之际，习近平突然在2月14日召开的深改委会议上破天荒的提出：“把生物安全纳入国家安全体系，要尽快推动出台生物安全法。”很显然，习近平确实意识到这场瘟疫已经严重危及到自己的地位和中共政权的稳定。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 4:35 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/19/n11880583.md#1" target="_blank">祝君安：登黄鹤楼</a><br></h3>亲人皆染肺炎去，恐怖鹰犬城网搜；
+二水合流泪淘淘，五桥空横鬼啾啾；
+女追灵车哭妈妈，母喊儿啊撵车走；
+妖党胜毒到处肆，百步亭区万魇愁！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月19日 9:50 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/18/n11877506.md#1" target="_blank">中国民主党关于山东警方抓捕任自元先生的严正声明</a><br></h3>惊悉任自元先生于2月13日被山东济宁警方无辜抓捕，中国民主党全国联合总部感到无比气愤和震惊。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月19日 4:17 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/18/n11877497.md#1" target="_blank">方能达：中共应付疠疫乏力却坚拒外援</a><br></h3>中美交际应兴旺，
 共同纽带太平洋，
@@ -64,15 +68,5 @@
 新疆蝗虫至。
 灭共天象明，
 亡党眼前事。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 4:59 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/20/2/17/n11875984.md#1" target="_blank">读者投书：做正确的选择</a><br></h3>近日来人们出现了一种焦虑的心情；
-那是因为一场特大的疫情；
-在中国那块土地上肆虐横行；
-有多少的生命瞬间倒下，令人不忍去看那样的场景；
-简直不敢相信自己的耳朵和眼睛；
-令人触目惊心，令人心情久久不能平静；
-这是举世罕见的重大疫情；
-让人们感到了极大的恐惧和震惊。
-
-为什么人们不能安居乐业天下不能太平.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月18日 3:54 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/czicxj2368/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/czicxj2368/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/czicxj2368/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/czicxj2368/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/czicxj2368/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
