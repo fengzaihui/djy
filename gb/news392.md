@@ -35,7 +35,7 @@
 但人们发现，奔涌而来的信息，是那么不可思议和恐怖，充满悲哀。
 疫病因为被刻意隐瞒而大肆扩散了
 上一年的12月8日病毒感染就已经被发现，根据中国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月22日 6:49 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/21/n11886654.md#1" target="_blank">周晓辉：病毒入北京核心区 中南海还不警醒</a><br></h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/21/n11886654.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1079499936-600x400-1-150x120.jpg" align ="left"></a>即警告中南海妄想以人力“战胜”疫情、“战胜”病毒是行不通的，而是要反省所犯下的罪恶，并勇于清算，才可获得上天的垂怜。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月22日 5:06 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/23/n11890423.md#1" target="_blank">曾严：就新冠疫情给中国现任领导人的一封信</a><br></h3>因为看到中共现政权领导人面临的重大困境和危机，因此写来这封公开信。写信的目的是想帮助现领导人看清一条光明和希望的路，走过自己未能意识到的生命劫难。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月24日 7:10 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/23/n11889085.md#1" target="_blank">祝君安：治疫要正本清源</a><br></h3>掩盘毒源先已假，扩散病患实为恶；
 刀把主治维稳斗，羔羊生命由狼呵。
 隐瞒疫情党作假，隔而不治更为恶；
