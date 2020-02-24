@@ -41,6 +41,7 @@
 揭露当权者的不当
 是真相的透彻解剖
 让作恶者无处遁藏......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月24日 9:40 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/24/n11890613.md#1" target="_blank">吕锡民：全球再生能源发展概况与展望</a><br></h3>面对传统源供应体系的先天制约与经济可持续发展的矛盾，气候变迁、生态环境破坏与人类追求保护自然的矛盾，世界主要国家都将发展再生能源视为重要依托，满足其对能源基础设施更新换代、技术竞争以及政治外交等方面的战略需求。席卷全球的金融危机，在带来经济困境的同时，也为各国调整发展方向留下了喘息之机，大规模促进低碳产业发展的经济刺激.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月24日 8:50 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/23/n11890567.md#1" target="_blank">李春草：醉花阴·拐点</a><br></h3>官状病毒正疯狂
 攻城又掠乡
 蝙蝠染爱滋
@@ -69,8 +70,5 @@
 恶报乃警钟，良知赶紧醒。
 造谣党查谣，天法岂能容？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月22日 4:14 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/22/n11887585.md#1" target="_blank">李大眼：高光时刻的正义</a><br></h3>大家已经都看过了红袖箍冲进民宅砸烂麻将桌并抽主人耳光的视频，也看了小伙因没戴口罩被执法人员绑在树上强行戴上胸罩的视频，还有西安老头没戴口罩被物业抽得满脸是血，女子没戴口罩被牵铁链指认型游街，以及全家举着检讨书念“我们是一家四口在家打扑克，违反了非常时期不聚集的命令，我们错了”……等等视频。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月22日 3:54 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/20/2/22/n11887535.md#1" target="_blank">邢仁涛：世纪瘟疫大爆发前 我们该如何保命？</a><br></h3>一、武汉肺炎在全球大爆发已不可避免
-
-武汉肺炎的传播途径包括几乎所有人类疾病传播途径，而其潜伏期长、无症状感染、低检测率、适度死亡率造成的极高传播力，以及极易变异等特点，再结合当前医疗水平，我们可以很容易判断出，新冠状肺炎病毒注定会造成世纪大瘟疫，大爆发已经不可避免。大家真的不要相信中共的“可防可治”的骗人宣传了.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月22日 3:31 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/hvrsuf251/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/hvrsuf251/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hvrsuf251/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
