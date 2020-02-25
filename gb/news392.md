@@ -23,13 +23,10 @@
 <tr><td><h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11890189.md#1" target="_blank">王友群：时辰一到 江泽民等必遭恶报</a><br></h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11890189.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/2019-7-18-washington-dc-falun-gong-parade_10-1-600x400-150x120.jpg" align ="left"></a>今年是中共迫害法轮功21年。这是血雨腥风的21年，这是谎言满天飞的21年，这是中共邪恶登峰造极的21年，这是天怒人怨、人神共愤的21年，这是中共走向最后灭亡的21年。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月24日 1:02 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11890133.md#1" target="_blank">夏小强：习近平7常委露面 讲话透露重要信息</a><br></h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11890133.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/9-8-150x120.jpg" align ="left"></a>2月23日，中共在北京召开了名为“统筹推进新冠肺炎疫情防控和经济社会发展工作部署”的会议，包括习近平在内的中共七常委和全体政治局委员全部出席亮相。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月24日 12:22 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11889570.md#1" target="_blank">岳高：涂脂抹粉无法阻遏瘟疫</a><br></h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11889570.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/2020020413-150x120.jpg" align ="left"></a>湖北武汉爆发“新型冠状病毒肺炎”，迄今已两个月。二月十八日，中共政法委印发了一份关于疫情报导的通知，要求“加大宣传力度，激发社会正能量”，“推出更多有温度、有泪点、有人情味的‘暖新闻’”，更强调要“善用”新媒体平台。政法委掌控公检法和国安，却越过中宣部，直接向媒体发号施令。此反常现象表明，中共妄图以更强势“维稳”，严密.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月23日 11:41 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11889342.md#1" target="_blank">千瑞：中共是生命的耻辱</a><br></h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/23/n11889342.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/1910201840081973-150x120.jpg" align ="left"></a>几何时——
-
-中共，鼓噪美的谎言，欺骗了全世界。
-
-何曾料——
-
-中共，利用人的善良，践踏着全人类。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月23日 7:44 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/24/n11893372.md#1" target="_blank">伍新：人算不算数 一切天定数</a><br></h3>鄂日三百余，省会六百几。总和反而小，肺炎数葩奇。
+人笑党狡辩，降准玩猫腻。统计双规制，标准数数易。
+上言疫情缓，啪啦齐减低。上言拐点茫，加法齐噼里。
+数字出干部，干部出数字。党数学儿戏，爬高混官笈。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月25日 7:47 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/dmoadz208/djy/blob/master/gb/20/2/24/n11893115.md#1" target="_blank">郑纯清：外地警察驰援武汉展望</a><br></h3>东西南北中，空降武汉城。
 个个防护服，外地驰援警。
 武汉封层层，病毒闹汹汹。
