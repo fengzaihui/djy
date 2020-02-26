@@ -28,7 +28,10 @@
 <tr><td><h3><a href="https://github.com/cdhmw2466/djy/blob/master/gb/20/2/24/n11892714.md#1" target="_blank">颜丹：谈“大疫之下的基本权利”多可悲</a><br></h3><a href="https://github.com/cdhmw2466/djy/blob/master/gb/20/2/24/n11892714.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1193183155-600x400-1-150x120.jpg" align ="left"></a>自新冠肺炎爆发已一月有余，在中国，除了以“政治第一”为己任的官员、医疗专家频频露面、发声之外，人们甚少听到来自民间的真实消息。尤其是在公共领域同样具有代表性和权威性的群体——知识分子也比任何时候都显得沉默、安静。
 
 不久前，墙内一家媒体的网站上突然冒出了这样的标题——“北大教授沈岿：大疫之下善待每一个人的基本权利”.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月25日 3:47 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/cdhmw2466/djy/blob/master/gb/20/2/24/n11892107.md#1" target="_blank">杜彼得：云落开时冰吐鉴 浪花深处玉沉钩</a><br></h3><a href="https://github.com/cdhmw2466/djy/blob/master/gb/20/2/24/n11892107.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1207159408-150x120.jpg" class=" align ="left"></a>“梦”是个很玄的东西，年轻时，总喜欢将之视为灵魂的出游，随着年龄的增长，更是坚信不朽。世事经历多了，眼看人类惧怕着生死，却又要毫无保留的去咽下亲朋好友离去的伤情，我们总会静静的沉思，难道老天爷总想给无法从梦中“觉醒”的俗人，一个更具感染力的“现实”吗？有一友人曾说，他很少发梦，偶有那么一次，睡醒后，也忘得一干二净，免掉.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月24日 11:59 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/cdhmw2466/djy/blob/master/gb/20/2/26/n11897033.md#1" target="_blank">陆言：武汉楼山暗夜传来地狱嚎声</a><br></h3>阎王坐镇守三更，武汉夜传地狱声。
+凄厉哀嚎惊帝宇，怒冤愤弃骂皇京。
+裸官亿产藏欧美，疫众零医焚葬坑。
+最恨妖魔扮上帝，谎言暴力布灾星。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月26日 4:11 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cdhmw2466/djy/blob/master/gb/20/2/26/n11897005.md#1" target="_blank">祝君安：论社会主义“优越性”</a><br></h3>一登红楼不再穷，宝马公款任西东；
 衙门深深春宵短，威仪赫赫鹰犬从。
 
