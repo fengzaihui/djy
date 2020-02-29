@@ -30,6 +30,15 @@
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11899838.md#1" target="_blank">魏京生：谣言与阴谋论</a><br></h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11899838.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/Xnip2020-02-19_17-04-18-150x120.jpg" align ="left"></a>现在中国的网民们都相信一句格言：谣言就是遥遥领先的预言。为什么会如此呢？因为中共的官方媒体才是真正的谎话和谣言的发源地，而被民众所相信的私下传播的谣言，却往往是可信度很高的消息来源。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月27日 5:47 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11899786.md#1" target="_blank">李铭：恶报悔恨迟 除非己莫为</a><br></h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11899786.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/95d4b9ee87d4abf9229f27be738525d0-600x400-150x120.jpg" align ="left"></a>近日明慧网报导，原江西省女子劳教所自从一九九九年七月以来，成了该省迫害女性法轮功学员最严重的地方之一，暴打、吊铐、警棍电击、野蛮灌食、奴工生产与强制转化等酷刑迫害，更是从未停止过。二零零零年二月底，副所长邓俭将江友香等四位法轮功学员关入禁闭室，连续挂铐三个昼夜，不让睡觉。江友香双腿肿胀，双臂麻木失去知觉。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月27日 3:41 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11899616.md#1" target="_blank">谢田：世界进入嘲讽蔑视中共模式</a><br></h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11899616.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/c7f965000ed5bb7b8155117cc8d2e903-600x400-1-150x120.jpg" align ="left"></a>我们的世界，如今已经开启、进入了一个公开嘲讽、戏虐、和蔑视中共的模式。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月27日 3:20 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/29/n11904786.md#1" target="_blank">千瑞：看神韵 有大吉</a><br></h3>神韵，神韵——神之韵。
+
+神韵，带与你的是千年的好运。
+
+神韵，为你打开的是新生之辰。
+
+神，在救人——
+
+看神韵，有大吉。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月29日 4:18 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/29/n11904479.md#1" target="_blank">苦胆：焚尸炉内的惨叫</a><br></h3>焚尸炉内传出武汉肺炎患者的惨叫，
 吓得搬尸工险些儿灵魂出窍。
 凄厉的惨叫异化了火葬场的功能，
@@ -47,12 +56,5 @@
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/29/n11904388.md#1" target="_blank">谭笑飞：疫情是面照妖镜</a><br></h3>新冠状病毒在武汉大规模爆发，并迅速传播到中国大陆各个省份和海外。一些专家从病毒的结构推定这是人工合成的病毒，可能是武汉P4实验室违规操作导致病毒泄露，甚至也不排除人工故意泄露的可能。而中共禁止美国参与防疫，一口咬定病毒出自海鲜市场而拒绝深入调查，军方接管P4实验室等等行为，更显得做贼心虚和欲盖弥彰。倘若病毒真是中共制造.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月29日 1:05 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/28/n11903499.md#1" target="_blank">辛素：疫情成了中共打人的棍子</a><br></h3>疫情成了中共打人的棍子！这么说，有人可能会不相信，但事实真就是这样。新冠病毒全球扩散，“中国欠世界一个道歉？”“世界应该对中国说声对不起？”网络上对于这2个问题争论不休。其实，没啥好争的。现在的关键不是谁该对谁说对不起，而是中共正提着“疫情大棒”四处打人呢。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月29日 2:55 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11901255.md#1" target="_blank">吴惠林：从“人无德天灾人祸”看武汉肺炎</a><br></h3>原本是欢天喜地、热闹缤纷的2020年农历春节，竟被武汉肺炎搅得人心惶惶、人人自危，新闻媒体都被疫情淹没。究竟伊于胡底，只能无语问苍天！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月28日 4:37 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/20/2/27/n11899553.md#1" target="_blank">金浴凤：声声慢?红朝政治生态</a><br></h3>局局官官，
-蝉蝉噤噤，
-欺欺谄谄乞乞。
-苟延残喘之时，
-最是邪戾。
-洗脑愚忠之徒，
-怎敌他合成毒袭？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月27日 2:25 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ernftd2719/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ernftd2719/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ernftd2719/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/ernftd2719/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ernftd2719/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
