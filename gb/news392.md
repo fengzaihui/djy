@@ -31,6 +31,15 @@
 松鼠般的笑容，她脸上挂。
 有一个身影，雪地里嬉戏——
 安娜斯塔西娅，神秘之花。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月28日 3:57 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/bbfwc2554/djy/blob/master/gb/20/3/1/n11906407.md#1" target="_blank">伍新：自吹“最大的赢家”是红魔嘴脸的彻底暴露</a><br></h3>
+
+恶疫灾闹大，病死频频加。不无无症状，查都没法查。
+无方又无药，出院有复发。封城只封人，病毒不理茬。
+遍野鸿哀哀，牢狱封家家。社会半停摆，狂施蒸怨压。
+无法无天贼，趁火劫大打。党妈反笑称，最大之赢家。
+自吹富起来，继而强起来。进入新世纪，跨入新时代。
+刚吹厉害了，不过肥皂泡。贸易战一打，稀烂豆腐渣。
+.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月01日 1:55 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/bbfwc2554/djy/blob/master/gb/20/2/29/n11904786.md#1" target="_blank">千瑞：看神韵 有大吉</a><br></h3>神韵，神韵——神之韵。
 
 神韵，带与你的是千年的好运。
