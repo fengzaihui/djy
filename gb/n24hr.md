@@ -636,8 +636,17 @@ Carlsbad花田是在1920年早些时候起建的，是一位叫Luther Gage的居
 <tr><td><h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/25/n11894450.md#1" target="_blank">新婚的家是废弃谷仓？完工后亲友大赞：好美！</a><br></h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/25/n11894450.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/447e6bb43b051aec4e175be97040fd5c-150x120.jpg" align ="left"></a>把废弃谷仓当成新婚的家？原来居住在繁华城市的凤凰城建筑师，异想天开的买下了60年的老谷仓，他还打算把它内部改修后，做为新婚的家呢！他打算怎么做呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月28日 4:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/28/n11902461.md#1" target="_blank">高级工程师：神韵是独一无二的演出</a><br></h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/28/n11902461.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/200227221611976-150x120.jpg" align ="left"></a>“我认为演出绝对是和平的，让人感到充满着很多希望和美好。”2月27日下午，数据科学家Dustin Zubke在观看了神韵纽约艺术团，在美国拉斯维加斯史密斯表演艺术中心的演出后，赞叹不已。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月28日 4:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/24/n11892740.md#1" target="_blank">金融风暴降临中国？ 专家：恐在一年内发生</a><br></h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/24/n11892740.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1202929931-150x120.jpg" align ="left"></a>中国各地为严防武汉病毒而停工、停产，除了重创中国大陆内部经济以及人民生计，身为世界工厂的中国，更影响全球产业链，导致外资纷纷撤离中国。专家预估，这波疫情将在一年内促使中国大陆经济发生崩解，甚至比1997年的亚洲金融风暴，以及2008年美国华尔街金融海啸，影响层面更深远。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月28日 4:34 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/28/n11902668.md#1" target="_blank">《铁皮木》影评：冷战间谍惊悚片撼动人心</a><br></h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/28/n11902668.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/20200228_2_4_Ironbark-700x420_09-150x120.jpg" align ="left"></a>潘科夫斯基玩弄着危险的边缘，但是他却选了一个业余新兵格雷维尔·威尼（Greville Wynne）当作搭挡，因为他绝不会让任何人怀疑像个间谍。在导演多米尼克·库克（Dominic Cooke）的间谍惊悚新作《铁皮木》中，他们合作无间的伙伴关系成为全片焦点。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月28日 4:32 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/26/n11897828.md#1" target="_blank">法国出现数起群聚感染 一天暴增20起武肺病例</a><br></h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/2/26/n11897828.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2015/05/1505221423071124-150x120.jpg" align ="left"></a>法国卫生部长维宏今天（巴黎时间27日）表示，法国一天内新增20起武汉肺炎确诊病例，确诊人数攀升至38人，其中包含数起群聚感染，最严重的瓦兹省疫情感染源头仍在追查中。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年02月28日 4:23 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/3/1/n11907446.md#1" target="_blank">2月24日～3月1日渥太华好去处</a><br></h3>
+
+- Awakening exhibition 
+
+时间：3月3日开始
+
+地点：?jagem? gallery, 150 Elgin Street
+
+内容：展示加拿大艺术理事会（Canada Council Art Bank）的艺术家所创作的21幅作品，关注人类和大自然的关系。
+
+canadaco.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月02日 12:31 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/wqzpig2732/djy/blob/master/gb/20/3/1/n11907441.md#1" target="_blank">渥太华市议员建议提高除雪标准</a><br></h3>渥太华市议员梅纳德（Shawn Menard）近日在其提交给市府的报告中称，去年本市的除雪工作质量和当前的冬季维护标准不可接受，许多市中心的人行道、自行车道均达不到要求，认为本市的“冬季路面维护及除雪工作，其标准需要重大的模式改进”，这些标准自2003年以来从未更新。
 
 报告参照了Capital选区去年3月的公众咨.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月02日 12:19 AM			</td></tr>
