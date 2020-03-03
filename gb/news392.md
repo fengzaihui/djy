@@ -23,7 +23,6 @@ P4实验室被怀疑是病毒源头
 <tr><td><h3><a href="https://github.com/qnbcdo211/djy/blob/master/gb/20/2/29/n11905405.md#1" target="_blank">周晓辉：北京出昏招 川普拟动用一法案反击</a><br></h3><a href="https://github.com/qnbcdo211/djy/blob/master/gb/20/2/29/n11905405.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/ac6f675b7d64ed2a52dfd2846ea122d1-600x400-150x120.jpg" align ="left"></a>在中国抗击武汉肺炎之际，美国政府不仅多次表示可以派顶尖专家到中国来协助抗疫，而且美国政府和多家企业、民间机构向中国提供了大量金钱和物资上的帮助。让人不齿的是，心中有鬼的中共不但迄今不同意美国专家到武汉了解疫情，还恩将仇报。
 
 2月25日，美国白宫贸易与制造业政策办公室主任在接受福克斯电视采访时表示，中国目前正禁止美.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月01日 4:20 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/qnbcdo211/djy/blob/master/gb/20/2/29/n11904800.md#1" target="_blank">北大教授：集中力量办大事意味着所有功能停摆</a><br></h3><a href="https://github.com/qnbcdo211/djy/blob/master/gb/20/2/29/n11904800.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/1211290826301497-600x400-1-150x120.jpg" align ="left"></a>2月7日，北京大学历史教授罗新在微博上写了八个字，“一生所学，只为此刻。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月01日 1:10 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qnbcdo211/djy/blob/master/gb/20/3/2/n11910627.md#1" target="_blank">云鹤天：一七令?墙</a><br></h3>墙。
 
 滴血，红墙。
@@ -37,6 +36,7 @@ P4实验室被怀疑是病毒源头
 神助白鸽飞跃，八方四面翻墙。
 
 三退勇士三亿众，远离邪恶躲危墙。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月03日 7:30 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/qnbcdo211/djy/blob/master/gb/20/3/2/n11910613.md#1" target="_blank">国士无双 与郭泉先生相知小记</a><br></h3>郭泉至今日已失联二十多日，他与我的联络定格在了1月30日。再无每日凌晨五点的消息提示滴滴声，也看不到他那嘻笑怒骂的文字，他永远别具一格的真知灼见，我甚至怀疑我再也听不到他的消息。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月03日 7:25 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qnbcdo211/djy/blob/master/gb/20/3/2/n11910154.md#1" target="_blank">无论个人与政团谎言欺世皆既损人亦害己</a><br></h3>自欺欺人短时快，
 最终却是遗大害，
 理有固然难更改，
