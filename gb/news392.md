@@ -35,7 +35,16 @@
 <tr><td><h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/4/n11913724.md#1" target="_blank">朱同：防疫和复工复产两不误？</a><br></h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/4/n11913724.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/a8d3f628ec6c42be3f13381d7c34fced-150x120.jpg" align ="left"></a>中共政府正在试图千方百计把疫情造成的损失补回来，包括央视在内的党媒正在使出“洪荒之力”，表扬那些精细化管理、防控疫情和复工复产两手抓的城市！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月04日 2:50 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/4/n11913333.md#1" target="_blank">谭笑飞：简单解读中共对武汉女进京的调查结果</a><br></h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/4/n11913333.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1202253965-600x400-1-150x120.jpg" align ="left"></a>2月21日，武汉刑满释放人员黄某顺利离开武汉进入北京。一石激起千层浪，网络质疑声一片；当然中共并不在意民间舆论，但是中共迅速进行调查，说明中共高层也确实相当吃惊和愤怒。所谓的调查结果公布于众，湖北和北京都有官员受到处分。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月04日 1:31 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/4/n11913201.md#1" target="_blank">【美股瞭望】美联储意外降息2码非利多出尽</a><br></h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/4/n11913201.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/11/f2ede450737e6d7ce5467a87f8977b5e-150x120.jpg" align ="left"></a>美联储主席鲍威尔在周二（3日）意外宣布降息2码（0.5%），让联邦基本利率降到1～1.25%，但美股周二却全面下挫，道指跌785点或2.94%，标普500指数和纳斯达克也跌2.8%和2.99%。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月04日 8:47 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/3/n11913027.md#1" target="_blank">张林：伊朗开挖“万人坑”，中共把老朋友害惨了！</a><br></h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/3/n11913027.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-596742096-600x400-150x120.jpg" align ="left"></a>中共在世界上的老朋友俄罗斯、朝鲜，在武汉病毒刚发生，就与中国立刻切割。不仅仅因为这两个国家领导人深知所谓武汉肺炎，其实是中共研制的生化武器，还因为中共把两个盟友都骗了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月04日 8:47 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/5/n11917792.md#1" target="_blank">关乐：为何《大国战疫》出也太匆匆隐也太匆匆</a><br></h3>大国战疫书怪，丧事喜办贼快。
+未待尸寒入殓，牌坊棺木拆改。
+四邻八家致哀，舞裙寿衣裁摆。
+为自证伟光正，血胭脂炫风采。
+自言自食自肥，乃党家常饭菜。
+自文自禁自销，素来习以为常。
+然而如此闪速，确是刷新纪录。
+书出也太匆匆，隐没匆匆也快。
+出书出于何由？隐没缘故何在？
+几分侥幸馋涎，几分穷赌耍赖。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月05日 11:13 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/5/n11917084.md#1" target="_blank">陆言：从社保结余看中共非法剥夺养老金之恶</a><br></h3>受武汉肺炎的影响，中共国务院在二月份决定对中、小、微企业免征二至六月份共五个月的养老、失业、工伤三项保险费。网上马上有煽情的文章说，这是“国家帮你交”，也有网友不明白：这几个月的社保费最终由谁买单呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月05日 8:28 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cywoa2300/djy/blob/master/gb/20/3/5/n11916904.md#1" target="_blank">金浴凤：蝗虫，肺疫和中共</a><br></h3>漫天蝗虫临中国，敢与肺炎同赵搏
 却看殿堂封将帅，傻看蝗炎缩红窝
