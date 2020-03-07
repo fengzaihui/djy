@@ -28,6 +28,15 @@
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11918384.md#1" target="_blank">王赫：三事“快闪”折射习近平困境</a><br></h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11918384.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/Captur3-150x120.png" align ="left"></a>庚子年第二个月，武汉肺炎瘟疫及中共荒唐应对造成的巨大民生灾难，致中共政权动摇，习近平处境急剧恶化。习近平当初的“打虎”之威，声犹在耳的“核心”之尊和“人民领袖”之颂，今天都成了对习“追责”的借口。“习明泽”帖文，不论谁放出来的，都是对岌岌可危的习的嘲讽。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月06日 7:57 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11918158.md#1" target="_blank">周晓辉：中南海甩锅很危险 班农发灭共强音</a><br></h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11918158.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/2019-08-26-16406-GettyImages-961387648-600x400-150x120.jpg" align ="left"></a>虽然目前各国的注意力都主要集中在防控本国疫情上，但中共的甩锅将推动国际反共力量的进一步集结。当全世界意识到只有消灭中共这个最大的病毒，人类才能继续生存下去时，中共真的是死无葬身之地。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月06日 5:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11918024.md#1" target="_blank">谢田：假如美国也大举屯粮的时候</a><br></h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11918024.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/Iowa_corn_harvest_by_combine_GettyImages-1180700697-150x120.jpg" align ="left"></a>阳春三月之初，就是美国超级星期二初选的前一天，与中国北京人大新闻系的校友、资深媒体人士鲁难先生，和台湾资深媒体人、明镜电视台今天大新闻的主持人薛纯阳先生，一起探讨了在武汉瘟疫（新冠病毒）的阴影之下，人们抢购物资，尤其是在美国和加拿大这样的国度，究竟有多大必要的问题。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月06日 3:13 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/7/n11922706.md#1" target="_blank">金浴凤：2月31号，中共在干啥？</a><br></h3>浓妆艳抹乌托邦，栽花绣朵民主党
+偏爱高调大跃进，隐瞒丑史巧包装
+敢将屠夫比太阳，直把先贤尽冷藏
+暗嵌爱滋于蝠基，明挂羊头卖狗脏
+
+公仆销魂独裁党，贪占国库还输洋
+城乡命断可防控，官民讯塞互联网
+悍然匪警封吹哨，茫然家眷染疫亡
+一梦幻灭瘟魔舞，万径踪绝一蝙翔......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 8:55 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/7/n11922688.md#1" target="_blank">海网：黑锅甩到山寨外</a><br></h3>末日邪党癫，倒打一耙欢。黑锅往美甩，瘟疫病毒源。
 武汉新肺炎，实为二非典。又是党招来，疑自生武研。
 上下一起瞒，越瞒越凶悍。红色江山漫，五洲传染遍。
@@ -57,14 +66,5 @@
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/6/n11918994.md#1" target="_blank">【网语集萃】：醉生梦死，最后只能被煮熟</a><br></h3>大多数人其实没有宏大志向，对政治没有多少兴趣。如果现世安好天青月明，你我衣食无忧之余还可放心说话而不必恐惧，谁不愿意唱唱歌跳跳舞，散散步吹吹风，熙熙攘攘看人世繁华狗血八卦。可惜的是我们没有这样的奢侈。城门失火你我是池鱼，你要么奋力游走，要么协力引来活水。醉生梦死，最后只能被煮熟。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月06日 12:32 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11918016.md#1" target="_blank">颜丹：韩国公务员自杀与中共官员逃亡</a><br></h3>不少仁人志士早已预见，在这场新冠病毒祸害人类的历史大戏中，罪魁祸首中共只等着演完最后的这点戏份，就会被清算、淘汰了。遗憾的是，那些到现在还没能醒悟的中共官僚们，最终所面临的结局恐怕就只能是随中共陪葬、堕入万劫不复之地。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月06日 4:21 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11917982.md#1" target="_blank">戈壁东：判桂民海抓黎智英，中共武汉封城后全球封口？</a><br></h3>2月24日，在互联网传出武汉焚尸炉里惨叫、中共政府焚烧还未死亡的武肺患者的惊人消息的同时，另一条更惊人的消息传来：中共以”泄露国家机密罪”判了桂民海10年重刑，3天以后中共抓捕了黎智英。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月06日 2:26 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/20/3/5/n11917881.md#1" target="_blank">郑纯清：武汉弃儿得救歌</a><br></h3>武汉肺炎直冲肺，患者无不怕报废。
-仰赖科学去医院，人满为患敷衍对。
-电视宣传不收费，收费窗口排长队。
-好不容易见医生，双眉紧皱口罩灰。
-你一问他三摇头，方没药没咒也没。
-如今只能撞大运，撑不过去认倒楣。
-无奈万般找组织，答复亦让等床位。
-党说一切党领导，病毒哪听党指挥？
-非典隐瞒铸大错，为何重犯不改悔.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月06日 1:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/utljy2624/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/utljy2624/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/utljy2624/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/utljy2624/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/utljy2624/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
