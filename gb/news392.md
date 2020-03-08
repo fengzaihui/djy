@@ -39,10 +39,18 @@
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921938.md#1" target="_blank">胡少江：媒体战——蓬佩奥终于读懂了中国共产党</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921938.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/498335d2abdcdfd1426fb82d53784cd0-150x120.jpg" align ="left"></a>2月18日，美国国务院宣布将5家中国中央级的官方媒体驻美机构认定为“外国使团”并视为政府的一部分；本周一（3月2日），进一步宣布对这五家中国官方媒体实施在美雇员数量限制，要求他们将中国籍雇员的人数从原有的160人减少至100人。这个数量限制将于下周五（13日）生效。我相信上述措施一定会得到绝大多数普通中国人的欢迎，中国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 2:46 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921825.md#1" target="_blank">袁斌：武汉市民怒吼：假的，统统都是假的</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921825.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/page1-600x400-1-150x120.jpg" align ="left"></a>这绝对是一个令成千上万中国人震撼的视频。
 我说的是近日刷屏的中共副总理孙春兰视察武汉开元公馆小区的那个视频。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 1:42 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921613.md#1" target="_blank">【名家专栏】理性应对疫情 不要非理性恐慌</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921613.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1204216370-1200x904-150x120.jpg" align ="left"></a>随着新冠病毒肺炎（ COVID-19）蔓延全球，我们中的许多人都在纠结着是否应取消去佛罗里达的度假，或者取消到加勒比海的游轮旅行。当然，可能肯定的是世界要问题，得有了食物、水和卫生设施，让我们这些生活在西方的人就能够更好地抵御任何流行病的发生，无论是否存在这种大流行。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 11:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/6/n11921211.md#1" target="_blank">有感国内亲人的一句“请注意保护好自己”</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/6/n11921211.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/IMG_0666-e1583529773955.jpg" align ="left"></a>最近一位澳洲朋友给我发来一张和国内亲人短信来往的截图，看得我哭笑不得。
+<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11925133.md#1" target="_blank">因为少了一个垫圈 美国经济蒙受损失</a><br></h3>垫圈短缺不仅说明了中国经济的停滞不前﹐也反映出美国对这个已瘫痪的共产主义巨怪的依赖程度。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 3:10 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11925284.md#1" target="_blank">云鹤天：一七令·过眼云烟</a><br></h3>
 
-这位国内亲友说：“美国政府真的丧心病狂： 未经副总统彭斯许可任何科学家及医护工作者不能私自对外界透露关于疫情的最新消息。Which means（这意味着），要么美国医疗水平不行，要么就是瞒报了确诊数。美国在豪赌，赌注是全体美国普通人的性命。”.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 5:21 AM			</td></tr>
+昏。
+漫漫，红尘。
+朝纲乱，恶君臣。
+争名夺利，败坏人伦。
+堵天堂大路，开地狱之门。
+财万贯身外物，分毫难以留存。
+万里长城今犹在，不见当年筑城人。
+
+责任编辑：高义......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 3:06 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11925274.md#1" target="_blank">李春草：追责还是感恩？</a><br></h3>猪瘟专横肺疫传，防控不力生灵炭
 邪党到死毒方尽，红奴成灰泪始干
 人民常盼妖共改，甩锅但令人心寒
