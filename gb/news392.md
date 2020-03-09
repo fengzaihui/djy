@@ -35,8 +35,23 @@
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11923344.md#1" target="_blank">陈思敏：疫情追责 蒋超良马国强仕途轨迹惹关注</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11923344.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/15f313aa48040e9d_ttl7daylu8___-03-600x400-150x120.png" align ="left"></a>继2月13日不再担任湖北省委书记之后，蒋超良3月5日再卸一职，他辞去了湖北省人大常委会主任职务。在外界看来，蒋超良职务调整与湖北此前疫情防控不力直接相关。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月08日 4:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11922873.md#1" target="_blank">王友群：俄罗斯为何“隔离”中国人最严</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11922873.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/1411231522232546-600x400-150x120.jpg" align ="left"></a>中共党魁说，俄罗斯总统普京“是我最好的知心朋友”。这次武汉新冠肺炎疫情爆发后，普京总统领导的俄罗斯，对中国人采取了最严厉的“隔离”措施，主要体现在以下七个方面：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月08日 3:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11923097.md#1" target="_blank">石铭：中国再被列为“不自由”国家</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11923097.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/1808231139272378-600x400-150x120.jpg" align ="left"></a>愿国际社会及国际人权组织继续关注中国的人权状况，对造成人权恶化的中共政权及破坏人权的中共官员，依据《全球马格尼茨基人权问责法》实行严厉的制裁，以遏制人权状况的继续恶化，让生存在这个最“不自由”国家的苦难民众也向台湾、日本等那样拥有民主自由，早日脱离苦难，享有最基本的生存权。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月08日 12:44 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11922397.md#1" target="_blank">朱同：疫情冲击大 航空公司过紧日子</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11922397.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/2002092049392188-150x120.jpg" align ="left"></a>3月6日有媒体报导说，英国廉价航空公司“飞呗”（Flybe）宣布其进入破产接管程序。其因新冠病毒扩散带来的乘客量暴跌，在过去一周的航班预订量下降了近50%，虽也采取了一些危机处理措施，包括削减高管薪酬、冻结招聘和加薪计划以及向地面人员提供无薪休假等，但还是导致这家廉价航空公司运营难以为继，只能将所有航班停飞。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 8:34 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921717.md#1" target="_blank">疫情下 中共“盟友”朝俄如何对待中国</a><br></h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/7/n11921717.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1199134918-150x120.jpg" align ="left"></a>中共党媒强调“患难见真情”。在疫情下，朝鲜和俄罗斯这两个中共亲密“盟友”是如何对待中国和中国人的呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 6:18 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11924896.md#1" target="_blank">吴美莲：以WHO遭中共瘫痪为戒 慎防大外宣病毒</a><br></h3>武汉肺炎疫情在中国已达到难以控管的程度，但在病毒的星火仍可被扑灭的初期，中共却以隐匿当作防疫的准则，成为这场瘟疫席卷整个中土大地的主要原因。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 11:40 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/9/n11926101.md#1" target="_blank">伍新：谩骂王广发获封“先进” 我们有没有疏失</a><br></h3>疫情防控先进评，
+专家王广发获封。
+网络一下炸了锅，
+一片惊愕谩骂声。
+好像中共评先进，
+真为疫情之防控。
+其实人思非党谋，
+防控倾心于社情。
+维稳从来压一切，
+唯恐江山色褪红。
+可防可控广发言，
+蒙汗药撒益稳定。
+疫情防控人命事，
+党仅借疫逞威风。
+牺牲多少人无谓，
+对党有用即为功。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 11:37 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/9/n11926058.md#1" target="_blank">思域奔驰：没有共产党，才有新中国</a><br></h3>没有共产党才能有新中国，
 没有共产党才能有新中国，
 共产党，辛劳为权斗，
