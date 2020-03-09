@@ -882,5 +882,4 @@ Conisb.........<br><img align="bottom" src="https://www.epochtimes.com/assets/th
 心贪曾获昧良蛊，神悔将出正义牌。
 
 举世同仇摧鬼魅，共襄民主天下白。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 5:52 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/7/n11922210.md#1" target="_blank">专业摄影师：我下半辈子都会记住神韵！</a><br></h3>2020年3月6日晚，拥有40年经验的专业摄影师David Spearing携太太观看了神韵世界艺术团在加拿大埃德蒙顿的首场演出。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月07日 4:33 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/idmxtq2587/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/idmxtq2587/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/idmxtq2587/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://git.io/JesJV">下载翻墙软件</a>才能访问）</p>
