@@ -40,7 +40,7 @@
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11925355.md#1" target="_blank">理悟：中共甩锅难</a><br></h3>武汉肺炎大泛滥，巨灾夺命全球传。
 病毒源头在哪里？中共甩锅眼瞪圆。
 流氓耍尽不知羞，拙伎常演谎骗煽。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 3:41 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11925133.md#1" target="_blank">【名家专栏】因为少一垫圈 美经济蒙受损失</a><br></h3>垫圈短缺不仅说明了中国经济的停滞不前﹐也反映出美国对这个已瘫痪的共产主义巨怪的依赖程度。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 3:10 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11925133.md#1" target="_blank">因为少了一个垫圈 美国经济蒙受损失</a><br></h3>垫圈短缺不仅说明了中国经济的停滞不前﹐也反映出美国对这个已瘫痪的共产主义巨怪的依赖程度。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 3:10 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/bvzsw2079/djy/blob/master/gb/20/3/8/n11925284.md#1" target="_blank">云鹤天：一七令·过眼云烟</a><br></h3>
 
 昏。
