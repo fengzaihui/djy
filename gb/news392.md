@@ -19,7 +19,19 @@
 <tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11925239.md#1" target="_blank">【网海拾贝】世界欠中国一声感谢？无耻之尤！</a><br></h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11925239.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1198804646-1-600x400-1-150x120.jpg" align ="left"></a>在中国央视前主播呼吁中国就武汉肺炎向世界道歉后，美国FOX新闻台主播也要求中国正式道歉。但中国外交部指言论荒谬可笑，官媒更广传〈世界欠中国一声感谢〉的文章，力抗“中国欠世界一个道歉”之说，宣传中国的巨大牺牲和付出为全世界赢得宝贵时间，完全不提中国隐瞒疫情白白牺牲了多少中国民众、又让全世界为此付出何等代价。中国欠世界的岂.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 2:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11925177.md#1" target="_blank">袁斌：武汉书记要市民感恩总书记的醉翁之意</a><br></h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11925177.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/534cb8393acb8a9914eb65cf207d3019-600x400-2-150x120.jpg" align ="left"></a>中共武汉市委书记王忠林要市民感恩的话今天在微信朋友圈刷屏了！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 1:09 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11925112.md#1" target="_blank">宋善：报应不爽 恶徒难逃制裁</a><br></h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11925112.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/Untitled-17-600x400-1-150x120.jpg" align ="left"></a>二零二零年二月二十八日，河南省周口市副市长刘建武突发心梗死亡，年仅四十五岁，他正式履职仅仅二天，成了中共最短命的副市长。从二零一四年二月至二零二零年二月，刘建武整整六年担任新郑市市长、书记，是新郑市迫害法轮功的第一责任人。神目如电，善恶报应丝毫不差。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 12:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11924131.md#1" target="_blank">强迫武汉人民感恩 中共邀功网络骂翻</a><br></h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11924131.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1205024971-150x120.jpg" align ="left"></a>作家方方在日记里写道，“政府，请你们收起傲慢，谦卑地向你们的主人——以百万而计的武汉人民感恩。”“接下来，政府还要尽快向人民谢罪。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月08日 8:55 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/10/n11928496.md#1" target="_blank">理悟：中共“拐点”到了</a><br></h3>流氓耍尽了
+恶事做绝了
+假恶暴到顶了
+间痞控邪透了
+谎骗煽至极了
+反人类疯狂了
+老虎官衙里满了
+苍蝇铺天盖地了
+屠刀杀人血流成河了
+活摘器官卖钱成瘾了
+被法轮功三退大潮退垮了
+打压真善忍把自己打趴了
+伟光正扒皮了......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 11:00 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/9/n11927637.md#1" target="_blank">千瑞：大法是拯救人类的唯一法门</a><br></h3>朋友，你可真确——  千万里的神州南朔，  猪瘟，鼠疫，武汉肺炎……因何而虐？  是因为，中共作下万古的罪恶。  中共是亘古未有的祸害，......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 12:30 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/8/n11924896.md#1" target="_blank">吴美莲：以WHO遭中共瘫痪为戒 慎防大外宣病毒</a><br></h3>武汉肺炎疫情在中国已达到难以控管的程度，但在病毒的星火仍可被扑灭的初期，中共却以隐匿当作防疫的准则，成为这场瘟疫席卷整个中土大地的主要原因。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 11:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/idmxtq2587/djy/blob/master/gb/20/3/9/n11926101.md#1" target="_blank">伍新：谩骂王广发获封“先进” 我们有没有疏失</a><br></h3>疫情防控先进评，
