@@ -36,7 +36,17 @@
 <tr><td><h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11927779.md#1" target="_blank">李承鹏：你表演正能量时能不能学着体面些</a><br></h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11927779.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/ESroxK-VAA0qd40-150x120.jpeg" align ="left"></a>中共吹嘘自己应对疫情的“大国战疫”一书遭炮轰后刚刚下架，中共国家广电总局，国家卫健委等又开始筹拍宣传抗疫连续剧《在一起》。知名编剧六六加入该剧的创作，在讲述参与该剧的缘起时，引发多人不满。知名作家、时评人在微信发文讽刺，但很快被全文删除......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 2:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11927598.md#1" target="_blank">张林：北京贼喊捉贼、欲盖弥彰！</a><br></h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11927598.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/000_1OG8SF-600x400-450x300-1-150x120.jpg" align ="left"></a>最近一段时间，中共中央宣传部逐渐改变关于武汉肺炎宣传工作的基调，从开始反对世人称呼新冠病毒为武汉肺炎或中国病毒，到胡说新冠病毒不确定起源，到近几天诬蔑新冠病毒起源于美国，甚至暗示其是美国生化武器！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 12:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11926932.md#1" target="_blank">【网海拾贝】：政府，请你们收起傲慢</a><br></h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11926932.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/15f98dff2451178c_ttl7day2X2_15f9891412a1d6a7_ttl7dayel9_XWKD0603.2020-04-600x400-1-150x120.jpg" align ="left"></a>疫情到今天，基本得到控制，这真的是需要感恩的。但是，站出来的感恩者应该是政府。政府首先要向武汉几千个死者家属感恩，他们在亲人枉遭横祸，连送终和办丧事机会都没有的情况下，强忍悲痛，克制自己，几乎无人吵闹；政府要向躺在医院里苦苦与死神抗争的五千多重症病人感恩，是他们的顽强坚持，让死亡名单数字增长很慢。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 11:40 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11926517.md#1" target="_blank">观雨堂主：2020，中国将有剧变</a><br></h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/9/n11926517.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/bbe6a86155e6257028c3a9af884556fe-150x120.jpg" align ="left"></a>2020年帷幕刚一拉开，中共国即遭遇武汉病毒肆虐，致使武汉市、湖北省乃至整个中国陷入前所未闻的巨大恐慌，整个世界也因此惊恐万状。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月09日 7:14 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/11/n11931792.md#1" target="_blank">关乐：浪淘沙·武汉肺炎</a><br></h3>瘟疫起江边，
+瞒照传延。
+天惩岂有避风湾，
+梦里小康金索绊，
+未醒难安。
+
+天把共魔歼，
+救度人间。
+顺天除恶肃毒源，
+三退正心诚向善，
+生路长宽。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月11日 2:26 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/cdzvd231/djy/blob/master/gb/20/3/10/n11928496.md#1" target="_blank">理悟：中共“拐点”到了</a><br></h3>流氓耍尽了
 恶事做绝了
 假恶暴到顶了
