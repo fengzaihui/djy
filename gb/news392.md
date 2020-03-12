@@ -33,9 +33,17 @@
 2月26日，为.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 4:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929089.md#1" target="_blank">袁斌：中共为何叫停武汉当局的感恩教育？</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929089.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/e0df629a43b06a8fa77223739d1cfad7-150x120.jpg" align ="left"></a>3月6日，中共武汉市委书记王忠林在武汉肺炎疫情防控会议上部署，要对市民开展感恩教育，“感恩总书记、感恩共产党，听党话、跟党走……”。这一消息第二天被《长江日报》等党媒报导后，大陆网民万炮齐发，将王忠林骂的狗血喷头。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 2:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/9/n11928381.md#1" target="_blank">明清：中共为何一再鼓吹其“抗疫功绩”</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/9/n11928381.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/page2-600x400-1-1-150x120.jpg" align ="left"></a>2月26日，新华社、央视等中共官媒高调宣布，由中共宣传部、国务院新闻办公室指导，五洲传播出版社和人民出版社联合紧急编辑制作的《大国战疫》将于近日出版。新华社称，该书从200余万字中国主流媒体公开报道中选取相关素材，共10万余字。28日，中共外交部发言人华春莹在推特宣传称，此书是“第一本跟进式介绍中国疫情防控阶段性工作的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 2:32 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11928978.md#1" target="_blank">谢燕益：释放政治犯特赦刑事犯致全国人大法律意见书</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11928978.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/09/XIEYANYI-600x400-1-150x120.jpg" align ="left"></a>全国人大常委会并栗战书委员长：
-
-我是中国公民谢燕益，前一段时期本人通过官方发布的信息获知，2020年 2月21日，中国山东、浙江以及湖北三省共有5所监狱报告新型冠状病毒肺炎疫情其中确诊达500例以上。嗣后又有长安剑及澎湃新闻2月22号报导，监狱疫情发生后，中央政法委要求按照战时状态严肃战时纪律，各级公安机关和司法.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 2:02 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/12/n11934602.md#1" target="_blank">金浴凤：演员：可以喊了吗？</a><br></h3>为了迎接首长的莅临
+我们全市人民，党政军民学
+内心虔诚祷告
+让今天风调雨顺，阳光普照
+我们全体网路人员
+让大数据和谐有序清零
+我们全体清洁队伍
+把马路宾馆全方位无死角消毒
+我们全体警职人员
+分占居民住宅
+控制住一切潜在危险份子......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月12日 2:08 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/11/n11933235.md#1" target="_blank">王赫：武汉病毒长眼与天灭中共</a><br></h3>约两年前，本人以（美）尼克松、（日）田中角荣、（西德）勃兰特、（英）希斯等人为例，撰写了“西方大国领袖与中共建交后多遭厄运”一文，暗示冥冥之中自有天意。无论是一人之休咎还是一国之兴衰，端看其是否顺承天意——这在武汉肺炎瘟疫中，尤其彰显。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月12日 2:15 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/11/n11931812.md#1" target="_blank">宇心：中共抛弃孙杨为何由《检察日报》发声？</a><br></h3>大家都知道孙杨已经被中共抛弃，中共完成新一轮做什么臭什么，做什么都是自剥画皮的表演。目前中共的各种舆论平台上，挺孙杨的大都偃旗息鼓，粉红们晃晃无绪纷乱的空壳脑瓜，无奈地收了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月11日 3:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/11/n11931792.md#1" target="_blank">关乐：浪淘沙·武汉肺炎</a><br></h3>瘟疫起江边，
