@@ -27,19 +27,11 @@
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11930425.md#1" target="_blank">吴惠林：回归传统是正途</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11930425.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/AM3A6891-1-600x390-1-600x390-150x120.jpg" align ="left"></a>不久前，朋友Line传来一则今昔对比、耐人寻味的打油诗短文，列出21项50年前和50年后，亦即1961年之前和之后台湾社会（也应是人类社会）的对比现象。全文如下：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月11日 12:37 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929950.md#1" target="_blank">武汉疫情：中共特别“透明” 谁能核实？</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929950.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/page2-600x400-1-1-1-150x120.jpg" align ="left"></a>真心祈盼，在这新的一波考验面前，朋友的父母，我的母亲，还有其他和他们一样身在中国大陆的朋友们，不再抱有幻想，守住理性和善良；记住中共不是中国，不再被中共玩弄于股掌。说句笑话，也许在我们第一次投生中土为人的时候，共产党这个西来幽灵可能连病毒还不是呢。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 9:29 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929190.md#1" target="_blank">家庭医生：请勿前往诊所要求检测新冠病毒</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929190.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/49530315718_d43ceca61a_k-1-150x120.jpg" align ="left"></a>随着新型冠状病毒疾病的全球播撒，目前需要进行检测的病例数量大大增加。在美国，由于疫情的发展早已经超出疾病预防和控制中心CDC检测的承载能力，CDC已经下放权限，让有能力的私人和商业实验室展开相关的检测工作。纽约州市已经得到CDC授权，可以自行开展新型冠状病毒的检测。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 7:24 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/12/n11934776.md#1" target="_blank">吐为快：春日杂谈</a><br></h3>党想独裁官求贪，邪教洗脑五毛残
-若非运动中喝血，会向物欲里寻欢
+<tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/9/n11928102.md#1" target="_blank">王友群：中共内斗激烈即将垮台的十大迹象</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/9/n11928102.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/1-179-1-150x120.jpg" align ="left"></a>随着大瘟疫蔓延，国内外形势急剧变化，十大迹象表明：中南海内斗激烈，中共即将垮台。
+一、“低级红高级黑”再起
+武汉人在受难，湖北人在受难，数亿中国人被封城、封市、封乡、封村、封路、封新闻、封网络等，像关在监狱里一样受煎熬，从北京到武汉，竟然再次出现各种诡异的吹捧习近平的声音，导致海内外骂声一片。
 
-谎言暴力双飞翼，携带党贵掠权力
-解得红朝邪三昧，一时春风马蹄疾
-
-蝠翅款款华南旋，百步亭赴万家宴
-多情只有江城月，犹照亡人吹哨怨
-
-汉水滔滔鹦鹉泣，三镇疫劫冤魂聚
-无耻最是解放园，颂歌阵阵马屁急
-
-东西封城尽蒙面，中外停飞防肺炎.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月12日 4:40 PM			</td></tr>
+2月26日，为.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 4:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/12/n11934647.md#1" target="_blank">振玉：满江红?中共恶于疫</a><br></h3>恶疫长瞒，
 称不会、
 人中传染。
