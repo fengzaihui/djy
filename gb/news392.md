@@ -32,7 +32,14 @@
 
 2月26日，为.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 4:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929089.md#1" target="_blank">袁斌：中共为何叫停武汉当局的感恩教育？</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/10/n11929089.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/e0df629a43b06a8fa77223739d1cfad7-150x120.jpg" align ="left"></a>3月6日，中共武汉市委书记王忠林在武汉肺炎疫情防控会议上部署，要对市民开展感恩教育，“感恩总书记、感恩共产党，听党话、跟党走……”。这一消息第二天被《长江日报》等党媒报导后，大陆网民万炮齐发，将王忠林骂的狗血喷头。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 2:48 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/9/n11928381.md#1" target="_blank">明清：中共为何一再鼓吹其“抗疫功绩”</a><br></h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/9/n11928381.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/page2-600x400-1-1-150x120.jpg" align ="left"></a>2月26日，新华社、央视等中共官媒高调宣布，由中共宣传部、国务院新闻办公室指导，五洲传播出版社和人民出版社联合紧急编辑制作的《大国战疫》将于近日出版。新华社称，该书从200余万字中国主流媒体公开报道中选取相关素材，共10万余字。28日，中共外交部发言人华春莹在推特宣传称，此书是“第一本跟进式介绍中国疫情防控阶段性工作的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月10日 2:32 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/12/n11934647.md#1" target="_blank">振玉：满江红?中共恶于疫</a><br></h3>恶疫长瞒，
+称不会、
+人中传染。
+频惑众，
+完全可控，
+信无风险。
+几个曝光医护惨？
+万人宴聚游园敢。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月12日 2:19 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mmvvcl267/djy/blob/master/gb/20/3/12/n11934602.md#1" target="_blank">金浴凤：演员：可以喊了吗？</a><br></h3>为了迎接首长的莅临
 我们全市人民，党政军民学
 内心虔诚祷告
