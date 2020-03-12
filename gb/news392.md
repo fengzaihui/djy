@@ -28,7 +28,17 @@
 <tr><td><h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930564.md#1" target="_blank">周晓辉：习近平到武汉难见真相 莫如做一件事</a><br></h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930564.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/Unknown-1-600x400-1-150x120.jpg" align ="left"></a>在这样的体制下，未来再面对灾难时，中共不会有任何的改变，还注定将给人民带来巨大的伤害。习近平若想解决根本问题，避免给中共陪葬，唯一的选择就是抛弃这样的体制，改弦更张。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月11日 3:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930653.md#1" target="_blank">何清涟：中国模式的意淫 各国防疫抄作业？</a><br></h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930653.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/3-12-150x120.jpg" align ="left"></a>中国疫情据说现在正在下降，只是复工困难重重。有点独立思考能力的中国人均知这是疫情数据造假。北京带着世卫组织访华专家组逛了一圈防疫示范单位之后，其组长布鲁斯·艾尔沃德博士(Bruce Aylward)感觉自己已经登上过巅峰——看到了应对的可能性。表扬中国：“中国的抗疫方式是可以复制的，但需要速度、资金、想像力和政治勇气.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月11日 2:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930475.md#1" target="_blank">【有冇搞错】世卫搞什么鬼</a><br></h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930475.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/WhatsApp-Image-2020-03-10-at-9.49.07-AM-150x120.jpeg" align ="left"></a>今年武汉肺炎一开始，世界卫生组织的公开讲话，就一直和中国政府保持一致。早期说可防可控，没有人传人。等到疫情传出来了，世卫又说不要发旅行禁令，不要反应过度，等到疫情传到各国了，又开始说中国表现得好，应该向中国学习。所以，中国网民说，世卫组织WHO，根本就是武汉卫生组织，还有人把总干事谭德塞教成了谭书记。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月11日 1:05 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930425.md#1" target="_blank">吴惠林：回归传统是正途</a><br></h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/10/n11930425.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/AM3A6891-1-600x390-1-600x390-150x120.jpg" align ="left"></a>不久前，朋友Line传来一则今昔对比、耐人寻味的打油诗短文，列出21项50年前和50年后，亦即1961年之前和之后台湾社会（也应是人类社会）的对比现象。全文如下：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月11日 12:37 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/12/n11935157.md#1" target="_blank">伍新：踏莎行?习近平赴武汉</a><br></h3>恶疫涛延①，
+桃花瓣谢。
+急摘桃子将枝撅。
+打前站喊假纷纷，
+改编假喊生佯客。
+
+后浪扬波②，
+桃仁虫瘪，
+掷完孤注赌如何？
+小康梦碎党赔光，
+楚歌四面红朝灭。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月12日 5:54 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/pyaar2355/djy/blob/master/gb/20/3/12/n11934776.md#1" target="_blank">吐为快：春日杂谈</a><br></h3>党想独裁官求贪，邪教洗脑五毛残
 若非运动中喝血，会向物欲里寻欢
 
