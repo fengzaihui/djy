@@ -2,7 +2,7 @@
 <tr><td><h3><a href="https://github.com/qkhlv2383/djy/blob/master/gb/20/3/13/n11936965.md#1" target="_blank">【翻墙必看】中共犯六大致命错致瘟疫失控</a><br></h3><a href="https://github.com/qkhlv2383/djy/blob/master/gb/20/3/13/n11936965.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1198072775-320x200.jpg" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
 
 1.中共发言人赖美军带疫情到武汉 国际哗然
-中共外交部发言人周四（3月12日）转发中共官媒《环球时报》编译的美国国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月13日 7:00 PM					</td></tr>
+中共外交部发言人周四（3月12日）转发中共官媒《环球时报》编译的美国国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月13日 7:40 PM					</td></tr>
 <tr><td><h3><a href="https://github.com/qkhlv2383/djy/blob/master/gb/20/3/13/n11937422.md#1" target="_blank">《新京报》前社长戴自更涉受贿罪被逮捕</a><br></h3><a href="https://github.com/qkhlv2383/djy/blob/master/gb/20/3/13/n11937422.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2013/01/1301091502252583-150x120.png" align ="left"></a>中共《新京报》前社长戴自更涉嫌受贿罪被逮捕。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月13日 2:24 PM							</td></tr>
 <tr><td><h3><a href="https://github.com/qkhlv2383/djy/blob/master/gb/20/3/12/n11936484.md#1" target="_blank">中共发言人赖美军带疫情到武汉 国际哗然</a><br></h3><a href="https://github.com/qkhlv2383/djy/blob/master/gb/20/3/12/n11936484.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/000_1O94MI-600x400-150x120.jpg" align ="left"></a>中共外交部发言人周四（3月12日）转发中共官媒《环球时报》编译的美国国会听证视频片段，再次散布阴谋论说“美军把疫情带到武汉”，引发国际社会哗然。
 
