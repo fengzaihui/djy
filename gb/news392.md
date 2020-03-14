@@ -32,7 +32,7 @@
 至今台湾只有49个确诊病例，其中，23例为输入病例，17例已解除隔离，1例死亡。按照每十万人口的发病率计算，台湾最低，只有0.2。
 
 台湾之所以能在中共重压.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月13日 1:10 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/sczbaw221/djy/blob/master/gb/20/3/13/n11936987.md#1" target="_blank">任世豪：中共再添人权负评</a><br></h3><a href="https://github.com/sczbaw221/djy/blob/master/gb/20/3/13/n11936987.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/1-50-150x120.jpg" align ="left"></a>三月十一日，美国国务院发布《2019年国家人权实践报告》（2019 Country Reports on Human Rights Practices，简称《2019年人权报告》），这是美国第44份人权年度报告，并多次提到中共持续迫害法轮功与活摘学员人体器官。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月13日 12:23 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/sczbaw221/djy/blob/master/gb/20/3/14/n11940764.md#1" target="_blank">陆言：大庆地区武汉肺炎病例零增长的背后</a><br></h3>武汉肺炎疫情爆发后，黑龙江省大庆地区疫情严重，肇州县和让胡路区成为重灾区，城区、县镇、乡村全部封锁或半封锁；上上下下，人心惶惶。但是，官方的疫情数字却与此相反，显得极为“稳定”。至3月12日，大庆累计确诊病例26人，死亡病例1人，康复出院23人。更为诡异的是，从2月20日开始，大庆地区确诊病例、疑似病例和死亡病例连续2.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 4:29 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/sczbaw221/djy/blob/master/gb/20/3/14/n11940579.md#1" target="_blank">云鹤天：疫情蔓延对联</a><br></h3>
 
 武肺全球蔓延一带一路是主线
