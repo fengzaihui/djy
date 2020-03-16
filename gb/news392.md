@@ -30,15 +30,6 @@
 <tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940759.md#1" target="_blank">王友群：王沪宁敢让黄燕玲上央视露面吗？</a><br></h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940759.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/wang-1-1-450x300-150x120.jpg" align ="left"></a>3月10日，大陆《人物》杂志3月号专访武汉中心医院急诊科医生艾芬的文章《发哨子的人》，被全网删除。
 难道真的是害怕被揭老底？
 去年12月30日，艾芬拿到一份不明肺炎病人的病毒检测报告，她用红色圈出“SARS冠状病毒”字样。当大学同学问起时，她将这份报告拍下来传给这位同是医生的同学。当晚，这份报告传遍武汉的医生圈，转.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 4:21 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/16/n11944211.md#1" target="_blank">关乐：外甩锅反引聚焦</a><br></h3>习从武汉返回京，世卫宣疫大流行。
-紧急状态川普令，部署治疗欧航停。
-同时颁布祈祷日，动员举国求神明。
-红朝纷纷数归零，连武汉都忙复工。
-归零自知亦自欺，复工不知成几成。
-虽置人民命不顾，自保还是底不清。
-确诊与否数能改，疫情加剧不可控。
-隐瞒疫情同谋杀，民怨封城蒸沸腾。
-向来一味杀与骗，一步不蒙就丢命.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月16日 5:43 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/16/n11944197.md#1" target="_blank">理悟：中共与冠毒共舞</a><br></h3>春深已久，
 无心山花开烂漫。
 只闻见，
@@ -81,5 +72,14 @@
 党妈被围懵。
 网警有累死，
 寡终不敌众。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 4:48 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940579.md#1" target="_blank">云鹤天：疫情蔓延对联</a><br></h3>
+
+武肺全球蔓延一带一路是主线
+
+文胆大国战疫十全十美不要脸
+
+横批：真戏假演
+
+责任编辑：高义......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 3:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/tjvrql262/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/tjvrql262/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/tjvrql262/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tjvrql262/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/tjvrql262/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
