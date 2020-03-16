@@ -26,10 +26,23 @@
 <tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940858.md#1" target="_blank">方华：在中国，良知开始彰显他的力量</a><br></h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940858.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/FotoJet-3-600x400-1-1-150x120.jpg" align ="left"></a>继李文亮医生因感染新冠病逝引发舆论风潮之后，3月10日《人物》杂志的一篇专访《发哨子的人》再一次在中国互联网上掀起巨浪。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 7:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940990.md#1" target="_blank">周晓辉：北京知道病毒来源 川普话外音给习听</a><br></h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940990.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/01-2-600x400-2-1-2-2-1-150x120.jpg" align ="left"></a>而如果习听懂了川普的话外音，中止甩锅操作，并为由武汉源起的病毒扩散向中国人民和世界人民道歉，公开疫情真相，真心与世界合作，或许其处境还有一丝转机。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 6:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940905.md#1" target="_blank">张菁：与中共类似 伊朗当局靠欺骗和暴力维稳</a><br></h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940905.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/000_1O51TT-600x400-1-150x120.jpg" align ="left"></a>中共和伊朗都是“政教合一”的独裁政权，从意识形态上都秉持为了自身统治而维稳的对内强硬政策。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 6:40 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940764.md#1" target="_blank">陆言：大庆地区武汉肺炎病例零增长的背后</a><br></h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940764.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/page1-600x400-2-150x120.jpg" align ="left"></a>武汉肺炎疫情爆发后，黑龙江省大庆地区疫情严重，肇州县和让胡路区成为重灾区，城区、县镇、乡村全部封锁或半封锁；上上下下，人心惶惶。但是，官方的疫情数字却与此相反，显得极为“稳定”。至3月12日，大庆累计确诊病例26人，死亡病例1人，康复出院23人。更为诡异的是，从2月20日开始，大庆地区确诊病例、疑似病例和死亡病例连续2.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 4:29 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940759.md#1" target="_blank">王友群：王沪宁敢让黄燕玲上央视露面吗？</a><br></h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/14/n11940759.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/wang-1-1-450x300-150x120.jpg" align ="left"></a>3月10日，大陆《人物》杂志3月号专访武汉中心医院急诊科医生艾芬的文章《发哨子的人》，被全网删除。
-难道真的是害怕被揭老底？
-去年12月30日，艾芬拿到一份不明肺炎病人的病毒检测报告，她用红色圈出“SARS冠状病毒”字样。当大学同学问起时，她将这份报告拍下来传给这位同是医生的同学。当晚，这份报告传遍武汉的医生圈，转.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月15日 4:21 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/16/n11944542.md#1" target="_blank">苦胆：倒打一耙 反咬一口</a><br></h3>经济形势堪忧，
+武汉肺炎挠头。
+党国传出病毒，
+一洲接染一洲。
+疫情日趋危急，
+全球都在咳嗽。
+生化武器研制，
+中共蓄谋已久，
+不戴有色眼镜，即能将此看透。
+
+世界正在追究，
+北京反咬一口，
+突向美国甩锅，
+山姆大叔怒吼。
+红魔嫁祸于人，
+积业练成老手。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月16日 8:27 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/16/n11944284.md#1" target="_blank">言直：“大国战疫”与最后的表演</a><br></h3>在世界的舞台上，一只赤魔，赤身裸体的恶魔，在进行着疯狂的最后的表演。它丑恶的躯体上爬满了苍蝇蚊子，沾满了臭虫虱子，它不断地向台下世界各国的观众散发着臭气，喷射著有时还略有带香味甜味的毒气。不少观众被熏倒毒倒在地，大家只好都戴起了口罩。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月16日 8:20 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tjvrql262/djy/blob/master/gb/20/3/16/n11944211.md#1" target="_blank">关乐：外甩锅反引聚焦</a><br></h3>习从武汉返回京，世卫宣疫大流行。
 紧急状态川普令，部署治疗欧航停。
 同时颁布祈祷日，动员举国求神明。
