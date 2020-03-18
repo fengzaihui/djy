@@ -2,6 +2,8 @@
 <tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11948542.md#1" target="_blank">王友群：“中国病毒”实为“中共病毒”</a><br></h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11948542.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/7221d3b19a1f6ed92a9672d7a30cd4b3-600x400-320x200.jpg" align ="left"></a>3月16日晚，美国总统川普发推文说：“美国将强力支持那些受中国病毒冲击大的行业，如航空业和其它行业。我们将比以往更加强大。”这则推文中，川普没有用“新冠病毒”、“武汉病毒”等，而直接用了“中国病毒”这个词。
 
 3月17日，有记者问：“中国和其他人批评您使用‘中国病毒’一词，您对此怎么看？您还会继续使用这个词吗？”川.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月18日 10:01 AM	</td></tr>
+<tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11949052.md#1" target="_blank">【网海拾贝】中国疫情已过去乎？</a><br></h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11949052.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/ab2b64440ffd9cbbddb68a22ef711b0e-1-150x120.png" align ="left"></a>中国国家卫健委发言人说，湖北除武汉以外，所有地市已连续一周无新增确诊病例，因此总体上“我国本轮疫情流行高峰已经过去”。既然过去，北京两会是不是应该召开了？怎么一点动静都没有？为什么仍然不见有领导人公开活动的消息？什么时候北京宣布恢复举行两会，那就意味中国的疫情真的过去了。因为老百姓的命可以不顾，自己和高官的命还是最重要.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月18日 3:02 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11948963.md#1" target="_blank">洪达：从记者造谣获表彰 看中共颠倒黑白</a><br></h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11948963.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/6a64f434bbffbcc5efc2aaf257eba7e7-600x400-1-150x120.jpg" align ="left"></a>三月八日，中共国务院举行记者会，表彰官媒新华社记者廖君，称她“作为疫情防控一线的巾帼奋斗者”与“逆行而上的女记者”。去年底，武汉肺炎“吹哨人”李文亮医师率先披露疫情遭到中共当局诬指“造谣”，而首先报导此新闻的正是廖君。记者造谣报导却获中共官方高调表彰，引发中国大陆网民不满，讥讽她是“最成功的墙头草”、“祸国殃民的典范”.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月18日 2:19 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/17/n11948223.md#1" target="_blank">夏小强：中共正在为宣布疫情爆发做舆论铺垫</a><br></h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/17/n11948223.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/download-5-150x120.jpg" align ="left"></a>预计未来，随着可能出现的疫情再次在中国各地爆发，一旦中共无法隐藏掩盖，中共会宣称，是这些归国者造成了疫情的再次爆发，中共如今正在进行并完成这样的操作和舆论铺垫。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月18日 1:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11948430.md#1" target="_blank">袁斌：封杀诺奖得主 中共再现变态报复狂丑态</a><br></h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/18/n11948430.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/101007224213-600x400-150x120.jpg" align ="left"></a>今天有朋友问我：“如果莎士比亚、但丁、歌德、巴尔扎克、托尔斯泰、契科夫、福楼拜等大作家们还活着，对中共掩盖疫情导致新冠肺炎蔓延祸害全世界提出尖锐批评的话，他们的书会不会被中共下架？”我说肯定会，百分百会。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月18日 12:42 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/17/n11945872.md#1" target="_blank">【疫情透视】主帅球星染病 英超停赛之解析</a><br></h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/17/n11945872.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/Arsenal-150x120.jpg" align ="left"></a>3月13日，英格兰足球超级联赛官方宣布，因受疫情影响，英超联赛暂停比赛至4月3日。这次前所未有的停赛，或许和英格的“中国梦”有些关联。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月18日 11:39 AM			</td></tr>
@@ -52,25 +54,5 @@
 确诊与否数能改，疫情加剧不可控。
 隐瞒疫情同谋杀，民怨封城蒸沸腾。
 向来一味杀与骗，一步不蒙就丢命.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月16日 5:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/16/n11944197.md#1" target="_blank">理悟：中共与冠毒共舞</a><br></h3>春深已久，
-无心山花开烂漫。
-只闻见，
-哀鸿遍野，
-瘟疫肆虐，
-冠毒飞传。
-两耳冤魂哭号声，
-阴森凄惨夜武汉。
-更闻阵阵虎狼吼，
-恶狗狂吠显凶悍。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月16日 5:28 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/20/3/16/n11944043.md#1" target="_blank">海网：点绛唇?留学生回大陆躲瘟疫求救</a><br></h3>梦绕魂合，
-留洋依旧猩红色。
-疫情宣缓，
-信党回来躲。
-
-落地方觉，
-怀抱冰吸热。
-忙求救，
-此时恼恨，
-谁解心头索？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月16日 5:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/mjlii2676/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/mjlii2676/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/mjlii2676/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/mjlii2676/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mjlii2676/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/mjlii2676/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
