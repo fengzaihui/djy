@@ -11,13 +11,14 @@
 <tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/18/n11951145.md#1" target="_blank">【最新疫情3.19】川普签署第二阶段援助计划</a><br></h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/18/n11951145.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/000_1Q02RS-150x120.jpg" align ="left"></a>3月19日全球新冠疫情最新情况：
 
 中共肺炎全球感染分布图及美国疫情地图请点击这里
+
+澳洲及新西兰禁所有非公民及非居民入境
 川普签署第二阶段援助计划
 欧洲央行宣布7,500亿欧元刺激方案
 美国在全球大多数国家暂停签证服务
  加州14县封城 25%居民受到影响
  澳大利亚航空暂停国际航班到五月底
- 川普将派海军医疗舰前往纽约
- 加拿大总理宣布.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 3:51 PM			</td></tr>
+ 川.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 3:51 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/19/n11953182.md#1" target="_blank">(G)I-DLE准备4月初回归乐坛 MV已拍摄完毕</a><br></h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/19/n11953182.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/200112015157100707-150x120.jpg" align ="left"></a>韩媒“news1”今日（19日）报导，韩国人气女团(G)I-DLE确定将于4月初以新作回归乐坛，目前她们正在练习新歌。对此，经纪公司CUBE娱乐向多家韩媒证实，(G)I-DLE确实正在以4月初回归乐坛为目标在做准备。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 3:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/19/n11953000.md#1" target="_blank">澳洲总理宣布关闭边界 非本国居民不得入境</a><br></h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/19/n11953000.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/20200319-Chi-Jin-Scott-Morrison-150x120.jpg" align ="left"></a>周四，澳洲总理莫里森宣布，澳洲将从3月20日（周五）晚9点起关闭边境，除澳洲公民和永久居民外，所有外国人不得入境。
 
@@ -796,8 +797,9 @@ KID一回归节目，就被规定以徒步的方式，从南投走回位于台�
 
 该法院首席法官Kevin C. Brazile通知洛县法官：未来30天.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月17日 8:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/16/n11945652.md#1" target="_blank">【美股瞭望】VIX恐慌指数达83.56 史上次高</a><br></h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/16/n11945652.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/12/247e7cf3d9f285263addcee6ecb4feba-150x120.jpg" align ="left"></a>在美联储突然宣布史上最大幅的降息四码，和祭出7,000亿美元量化宽松后，美股周一（16日）却创下史上最大跌点，道指暴跌2,997点（或12.93%），代表市场波动的VIX恐慌指数飙到83.56，超过2008年金融风暴高峰的80.86，史上仅次于1987年股灾的89.53。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月17日 8:27 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/17/n11945688.md#1" target="_blank">网购食物激增 送货员忙不停</a><br></h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/17/n11945688.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/image3-150x120.jpg" align ="left"></a>3月15日（周日），白宫再度召开记者会通报美国疫情，会上川普总统表示，美国各大零售店的货源充足，大众不必过度采购，这阵囤积风潮会过去。同日，洛杉矶市市长贾西提（Eric Garcetti）也与洛杉矶市警局共同呼吁，民众勿恐慌性抢购、囤积食品，洛杉矶地区食品资源充足，水源供应清洁，可安全饮用。但是，网购食物还是出现大幅度.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月17日 8:16 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/16/n11945313.md#1" target="_blank">中共肺炎疫情下 自我隔离者须知</a><br></h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/16/n11945313.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1212639721-150x120.jpg" align ="left"></a>对某些人来说，自我隔离听起来可能很可怕，但公共卫生专家认为，隔离是遏制中共肺炎病毒传播的关键。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月17日 8:13 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/19/n11953575.md#1" target="_blank">吐为快：妖共的最后手段</a><br></h3>梁柱腐朽倾红楼，初心败露罪何赎；
+二十四字难圆谎，挟病毒以令全球。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 4:19 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/19/n11953551.md#1" target="_blank">良典：诉共大潮与审江联盟</a><br></h3>去年，美国司法部起诉了中共的爪牙——华为；今年，美国民众则直接起诉了邪恶的中共当局。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 4:13 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/onzhi266/djy/blob/master/gb/20/3/19/n11953452.md#1" target="_blank">林泉：法制成就民主 有规矩才能成方圆</a><br></h3>中共瘟疫满球传，为害众邻借谎言。
 绅士不知地痞恶，纯良轻信鬼婆贤。
 放毒随后甩锅到，施害紧接索谢联。
