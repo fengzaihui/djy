@@ -35,7 +35,7 @@
 <tr><td><h3><a href="https://github.com/jbnpp2467/djy/blob/master/gb/20/3/18/n11951125.md#1" target="_blank">夏林：抗共防疫 祝福台湾</a><br></h3>在中共隐瞒烈性传染病--中共病毒在中国的传播，导致现在中共病毒瘟疫在全世界肆虐之时，有一个非常突出的现象，吸引了世人的注意，那就是，与中国大陆只有一海之隔的台湾，疫情被控制得很好，而且在最短时间内建立了口罩工厂，日产千万片，源源不断地满足台湾民众的防御需求。
 
 台湾防疫奇迹不仅吸引世界上众多主流媒体写了超过400篇.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 7:00 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/jbnpp2467/djy/blob/master/gb/20/3/18/n11950783.md#1" target="_blank">刘书庆：新冠肺炎“集中隔离费用自理”问题</a><br></h3>最近，各地开始复工了，有很多地方对外地复工人员，要求14天的集中隔离期。出于公共安全的担忧，政府要求集中隔离，有一定正当性。但集中隔离期的费用承担问题，就凸显出来了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 4:20 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/jbnpp2467/djy/blob/master/gb/20/3/18/n11950783.md#1" target="_blank">刘书庆：中共肺炎“集中隔离费用自理”问题</a><br></h3>最近，各地开始复工了，有很多地方对外地复工人员，要求14天的集中隔离期。出于公共安全的担忧，政府要求集中隔离，有一定正当性。但集中隔离期的费用承担问题，就凸显出来了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 4:20 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jbnpp2467/djy/blob/master/gb/20/3/18/n11950309.md#1" target="_blank">宇心：美国应该让赵立坚等造谣诬陷者付出代价</a><br></h3>中共忧恐于自己覆灭的命运，在当下全球疫情呈现胶着和变动，人民质疑反对声浪高涨，内斗激烈之时，比以往任何时候都重视宣传洗脑，甩锅造谣，把国内疫情的放缓当成自己的战绩，把国际的疫情发展当成装扮救世主的机会。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 12:46 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jbnpp2467/djy/blob/master/gb/20/3/18/n11949334.md#1" target="_blank">易嘉：听良言天赐福</a><br></h3>武肺隐瞒欺世
 中共一再延迟
