@@ -32,7 +32,21 @@
 <tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11955203.md#1" target="_blank">颜丹：美国民间起诉中共的胜算有几成？</a><br></h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11955203.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/000_1OC6LD-1-600x400-1-2-1-150x120.jpg" align ="left"></a>我们期待美国法院依法对中共政权隐瞒疫情的罪行启动诉讼程序，而一旦诉讼开始，代表正义的原告们已胜卷在握。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月20日 3:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11955223.md#1" target="_blank">【有冇搞错】袁国勇卷入了什么政治？</a><br></h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11955223.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/WhatsApp-Image-2020-03-19-at-8.26.33-AM-150x120.jpeg" align ="left"></a>香港龙振邦、袁国勇两位顶级医学专家发表文章，当天却以“卷入政治”的担忧撤稿。两位卷入了什么政治？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月20日 1:23 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11955151.md#1" target="_blank">张林：中共隐瞒疫情祸及全球，必将遭各国索赔</a><br></h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11955151.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/6988a8efdd2d456993dcbf12bcc78ba7-600x400-1-150x120.jpg" align ="left"></a>中共撒谎成性，人们似乎已经习以为常。但是如果撒谎给人们带来伤害，性质就完全不同了！这次中共为了掩盖其研发生化武器的罪恶，隐瞒中共病毒长达二个月，就不是一般的谎言，而是属于危害人类的罪恶。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月20日 1:10 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11953708.md#1" target="_blank">洪微：川普站在抗击中共病毒最前沿</a><br></h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11953708.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1207526270_1-1-600x400-2-150x120.jpg" align ="left"></a>川普连续称“中国病毒”，其实真意是针对中共，引起了媒体的极大关注。3月18日的白宫记者会上，陆续有多位记者提问，为什么要这样说？川普也多次回答的很干脆：没有人怀疑，病毒从中国来，中共却说成是美军，我不允许这样的事情发生。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 5:36 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/21/n11961006.md#1" target="_blank">云鹤天：小燕子的诉说</a><br></h3>往年北上一路欢
+今年北上心发酸
+飞越长江过武汉
+尸烟弥漫黑浪翻
+又呛鼻子又刺眼
+恶心呕吐喘气难
+急急忙忙往北赶
+郑州安阳到邯郸
+中原大地好凄惨
+大街小巷无人烟
+所有路口都设关
+来往车辆查的严
+千辛万苦把家还
+归巢还是心不安......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月21日 4:39 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/21/n11960992.md#1" target="_blank">隋意谭：分析“一位高中生”给方方的信（一）</a><br></h3>近日，中国大陆遭受瘟疫肺炎，人们都在思考瘟疫的源头、扩散原因、如何应对、教训等等。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月21日 4:32 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11953787.md#1" target="_blank">【网海拾贝】嘲笑别国猛夸自己是对逝者的亵渎</a><br></h3>
 
 【嘲笑别国和猛夸自己都是对逝者的亵渎】疫情在全世界爆发后，我们总会看到一种观点，就是嘲笑别国的做法，觉得别国都应该来抄中国的作业。我们前期的失误，其实是需要反思的。而我们后期的有效，别的国家也是学不来的——体制和国情不同。何况，这是场灾难。不管是嘲笑别国疫情蔓延，还是猛夸自己国家棒，其实都是对逝者的亵渎。
@@ -40,6 +54,5 @@
 <tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/16/n11945594.md#1" target="_blank">中央文革小组组长陈伯达被判刑18年</a><br></h3>1966年5月16日，毛泽东发动“文化大革命”。12天后，中央文革小组成立，陈伯达被任命为组长，毛泽东妻子江青为第一副组长。中央文革小组是毛泽东一人之下、亿万人之上的专门害人的组织。陈伯达名为组长，起主导作用的是副组长江青。
 中共“最好的理论家”沦为中共的囚徒
 陈伯达担任毛泽东政治秘书达31年之久。1939年，陈伯.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月20日 7:20 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/20/3/19/n11953786.md#1" target="_blank">陈思敏：“中共病毒”的基因序列</a><br></h3>“中共肺炎”（俗称武汉肺炎、新冠肺炎）在全球星火燎原，其病原体，WHO命名为“2019新型冠状病毒”，原中共中央政治局常委、中纪委书记尉健行的撰稿人王友群博士在大纪元网站发文称，实为“中共病毒”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 11:55 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/zbaeo261/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/zbaeo261/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/zbaeo261/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/zbaeo261/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zbaeo261/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/zbaeo261/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
