@@ -680,23 +680,6 @@ DMV将通知已经预约路考者相关变化。从周四开始，车管局可�
 人口普查局在一份声明中说：“人口普查局采取这一步骤以保护美国公众、人口普查局的员工以及所有正在通过招聘程序来临时担任人口普查员职位的人的健康和安全。”
 
 一周前启动的2020年人口普查，已有.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:59 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952958.md#1" target="_blank">悉尼一周活动好去处（2020年3月21日）</a><br></h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952958.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/10/2019-08-06-16267-editedFotolia_39821955_Subscription_L-150x120.jpg" align ="left"></a>
-1. 莫公园工艺饮料市场
-每月第四个周日莫公园将迎来深受大家喜爱的工艺饮料市场，这里您可见到澳大利亚最好的精酿啤酒生产商，从威士忌到啤酒，从苹果酒到葡萄酒，让您尽情品尝，这里还有信息讲座，酿酒课程班，鸡尾酒调酒演示等。入场每人10澳元。
-时间：3月22日 10:30am–4:30pm
-地点：The Enter.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:46 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952663.md#1" target="_blank">法拉盛公立小学教师确诊COVID-19</a><br></h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952663.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/d0e23a1b9d79d42cd6385fd50dac5313-150x120.jpg" align ="left"></a>法拉盛公立第244小学17日向家长发出信函，表示该校一名成员确诊COVID-19（中共肺炎）。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952785.md#1" target="_blank">州长：大部分学校秋天前都不会开放</a><br></h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952785.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/gettyimages-1209096263-594x594-150x120.jpg" align ="left"></a>州长纽森（Gavin Newsom）周二（3月17日）说，面临中共病毒疫情，加州大部分学校本学年后半将一直保持关闭。
-
-目前，全州98.8%的学校已经关闭。纽森表示，这些学校暑假前应该都不会开放。
-
-那么，学校的610万孩子该怎么办？纽森说，每周五会发布新的在线课程表，也包括来自公共广播的课程。
-
-纽森说.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:36 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952667.md#1" target="_blank">市议员顾雅明发布应对COVID-19资源指南</a><br></h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952667.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/19cba3d445718fbe73b4a1fc8a904f40-150x120.jpg" align ="left"></a>法拉盛市议员顾雅明18日发布应对中共病毒（COVID-19病毒）《资源指南》，汇集政府应对疫情的政策和措施，有英文、中文、韩文三种语言版本。内容如下：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:36 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/18/n11951281.md#1" target="_blank">【拍案惊奇】中国七个雷区 随时踩爆更大疫情</a><br></h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/18/n11951281.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/Unknown-4-150x120.jpg" align ="left"></a>对于当前的这场病毒，我看海外有些媒体，已经把病毒的称呼，从中共肺炎，正式改为“中共病毒”，这也是一个很值得关注的现象。现在大陆当局拚命甩锅，而且瞒报疫情造成世界大流行的责任，是不能不承担的。至少从这两个角度来看，有媒体称为“中共病毒”，也是很准确的。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:34 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952459.md#1" target="_blank">有村架纯饰演雪代巴 佐藤健初见面“好熟悉”</a><br></h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952459.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/190412015658100707-150x120.jpg" align ="left"></a>由佐藤健主演的人气漫画改编电影《神剑闯江湖》（或译：浪客剑心），今日（19日）透过官网及官方SNS宣布，关键角色“雪代巴”将由高人气演员有村架纯饰演，并公开了雪代巴的形象照，以及有村架纯演绎该角色的感想。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:31 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952670.md#1" target="_blank">纽约市首个“得来速”检测点  在史岛投入使用</a><br></h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952670.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/972027e38d00d31ef784b7b789349467-150x120.jpg" align ="left"></a>纽约市史坦顿岛国会议员Max Rose18日发布推特表示，纽约市首个对中共病毒（COVID-19病毒）进行免下车检测的“得来速”（drive-through）检测取样点，19日（周四）在史坦顿岛投入使用。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:31 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/21/n11960499.md#1" target="_blank">报告：纽约市多青壮年男性确诊</a><br></h3>日前，一份市卫生局数据显示，截止到3月19日，纽约市确诊的中共病毒患者多数是18岁到49岁的男性。
 根据《纽约邮报》援引市卫生局的数据，在3月19日的3954个病例中，54%的人是18到49岁的男性；46%是50岁以上的老年人；剩下的2%是5到17岁的小孩和年轻人。而且，女性患者比男性患者少，比例为41：59。
 在.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月21日 9:24 PM			</td></tr>
@@ -1024,31 +1007,4 @@ Bellevue学区，从3月16日到3月27日，每天.........<br><img align="botto
 <tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952584.md#1" target="_blank">两党紧急法案 向纽约支60亿美元抗疫</a><br></h3>参议院民主党领袖舒默18日宣布，参议院通过另一项两党支持（BIPARTISAN）的紧急法案，向纽约交付60亿美元以对抗冠状病毒（中共病毒）。下一步将交由总统签字。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 2:07 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952589.md#1" target="_blank">研究预测：一年内纽约市将有七十万人住院</a><br></h3>3月17日一份医学机构发布的研究表明，如果把中共病毒的发展趋势估算成不太快也不太慢的中等速度来计算，纽约市在未来一年内将有七十万人住院治疗，这么大的需求量要求纽约市在现在的水平上增加数万个病床。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 2:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952591.md#1" target="_blank">日落公园烟馆还敢开门  警察寻找违反禁聚令者</a><br></h3>消息，警察局发言人周三（18日）表示，在市长宣布纽约市餐馆只能买走以及外卖、禁止堂吃的规定之后，警察已经查访了6,000多家餐馆和酒吧，发现其中有三分之二的餐馆都很守规矩，直接关门了，但是有2,000多家仍然在营业，这其中只有两家公然违法规定大排筵宴。他们是一家日落公园的水烟馆在周二公开款待15个客人；另一家艾姆赫斯特.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 2:01 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952593.md#1" target="_blank">联合作战  宾州加入三州统一防疫政策</a><br></h3>纽约州州长库默（Andrew Cuomo）、新泽西州州长墨菲（Phil Murphy）、康州州长拉蒙特（Ned Lamont）和宾州州长沃尔夫（Tom Wolf）18日联合宣布，为防止中共病毒（中共肺炎，俗称中共肺炎，COVID-19）蔓延，四个州皆要求所有室内的零售购物中心（indoor portions of re.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:49 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952596.md#1" target="_blank">州主计长评估  疫情冲击恐损70亿税收</a><br></h3>在中共病毒（川普称为“中国病毒”，Chineses Virus，又称CCP Virus）冲击美国经济之下，州长库默（Andrew Cuomo）日前要求......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:45 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952942.md#1" target="_blank">台湾开始限制全球外籍人士入境</a><br></h3>因应全球“新型冠状病毒（中共病毒）”疫情持续扩大，台湾限制全球外籍人士入境。
-
-为配合台湾疫情指挥中心防疫措施，自台北时间3月19日零时起，搭乘飞机起飞赴台的非中华民国国籍人士，除非符合特定事由，或经特别许可者，一律限制入境。
-
-上述符合特定事由，包括持居留证、外交公务证明、商务履约证明者，得以免签证或持签证入.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:40 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952941.md#1" target="_blank">澳大利亚新州中共肺炎病例增至307人</a><br></h3>中共病毒已导致越来越多的澳洲人染病。周四，新州新增40个确诊病例，累计确诊人数增至307人。虽然累计确诊人数在增加，但单日确诊人数比前一天有所下降。
-
-在新州确诊的307个案例中，129人在海外染病，59人是在和感染者接触后染病，6人正在重症监护室接受治疗。
-
-责任编辑：岳明......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:40 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952939.md#1" target="_blank">澳警方联合执法打击囤货倒卖 平息购物恐慌</a><br></h3>澳洲联邦警察和边境执法局已发起联合行动，打击那些到超市大量抢购和囤积商品、然后去黑市和海外倒卖获利的个人和团体。内务部长达顿（Peter Dutton）说，他认为最开始在澳洲抢购厕纸和其它商品造成恐慌购物的人是那些投机者。
-
-周四，他对2GB电台说：“我们看到有些人在从中获利，他们囤积商品不是为了自用。我认为，他们.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:37 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952929.md#1" target="_blank">Woolies网购服务暂停 送货仅限弱势与隔离者</a><br></h3>Woolworths超市已紧跟Coles超市，暂停了全澳的大众网购服务。何时恢复有待进一步通知。但老年人、残疾人和被强制隔离的人仍可继续上网购物。
-
-在新措施下，老人、残疾人和自我隔离者在网上购物，将通过物流中心发货，而不再由Woolworths超市发货。
-
-据悉尼晨锋报报导，Woolworths的Woolie.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:33 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952916.md#1" target="_blank">响应“居家防疫”令   旧金山东湾阿拉米达县暂时关闭法院</a><br></h3>起源于武汉的中共病毒（COVID-19）疫情威胁下，旧金山东湾阿拉米达（Alameda）县3月18日宣布，该县高等法院关闭，截至4月7日为止，声明称，这一举措是为响应卫生官员的“居家防疫”卫生令，以延缓病毒的传播。
-
-法庭方面称，加州最高法院法官塔尼?坎蒂尔?萨科耶（Tani Cantil Sakauye），已于1.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:33 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/djerb2399/djy/blob/master/gb/20/3/19/n11952885.md#1" target="_blank">买不到面粉殴打顾客和店员 新州男被控数罪</a><br></h3>一名在Coles超市买不到面粉的新州男子被控暴力袭击其他顾客和工作人员。珀斯也出现顾客在超市吵架的场面。西澳州长批评做出这种不当行为的人是“白痴”。
-
-周二下午3点30分左右，警方接到报案说，新州利斯莫（Lismore）市乌拉尔巴街（Uralba Street）的Coles超市一名男子因为买不到面粉而诉讼暴力。
-.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月19日 1:31 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/djerb2399/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/djerb2399/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/djerb2399/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/djerb2399/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
