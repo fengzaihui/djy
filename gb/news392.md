@@ -31,7 +31,17 @@
 <tr><td><h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11959145.md#1" target="_blank">陈光诚：“中共病毒”比“中国病毒”更贴切</a><br></h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11959145.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1207526270_1-1-150x120.jpg" align ="left"></a>最近由于中共外交部发言人赵立坚“武汉病毒是由美国军人带入武汉”的说法不断发酵，虽然中共随后删除了部分相关信息，其喉舌也在海外用英文做出了与赵立坚完全不同的表述，可是事件还是发展到让美国总统川普（特朗普）直接不断称此病毒为“中国病毒”的程度。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月21日 3:11 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11957171.md#1" target="_blank">让生命根植于信仰 再谈战地祈祷显神迹</a><br></h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11957171.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-3274933-150x120.jpg" align ="left"></a>关于美国二战将军巴顿不少人已经耳熟能详。他在突出部战役中，率25万官兵潜心祈祷而后奇迹般获胜的经历，为许多人带来启示。此刻当中共病毒（武汉肺炎）蔓延全球时，重新回顾这段历史或许能为我们带来力量。巴顿是一名非凡的将军，即便战事发生逆转、在众人担忧无法取胜的关头，他做出的最后努力是向上帝祈祷、寻求来自神的力量。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月21日 2:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11959268.md#1" target="_blank">【有冇搞错】无罪有错？李文亮案再掀舆论海啸</a><br></h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11959268.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/WhatsApp-Image-2020-03-20-at-8.40.40-AM-150x120.jpeg" align ="left"></a>李文亮医生死后34天，中央调查组做出了结论：李医生无罪但有错！大陆舆论再次海啸，但大家是否知道，中共和我们不是一种人？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月21日 2:26 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11957965.md#1" target="_blank">谢田：乱世经济崩裂 川普如何布局</a><br></h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/20/n11957965.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/3b0542b54a8ffe19653004b635e26246-150x120.jpg" align ="left"></a>2020年，世界经济注定会出现全面恶化的局势。三月初美国股市的一次下滑，跌幅近两千点，引发少有的熔断机制，就让全世界非常的惊讶；随后各国股市跟随着剧烈动荡。其中的原因，除了中共病毒（武汉瘟疫）带来的世界经济的停摆和乱局，还有世界石油市场的剧变。沙特阿拉伯主导的石油输出国组织（OPEC）与俄罗斯就减产维持价格达不成协议.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月20日 11:57 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/22/n11963025.md#1" target="_blank">云鹤天：投毒事件</a><br></h3>赵爷是村里的恶霸。
+
+赵爷办了一个养猪场和一个养鸡场。
+
+赵爷这一年很不顺。闹猪瘟猪死光了，闹禽流感鸡死光了。
+
+年终岁尾，赵爷心里很不痛快。躺在床上，满屋子都是乡亲
+们讥笑的目光，做梦，都是村民一张张幸灾乐祸的嘴脸。
+
+赵爷辗转反侧，越想越气。终于，在大年将至的一个晚上，
+将一瓶农药倒进村子中央的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年03月22日 3:41 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/yemuvj2215/djy/blob/master/gb/20/3/22/n11963008.md#1" target="_blank">关乐：中共病毒长着眼</a><br></h3>奉命训诫李文亮，
 而今黑锅奉命扛。
 且还奉命不叫屈，
