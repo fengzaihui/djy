@@ -15,7 +15,7 @@
 <hr><strong>退出中共党、团、队总人数:
 
 ```diff
-! 共 352,953,685 人
+! 共         352,953,685 人
 ```
 我要退出中共党团队</strong></p>
 <br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a></p><hr><h2><p><strong>即时快讯&nbsp;&#160;&nbsp;&#160; :bar_chart: <a target="_blank" href="https://pmjgtr230.github.io/oo/yq.html">全球疫情地图</a></strong></p></h2>
