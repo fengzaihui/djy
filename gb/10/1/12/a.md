@@ -12,11 +12,11 @@
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11962164.md#1" title="美学者:北京瞒疫罔顾生命 令全球看清中共""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/maxresdefault-320x200.jpg">&nbsp;</a>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968052.md#1" title="【一线采访】武汉民众:病毒或留体内 忧再爆发""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/5dc6612d864525d273fbc0705c5405c8-320x200.jpg">&nbsp;</a>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968137.md#1" title="【直播】3·23美国疫情白宫新闻发布会""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/15fdbcf2d8814528_ttl7dayCKG_15fd8c53f5bed8a6_ttl7dayiFD_____1-1-320x200.jpg">&nbsp;</a>
-<br><h2 align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a>
-  <hr><p align="center"><strong align="center">退出中共党、团、队总人数:</strong></h2><strong align="center">
+<br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a>
+  <hr><h2 align="center"><strong align="center">退出中共党、团、队总人数:</strong></h2><strong align="center">
 
 ```diff
--共352,953,685 人
+-共 352,953,685 人
 ```
 </strong><p align="center"><strong align="center"><a href="https://x.co/dd3">我要退出中共党团队</a></strong>
 <hr><h2><p><strong>即时快讯&nbsp;&#160;&nbsp;&#160; :bar_chart: <a target="_blank" href="https://pmjgtr230.github.io/oo/yq.html">全球疫情地图</a></strong></p></h2>
