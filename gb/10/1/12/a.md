@@ -1,258 +1,125 @@
-
-<!DOCTYPE html>
-<html lang="zh_CN" prefix="og: http://ogp.me/ns#">
-<head>
-<meta charset="UTF-8">
-<link rel="shortcut icon" type="image/x-icon" href="http://cn.epochtimes.com/assets/themes/djy/images/favicon.png" />
-<meta name="viewport" content="width=device-width, initial-scale=1">
-<link rel="profile" href="http://gmpg.org/xfn/11">
-<title>世界疫情地图 | 大纪元</title>
-<meta name="robots" content="noodp,noydir"/>
-<meta name="description" content="世界疫情地图"/>
-<link rel="canonical" href="https://www.epochtimes.com/gb/nf1368917.htm" />
-<meta property="og:locale" content="zh_CN" />
-<meta property="og:type" content="object" />
-<meta property="og:title" content="世界疫情地图 - 大纪元" />
-<meta property="og:description" content="世界疫情地图" />
-<meta property="og:url" content="https://www.epochtimes.com/gb/nf1368917.htm" />
-<meta property="og:site_name" content="大纪元 www.epochtimes.com" />
-<meta property="article:publisher" content="https://www.facebook.com/djy.news/" />
-<meta property="og:image" content="http://i.epochtimes.com/assets/uploads/2017/02/DJY_FB_DefaultImage2017.jpg" />
-<meta property="fb:app_id" content="1571885662850711" />
-<meta name="twitter:card" content="summary_large_image"/>
-<meta name="twitter:description" content="世界疫情地图"/>
-<meta name="twitter:title" content="世界疫情地图 - 大纪元"/>
-<meta name="twitter:site" content="@dajiyuan"/>
-<meta name="twitter:domain" content="大纪元 www.epochtimes.com"/>
-<meta name="twitter:image" content="http://i.epochtimes.com/assets/uploads/2017/02/DJY_FB_DefaultImage2017.jpg"/>
-<link rel='dns-prefetch' href='//s.w.org' />
-<link rel='stylesheet' id='djy-style-css'  href='http://cn.epochtimes.com/assets/themes/djy/style.css?ver=20150811' type='text/css' media='all' />
-<link rel='stylesheet' id='djy-widget-template-css'  href='http://cn.epochtimes.com/assets/themes/djy/css/widget-v2.min.css?ver=20200107' type='text/css' media='all' />
-<link rel='stylesheet' id='djy-slick-css-css'  href='http://cn.epochtimes.com/assets/themes/djy/css/community/slick.css?ver=20160303' type='text/css' media='all' />
-
-			<style type="text/css">
-			body{ font-family: Simsun; }
-			</style>
-		<meta property="fb:pages" content="394510747593181" />
-	<script>
-		var djy_primary_category, djy_user_id, djy_cat_ids, djy_term_ids, djy_all_term_ids, djy_cat_names = '', djy_domain, djy_ads_term_ids, lotame_cat_ids, djy_publish_date;
-		var encoding = "gb";
-	djy_cat_ids = '1368917';
-djy_cat_names = '世界疫情地图';
-djy_ads_term_ids = '1368917,1358885';
-	</script>
-	<!--[if lt IE 9]>
-     <script type="text/javascript" src="/assets/themes/djy/js/html5.js"></script>
-     <link href="/assets/themes/djy/css/ie.css" rel="stylesheet" type="text/css" />
-<![endif]-->
-</head>
-<body class="archive tax-focus term-nf1368917 term-1368917 single-template-living-article">
-		<noscript><iframe src="//www.googletagmanager.com/ns.html?id=GTM-MFZR7R"
-		height="0" width="0" style="display:none;visibility:hidden"></iframe></noscript>
-		<script>(function(w,d,s,l,i){w[l]=w[l]||[];w[l].push({'gtm.start':new Date().getTime(),event:'gtm.js'});var f=d.getElementsByTagName(s)[0],j=d.createElement(s),dl=l!='dataLayer'?'&l='+l:'';
-		j.async=true;j.src='//www.googletagmanager.com/gtm.js?id='+i+dl;f.parentNode.insertBefore(j,f);})(window,document,'script','dataLayer','GTM-MFZR7R');
-		</script>
-	<script>
-	var epochload = [];
-	var slots =  new Array();
-</script>
-			<header role="banner" class="djy-global-header">
-			<div class="top_row">
-				<div class="container">
-					<div class="logo">
-						<a title="大纪元首页" href="/"><img alt="大纪元 LOGO" src="http://cn.epochtimes.com/assets/themes/djy/images/ET_Logo_2_cn.png"></a>
-					</div>
-					<div class="b5_gb">
-											<span class="b5"><a href="http://cn.epochtimes.com/b5/nf1368917.htm">正体</a></span>
-						<span class="gb active"><a href="http://cn.epochtimes.com/gb/nf1368917.htm">简体</a></span>
-										</div>
-					<div class="search">
-						<form class="search-form" method="post" role="search" action="http://cn.epochtimes.com/gb/search.htm">
-							<input type="hidden" name="encoding" value="b5">
-							<input type="text" role="search" name="q" size="2" value="" maxlength="100" placeholder="搜寻" class="search_input">
-							<button type="submit" class="search_btn"></button>
-						</form>
-					</div>
-					<div class="user_block"></div>
-				</div>
-			</div>
-			<div class="nav_row">
-				<div class="container">
-					<ul>
-						<li><a href="/gb/nsc413.htm">大陆</a></li>
-						<li><a href="/gb/nsc412.htm">美国</a></li>
-						<li><a href="/gb/ncid1349362.htm">香港</a></li>
-						<li><a href="/gb/nsc418.htm">国际</a></li>
-						<li><a href="/gb/ncid1349361.htm">台湾</a></li>
-						<li>|</li>
-						<li><a href="/gb/instant-news.htm">即时</a></li>
-						<li><a href="/gb/opinion.htm">评论</a></li>
-						<li><a href="/gb/nf1191090.htm">专题</a></li>
-						<li><a href="/gb/ncid1247351.htm">视频</a></li>
-						<li>|</li>
-						<li><a href="/gb/nsc419.htm">科技</a></li>
-						<li><a href="/gb/nsc420.htm">财经</a></li>
-						<li><a href="/gb/ncyule.htm">娱乐</a></li>
-						<li><a href="/gb/nsc2007.htm">文化</a></li>
-						<li>|</li>
-						<li><a href="/gb/nsc2008.htm">生活</a></li>
-						<li><a href="/gb/nsc1002.htm">健康</a></li>
-						<li class="last"><a href="/gb/ncChineseCommunity.htm">社区网</a></li>
-<!-- 						<li class="last"><a href="">特别出品</a></li> -->
-					</ul>
-				</div>
-			</div>
-		</header>
-		
-<div class="single_column_container" style="width: 1200px; margin: 0 auto;; background-color: #ffffff; border: ;">
-	<div class="content" style="background-color: #ffffff; padding: 0; ">
-	<div class="living-video-box">
-	<iframe src="https://infogram.com/global-big-data-1hkv2nekqz0n2x3" width="100%" height="6550px" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
-</div>
-	</div>
-	<div class="clear"></div>
-</div>
-	<div class="djy-global-footer">
-		<div class="center-align">
-			<div id="back-top"><a href="javascript:void(0);" class="cd-top"></a></div>
-			<footer>
-	<div class="row">
-		<div id="footer" class="large-12 medium-12 small-12 column">
-			<div id="bottommenu" class="large-12 medium-12 small-12 column">
-			<div class="large-12 medium-12 small-12 columns">
-				<div class="medium-3 large-3 columns">
-					<div class="name"><a href="/gb/n24hr.htm">最新新闻</a></div>
-				</div>
-				<div class="small-12 medium-9 large-9 right">
-					<div class="items">
-						<a href="/gb/nsc413.htm">大陆</a>
-						<a href="http://cn.epochtimes.com/gb/opinion.htm">评论</a>
-						<a href="/gb/nsc412.htm">美国</a>
-						<a href="/gb/nsc418.htm">国际</a>
-						<a href="/gb/ncid1349361.htm">台湾</a>
-						<a href="/gb/ncid1349362.htm">港澳</a>
-						<a href="/gb/nsc419.htm">科技</a>
-						<a href="/gb/nsc420.htm">财经</a>
-						<a href="/gb/ncyule.htm">娱乐</a>
-						<a href="/gb/ncsports.htm">体育</a>
-						<a href="/gb/nsc994.htm">社会</a>
-						<a href="/gb/ncfreezone.htm">网闻</a>
-					</div>
-				</div>
-			</div>
-			<div class="large-12 medium-12 small-12 columns">
-			<div class="medium-3 large-3 columns">
-			<div class="name"><a href="/gb/ncChineseCommunity.htm">华人社区</a></div>
-			</div>
-			<div class="small-12 medium-9 large-9 right">
-				<div class="items">
-					<a href="/gb/nsc529.htm">纽约</a>
-					<a href="/gb/nsc533.htm">旧金山</a>
-					<a href="/gb/nsc970.htm">洛杉矶</a>
-					<a href="/gb/nsc925.htm">华府</a>
-					<a href="/gb/nsc978.htm">多伦多</a>
-					<a href="/gb/ncid1143942.htm">温哥华</a>
-					<a href="/gb/nsc974.htm">欧洲</a>
-					<a href="/gb/nsc980.htm">澳洲</a>
-					<a href="/gb/ncChineseCommunity.htm">其它</a>
-				</div>
-			</div>
-			</div>
-			<div class="large-12 medium-12 small-12 columns">
-			<div class="medium-3 large-3 columns">
-			<div class="name"><a href="/gb/nsc2007.htm">文化艺术</a></div>
-			</div>
-			<div class="small-12 medium-9 large-9 right">
-				<div class="items">
-					<a href="/gb/nsc1121.htm">神传文化</a>
-					<a href="/gb/nsc1053.htm">生命探索</a>
-					<a href="/gb/nsc1092.htm">人生感悟</a>
-					<a href="/gb/nsc924.htm">文学世界</a>
-					<a href="/gb/nsc975.htm">史海钩沉</a>
-					<a href="/gb/nsc1003.htm">人物春秋</a>
-					<a href="/gb/nsc977.htm">教育园地</a>
-					<a href="/gb/nsc1054.htm">典故传奇</a>
-					<a href="/gb/nsc985.htm">艺术长河</a>
-				</div>
-			</div>
-			</div>
-			<div class="large-12 medium-12 small-12 columns grid16">
-				<div class="medium-3 large-3 columns">
-				<div class="name"><a title="生活天地" href="/gb/nsc2008.htm">生活天地</a></div>
-				</div>
-				<div class="small-12 medium-9 large-9 right">
-					<div class="items">
-						<a href="/gb/ncid2093.htm">房产天地</a>
-						<a href="/gb/nsc995.htm">留学移民</a>
-						<a href="/gb/nsc1002.htm">医疗保健</a>
-						<a href="/gb/nsc435.htm">生活时尚</a>
-						<a href="/gb/nsc1050.htm">纵横职场</a>
-						<a href="/gb/nsc445.htm">美食天地</a>
-						<a href="/gb/nsc976.htm">旅游休闲</a>
-					</div>
-				</div>
-			</div>
-
-			<div class="column clear-fix"></div>
-			<div class="large-12 medium-12 small-12 columns">
-					<div class="bottom-links">
-						<a href="http://epaper.epochtimes.com" target="_blank">电子报</a>
-						<a href="/gb/about-djy.htm" target="_blank">关于我们</a>
-						<a class="fbai" href="/gb/rights_and_permissions.htm" target="_blank">授权与许可</a>
-						<a class="fbai" href="/gb/UserAgreement.htm" target="_blank">服务条款</a>
-						<a href="https://tougao.epochtimes.com/tougao_gb.php" target="_blank">投稿中心</a>
-						<a href="http://www.edninfo.com/chinese/" target="_blank">广告服务</a>
-						<a href="https://donate.epochtimes.com?utm_medium=epochtimes&utm_source=referral&utm_campaign=donate_others" target="_blank">捐助大纪元</a>
-					</div>
-				</div>
-			</div>
-
-			<div class="ind_foot large-12 medium-12 small-12 column">
-					本网站图文内容归大纪元所有，任何单位及个人未经许可，不得擅自转载使用。 <br>
-					Copyright© 2000 - 2020&nbsp;&nbsp; The Epoch Times Association Inc.  All Rights Reserved. &nbsp;&nbsp; 
-			</div>
-		</div>
-	</div>
-</footer>
-
-		</div>
-	</div>
-<div class="cookie-bar"><span class="warning-text">我们使用cookies来了解您如何使用我们的网站并改善您的用户体验。这包括个性化的内容和广告。若您继续使用我们的网站，即表示您同意我们使用cookies，以及我们更新的隐私政策（Privace Policy）和使用条款。</span><span class="read-more"><a href="http://www.epochtimes.com/gb/UserAgreement.htm" target="_blank">更多信息</a></span><span class="accept-btn"><a href="javascript:void(0)">我同意</a></span><span id="top_close"><a href="javascript:void(0)" id="x_close">&#215;</a></span></div>	<script>
-	djy_ga_id = 'UA-10465455-22';
-djy_domain = 'cn.epochtimes.com';
-	  (function(i,s,o,g,r,a,m){i['GoogleAnalyticsObject']=r;i[r]=i[r]||function(){
-	  (i[r].q=i[r].q||[]).push(arguments)},i[r].l=1*new Date();a=s.createElement(o),
-	  m=s.getElementsByTagName(o)[0];a.async=1;a.src=g;m.parentNode.insertBefore(a,m)
-	  })(window,document,'script','//www.google-analytics.com/analytics.js','ga');
-
-	  ga('create', djy_ga_id, 'auto');
-	  if ( typeof(djy_primary_category) != "undefined" && djy_primary_category !== null ) {
-		  ga('set', 'dimension1', djy_primary_category);
-	  }
-	  if ( typeof(djy_user_id) != "undefined" && djy_user_id !== null ) {
-		  ga('set', 'dimension2', djy_user_id);
-	  }
-	  if ( typeof(djy_cat_ids) != "undefined" && djy_cat_ids !== null ) {
-		  ga('set', 'dimension3', djy_cat_ids);
-	  }
-	  if ( typeof(djy_term_ids) != "undefined" && djy_term_ids !== null ) {
-		  ga('set', 'dimension4', djy_term_ids);
-	  }
-	  if ( typeof(djy_all_term_ids) != "undefined" && djy_all_term_ids !== null ) {
-		  ga('set', 'dimension5', djy_all_term_ids);
-	  }
-	  if ( typeof(djy_publish_date) != "undefined" && djy_publish_date !== null ) {
-		ga('set', 'dimension30', djy_publish_date);
-	  }
-	  if ((' ' + document.body.className + ' ').indexOf(' ' + 'single-template-living-article' + ' ') > -1) {
-		  ga('set', 'dimension6', '1');
-	  }
-	  ga('send', 'pageview');
-	</script>
-	<script type='text/javascript' src='http://cn.epochtimes.com/assets/themes/djy/js/jquery-all.min.js?ver=20200218'></script>
-<script type='text/javascript' src='http://cn.epochtimes.com/assets/themes/djy/js/bottom.min.js?ver=20200318'></script>
-<script type='text/javascript' src='http://cn.epochtimes.com/assets/themes/djy/js/widget.min.js?ver=20200107'></script>
-<script type='text/javascript' src='http://cn.epochtimes.com/assets/themes/djy/js/slick.min.js?ver=20150811'></script>
-<script type='text/javascript' src='http://cn.epochtimes.com/assets/themes/djy/js/ads/cn/default_category.min.js?ver=20160305'></script>
-</body>
-</html>
+<a name="1" id="1" target="_blank">&nbsp;</a> <span id="1">&nbsp;</span><table border="0"><tr><td colspan="3" VALIGN=TOP nowrap><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1351518.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/1.jpg" title="大纪元"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/n24hr.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/3.jpg" title="国际新闻"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1351518.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/4.jpg" title="大陆新闻"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news392.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/5.jpg" title="评论"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news2007.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/6.jpg" title="文化"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news2008.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/7.jpg" title="生活"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncyule.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/8.jpg" title="娱乐"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nsc1002.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/9.jpg" title="健康"><a href="https://www.youlucky.com"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/10.jpg" title="购物"></a><a href="https://donate.epochtimes.com/?utm_medium=epochtimes&utm_source=referral&utm_campaign=donate_button_djyarticleheader"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/12.jpg" title="捐款"></a></td></tr><tr><td colspan="3" VALIGN=TOP nowrap><p><a href="aaaaaaaaaaaaaaaaaa/7" rel="nofollow">大纪元</a> | <a href="aaaaaaaaaaaaaaaaaa/513" rel="nofollow">动态网</a> | <a href="https://git.io/fjHpv" rel="nofollow">神州</a> | <a href="aaaaaaaaaaaaaaaaaa/8" rel="nofollow">退党</a> | <a href="https://git.io/fjHpU" rel="nofollow">九评</a> | <a href="https://git.io/fjHpT" rel="nofollow">网门</a> | <a href="aaaaaaaaaaaaaaaaaa/4" rel="nofollow">神韵</a> | <a href="https://git.io/fjHpI" rel="nofollow">新纪元</a> | <a href="aaaaaaaaaaaaaaaaaa/11" rel="nofollow">看中国</a> | <a href="aaaaaaaaaaaaaaaaaa/3" rel="nofollow">明慧网</a> | <a href="https://git.io/fjHpq" rel="nofollow">明慧十方</a> | <a href="https://git.io/fj9lQ" rel="nofollow">明慧焦点</a> | <a href="aaaaaaaaaaaaaaaaaa/9" rel="nofollow">希望之声</a> | <a href="https://git.io/fjHpY" rel="nofollow">漫谈党文化</a ></p><p><a href="aaaaaaaaaaaaaaaaaa/5" rel="nofollow">新唐人</a> | <a href="https://git.io/JervF" rel="nofollow">亚太台</a> | <a href="https://git.io/fjHpG" rel="nofollow">直播</a> | <a href="https://git.io/fj9lp" rel="nofollow">传奇</a> | <a href="https://git.io/fj9lX" rel="nofollow">神话</a> | <a href="https://git.io/fjHpZ" rel="nofollow">人生</a> | <a href="https://git.io/fjFNJ" rel="nofollow">伪火</a > | <a href="https://git.io/fjHpc" rel="nofollow">真相片</a> | <a href="https://git.io/fj9lK" rel="nofollow">藏字石</a> | <a href="https://git.io/fj9l5" rel="nofollow">短视频</a> | <a href="https://git.io/fjHpW" rel="nofollow">告诉未来</a > | <a href="https://git.io/fjHpl" rel="nofollow">终级目的</a> | <a href="https://git.io/fj9lM" rel="nofollow">中共活摘</a > | <a href="https://git.io/fjHp4" rel="nofollow">风雨天地行</a></p></td></tr>
+<tr><td VALIGN=TOP width="355" height="1000"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964183.md#1"><img width="320" src="https://i.epochtimes.com/assets/uploads/2020/03/Screen-Shot-2020-03-24-at-12.41.58-AM-320x200.png"><p align="center">【内幕】山东文件泄政法委分工和打击重点</p></a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964183.md#1" title="【内幕】山东文件泄政法委分工和打击重点""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/Screen-Shot-2020-03-24-at-12.41.58-AM-320x200.png">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968366.md#1" title="【最新疫情3.24】东京奥运会将推迟""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/01/1280px-New_national_stadium_tokyo_1-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968096.md#1" title="还原历史 美媒披露中共病毒爆发初期记录""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1195534971-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968196.md#1" title="哈德逊研究员：为了保护未来 要向中共问责""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1213842782-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968318.md#1" title="病毒传播不是亚裔的错 川普吁保护亚裔""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1214369342-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11962164.md#1" title="美学者:北京瞒疫罔顾生命 令全球看清中共""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/maxresdefault-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968052.md#1" title="【一线采访】武汉民众:病毒或留体内 忧再爆发""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/5dc6612d864525d273fbc0705c5405c8-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968137.md#1" title="【直播】3·23美国疫情白宫新闻发布会""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/15fdbcf2d8814528_ttl7dayCKG_15fd8c53f5bed8a6_ttl7dayiFD_____1-1-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965551.md#1" title="分析：大疫之下中国两千万手机用户消失""><img width="73" src="https://i.epochtimes.com/assets/uploads/2019/01/286569_medium-600x400-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964350.md#1" title="【最新疫情3.23】英国宣布进入封锁状态""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/000_1Q35HE-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11967620.md#1" title="反驳伊朗中共病毒谎言 蓬佩奥列出五大事实""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/1-50-320x200.jpg">&nbsp;</a>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11967279.md#1" title="【直播回放】3.23纽约州疫情发布会""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/15fefb2ac10f60ed_ttl7dayaMu_323_NY_lIve_2-320x200.jpg">&nbsp;</a>
+<br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a></p><hr><h2><p><strong>即时快讯&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a target="_blank" href="https://pmjgtr230.github.io/oo/yq.html">全球疫情地图</a></strong></p></h2>
+<em>1小时</em><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969005.md#1">武汉医生确诊中共肺炎 网友热议</a><br>
+<em>1小时</em><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968685.md#1">【翻墙必看】疫情下大陆海量手机用户消失</a><br>
+<em>2小时</em><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968825.md#1">（影音）【疫情下的纽约人】老人中心为居家老人送餐也送报</a><br>
+<em>2小时</em><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968465.md#1">【拍案惊奇】习近平有险？三峡大坝被爆危机</a><br>
+<em>2小时</em><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968660.md#1">中共病毒纽约州确诊破2万 纽约市确诊破1万人</a><br>
+<em>2小时</em><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968657.md#1">川普推抗疟疾药物在纽约使用  作为抗疫手段</a><br>
+<hr><h2><p><strong>新闻排行</strong></p></h2>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964527.md#1">网传习近平抱孩子旧片 称“保留本色重要”</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963608.md#1">为中共唱赞歌 谭德塞与北京关系有何内幕</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963040.md#1">大陆通报新增确诊病例显“诡异” 网民挞伐</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11964916.md#1">【翻墙必看】中共隐秘之地的恐怖黑幕</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963298.md#1">摩根大通前资深高管感染中共病毒离世</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11962427.md#1">【翻墙必看】中共操控特务 祸乱海外各国</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965207.md#1">到底多少人复阳？ 湖北卫健委称不再上报</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11966438.md#1">沈阳一粥店打出“庆祝美国疫情”横幅引抨击</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965442.md#1">中共机密数据曝光 大量无症状者未列入官方统计</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963526.md#1">【现场视频】浙江省多地现狂风暴雨或冰雹</a><br>
+<br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nscrw413.md#1">更多......</a></p><hr><h2><p><strong>纪元推荐</strong></p></h2>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968549.md#1">何清涟：自吹的“抗疫神话”如何炼成？</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968364.md#1">王赫：中共第三波“海外义和团”运动</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965411.md#1">【疫情透视】纽约州为何成了重灾区？</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965269.md#1">【名家专栏】“中共病毒”会使中共崩溃吗？</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964530.md#1">【一线采访】重症监护室里的“谋杀”</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961956.md#1">【独家】武汉检测数据中的监狱无名氏</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11962674.md#1">意大利口罩被谁买空？意媒驳中共救援谎言</a><br>
+<br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news392.md#1">更多......</a></p><hr><h2><p><strong>独家视角</strong></p></h2>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/19/n11952923.md#1">【一线采访】异议人士张展武汉50天见闻</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/19/n11951550.md#1">【疫情透视】为何华盛顿州疫情这么严重？</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/18/n11950430.md#1">【现场视频】大风吹袭 京津冀多地起火</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/18/n11950402.md#1">中国式复工：一场中共忽悠老百姓的闹剧</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/17/n11948377.md#1">【最新疫情3.18】川普派医疗舰前往纽约</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/18/n11949968.md#1">【一线采访】收入见底 武汉人生活陷绝境</a><br>
+<br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf6092.md#1">更多......</a></p>
+</td><td VALIGN=TOP width="352">
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965551.md#1">分析：大疫之下中国两千万手机用户消失</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968465.md#1">【拍案惊奇】习近平有险？三峡大坝被爆危机</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964183.md#1">【内幕】山东文件泄政法委分工和打击重点</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965831.md#1">【疫情中的纽约人】星巴克门外的华人女子</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968711.md#1">疫情笼罩 武汉作家方方：所有疑问都无人回应</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11967780.md#1">【新闻看点】川习对话说啥 红二代倒戈习危急？</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968364.md#1">王赫：中共第三波“海外义和团”运动</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11962341.md#1">对北京掩盖疫情失望 川普：中共非常诡秘</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968139.md#1">马列教授千里散毒？意首例确诊病例身份曝光</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969005.md#1">武汉医生确诊中共肺炎 网友热议</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11967845.md#1">红二代转发建议书吁高层问责 凸显中共内斗</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968685.md#1">【翻墙必看】疫情下大陆海量手机用户消失</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968009.md#1">【疫情最前线】多明戈确诊 多次与江情妇同台</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964450.md#1">因大闹火车站被解约 大陆女星新剧遭AI换脸</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11967878.md#1">大陆影院被迫复工 全国多省票房均为零</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11967806.md#1">【有冇搞错】任志强被失踪 北京政局暗流诡谲</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11966898.md#1">【珍言真语】薛浩然：瘟疫流行 史上君王罪己忏悔</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11966877.md#1">【一线采访视频版】异议人士张展武汉五十天见闻</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11966626.md#1">【直播回放】3.23疫情追踪：美追究中共隐瞒</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11964881.md#1">武汉病例清零内幕被曝光 北京通知露端倪</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961787.md#1">武汉医院检测数据显示新病毒秘密莫测</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964600.md#1">【热点互动】川普首次批中共隐瞒 美政界吁追责</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964501.md#1">湖北病例零增长？台湾网红:中共谎言害惨世界</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/16/n11944905.md#1">全球娱乐圈染疫一览 明星名人相继确诊</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964166.md#1">【疫情最前线】香港处于最高风险时刻</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963457.md#1">【直播】3.22美国疫情发布会：重点援助三重灾州</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963456.md#1">【珍言真语】吴明德：大萧条再临 上帝促人反思</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963263.md#1">【一线采访】武汉市民：对政府彻底失望</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11962074.md#1">芬兰广播公司深度调查报告：中共渗透海外</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961574.md#1">【新闻看点】全球死亡数破万 中共4大危机尽显</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11958091.md#1">抵御中共病毒 法轮功学员文化节传真相</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11962008.md#1">好莱坞制作人瓦特染疫：身体像被巴士撞到</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961635.md#1">白宫网站请愿：让我们改叫中共病毒</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961906.md#1">病毒元凶变身“抗疫恩人” 中共骗术曝光</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961699.md#1">追责中共隐瞒疫情 国际专家提六大方案</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961355.md#1">【直播】3.21美国疫情发布会 川普：中共非常诡秘</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961231.md#1">【直播回放】3.21疫情追踪：五国确诊破2万</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11960123.md#1">【拍案惊奇】川普指中共延误 武汉二次爆发预警</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11960367.md#1">中共肺炎蔓延 陆企大量外贸订单被取消</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959369.md#1">组图：疫情缓解？天安门军队大院防备森严</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959398.md#1">【疫情最前线】意大利：中国没送任何东西！</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959110.md#1">【新闻看点】“抗疫胜利”炒过头 中共出手抓人</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959416.md#1">众星遭陆“限籍令”点名 台湾艺人揭中共套路</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959559.md#1">【疫情中的纽约人】“中共病毒”引热议</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959036.md#1">改叫“中共病毒” 英文大纪元文章获赞</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/19/n11955770.md#1">除了中共肺炎 中共还在哪些问题上撒谎（1）</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959037.md#1">甄子丹携妻小自美返港 戴电子手环强制隔离</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11958771.md#1">湖北连两日无新病例？武汉多个小区增患者</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11959268.md#1">【有冇搞错】无罪有错？李文亮案再掀舆论海啸</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11958857.md#1">【一线采访】复工？你是湖北籍不能上车</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11958719.md#1">【直播回放】3.20美国政府每日疫情发布会</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11956105.md#1">【世界十字路口】疫情四大责任 中共难逃</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11958035.md#1">【直播回放】3.20疫情追踪：中国清零 川普质疑</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11958122.md#1">【一线采访】剧组受困武汉50天 方便面充饥</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11956525.md#1">专访刘细良：反送中反共令香港抗疫现奇迹</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/18/n11950904.md#1">【独家】武汉新增确诊是中共公布的22倍</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11957164.md#1">中共病毒笼罩 大陆医护心理受困扰患抑郁症</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11956032.md#1">【拍案惊奇】京津冀风火连天 7常委近来反常</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/19/n11954617.md#1">全家被迫害 法轮功学员张燕遭冤狱折磨离世</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/20/n11956174.md#1">【热点互动】中共病毒会开启中共解体之门？</a><br>
+<br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nsc413.md#1">更多要闻......</a></p><hr><h2><p><strong>传统文化</strong></p></h2>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11966669.md#1"></a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11966669.md#1">艺术因信仰与道德而荣耀（一）</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/2/27/n11900217.md#1"></a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/2/27/n11900217.md#1">【历史上的瘟疫】“上帝之鞭”：欧洲黑死病</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964276.md#1"></a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964276.md#1">“刀笔先生”美化罪恶 难逃上天之眼</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/14/n11939926.md#1"></a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/14/n11939926.md#1">现世报：危机窥伺中得恩报 毫无预警下遭恶报</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/17/n11945807.md#1"></a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/17/n11945807.md#1">2020 否极泰来</a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964127.md#1"></a><br>
+<a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964127.md#1">后悔或是一味良药 但须在大限前</a><br>
+<br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news2007.md#1">更多......</a></p></td><td VALIGN=TOP rowspan=6 width="156" align="middle"><a href="https://git.io/fj9l0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/gudianwu.jpg" title="神韵古典舞技巧表演" alt="神韵古典舞技巧表演"><br>神韵古典舞表演</a><br><a href="https://git.io/fj9la" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/9ping.jpg" title="九评共产党" alt="九评共产党"><br>九评共产党</a><br><a href="https://git.io/fj9lr" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/communism.jpg" title="共产主义终极目的" alt="共产主义终极目的"><br>共产主义终极目的</a><br><a href="https://git.io/fjFNJ" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/weihuo.jpg" title="中共的伪火骗局"" alt="中共的伪火骗局""><br>中共的伪火骗局"</a><br><a href="https://git.io/fj9lK" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/changzhi.jpg" title="古今奇观-藏字石" alt="古今奇观-藏字石"><br>古今奇观-藏字石</a><br><a href="https://git.io/fj9lP" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/tianan.jpg" title="通往天安门的旅程" alt="通往天安门的旅程"><br>通往天安门的旅程</a><br><a href="https://git.io/fj9lX" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/weilai.jpg" title="未来人的神话" alt="未来人的神话"><br>未来人的神话故事</a><br><a href="https://git.io/fj9l1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/ji-zy.jpg" title="中共罪恶的活摘" alt="中共罪恶的活摘"><br>中共罪恶的活摘</a><br><a href="https://git.io/fj9lM" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/huozhai.jpg" title="铁证如山" alt="铁证如山"><br>铁证如山</a><br><a href="https://git.io/fj9lD" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/4ke.jpg" title="一家四口死于中共暴政" alt="一家四口死于中共暴政"><br>一家四口死于暴政</a><br><a href="https://git.io/fj9ly" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/jie-di.jpg" title="─弟妹相继死于中共迫害" alt="─弟妹相继死于中共迫害"><br>弟妹相继死于迫害</a><br><a href="https://git.io/fj9lS" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/ma-sj.jpg" title="她们许多已经被中共迫害至死" alt="她们许多已经被中共迫害至死"><br>她们被中共迫害死</a><br><a href="https://git.io/fj9l9" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/shuan-cxl.jpg" title="双城血泪" alt="双城血泪"><br>双城血泪</a><br><a href="https://git.io/fj9lH" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/wu-zbh.jpg" title="震撼人心的无罪辩护" alt="震撼人心的无罪辩护"><br>无罪辩护震撼人心</a><br><a href="https://git.io/fj9lQ" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/6c10-720.jpg" title="从610到720" alt="从610到720"><br>从610到720</a><br><a href="https://git.io/fj9l7" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/xian-z.jpg" title="中共官员的选择" alt="中共官员的选择"><br>中共官员的选择</a><br><a href="https://git.io/fj9l5" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/1400l.jpg" title="剖析1400例" alt="剖析1400例"><br>剖析1400例</a><br><a href="https://git.io/fj9lb" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/425.jpg" title="万人上访真相" alt="万人上访真相"><br>万人上访真相</a><br><a href="https://git.io/fj9lN" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/qing-h.jpg" title="被中共迫害的清华学子" alt="被中共迫害的清华学子"><br>被迫害的清华学子</a><br><a href="https://git.io/fj9lx" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/jian-z513.jpg" title="见证513" alt="见证513"><br>见证513</a><br><a href="https://git.io/fj9lp" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/gongfu.jpg" title="功夫 寻道" alt="功夫 寻道"><br>功夫 寻道</a><br><a href="https://git.io/fj9lh" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/guangguimian.jpg" title="歌唱家人生奇迹" alt="歌唱家人生奇迹"><br>歌唱家的人生奇迹</a><br><a href="https://git.io/fj9lj" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/ming-jjy.jpg" title="名校精英的选择" alt="名校精英的选择"><br>名校精英的选择</a><br><a href="https://git.io/fj98e" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/yin-lj.jpg" title="音乐之家的故事" alt="音乐之家的故事"><br>音乐之家的故事</a><br><a href="https://git.io/fj98v" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/ming-hsf.jpg" title="平凡中的不平凡" alt="平凡中的不平凡"><br>平凡中的不平凡</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/13/9/29/n3974789.md?dfh#1" target="_blank"><img width="128" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/130/nizhibeituolanlao.jpg" title="善良女士被投男牢"  alt="善良女士被投男牢"><br>善良女士被投男牢</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/16/3/16/n4663449.md?dfh#1" target="_blank"><img width="128" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/130/huozhai1.jpg" title="警卫目击中共活摘"  alt="警卫目击中共活摘"><br>警卫目击中共活摘</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/10/11/7/n3077476.md?dfh#1" target="_blank"><img width="128" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/130/motoumks.jpg" title="马克思的成魔之路"  alt="马克思的成魔之路"><br>马克思的成魔之路</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/12/9/n10900044.md?dfh#1" target="_blank"><img width="128" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/130/konggaojm.jpg" title="303万人的举报"  alt="303万人的举报"><br>303万人的举报</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/8/12/18/n2367165.md?dfh#1" target="_blank"><img width="128" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/130/lianganduibi.jpg" title="海峡两岸强烈反差"  alt="海峡两岸强烈反差"><br>海峡两岸强烈反差</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/10/27/n10812623.md?dfh#1" target="_blank"><img width="128" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/130/yindu.jpg" title="印度媒体报道东方"  alt="印度媒体报道东方"><br>印度媒体报道东方</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/6/9/n10469652.md?dfh#1" target="_blank"><img width="128" src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/130/xuejiao.jpg" title="不一样的海外校园"  alt="不一样的海外校园"><br>不一样的海外校园</a><br>
+<tr><td VALIGN=TOP width="355"><h2><p><strong>中国人权</strong></p></h2><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11968055.md#1"><img width="150" align ="left" src="https://i.epochtimes.com/assets/uploads/2020/03/004FotoJet-320x200.jpg"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11968055.md#1">从香港入境深圳 旅客遭国保堵车门缴费</a><br><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11966631.md#1">山东省审计厅副厅长李宁被举报</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/21/n11962214.md#1">除了中共病毒 中共还在哪些问题上撒谎（2）</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/22/n11963674.md#1">法轮功学员陈孝民三兄弟遭中共迫害致死</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/22/n11963331.md#1">航空工程师胡林生前自述遭受中共的迫害</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/22/n11963570.md#1">黄琦母亲罹患肺癌 遭长期软禁 惶惶中度日</a><br><br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncid278.md#1">更多......</a></p></td><td VALIGN=TOP width="352"><h2><p><strong>中国经济</strong></p></h2><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968792.md#1"><img width="150" align ="left" src="https://i.epochtimes.com/assets/uploads/2020/02/676dcc01577de743530b6afba2c3f7c6-320x200.jpg"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968792.md#1">受中共病毒重创 华为声称生存是第一位问题</a><br><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968684.md#1">美媒：中共病毒加深美中不信任 加速双方脱钩</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11968043.md#1">现订单荒 东莞部署浴足按摩场所复工</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11968034.md#1">法国学者：中共利用全球疫情达其政经目的</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967932.md#1">此起彼伏 大陆多地商户上街要求减租免租</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967899.md#1">中共校企陷危机 紫光百亿债到期 方正违约</a><br><br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncid283.md#1">更多......</a></p></td></tr><tr><td VALIGN=TOP width="355"><h2><p><strong>大陆政治</strong></p></h2><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968647.md#1"><img width="150" align ="left" src="https://i.epochtimes.com/assets/uploads/2020/01/000_1OG785-320x200.jpg"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968647.md#1">守护防疫人员健康 台拟采购N95口罩产线</a><br><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968542.md#1">参议员促川普 多管齐下回击中共疫情大外宣</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11968278.md#1">中共大外宣甩锅宣传 专家：终以失败收场</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11966988.md#1">台警方侦办假疫情达300件 多为中共网军</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967374.md#1">崔天凯上美媒谈中共病毒来源 打脸赵立坚？</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967370.md#1">中共撒谎贴金 美发言人驳华春莹：一派胡言</a><br><br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncid277.md#1">更多......</a></p></td><td VALIGN=TOP width="352"><h2><p><strong>天灾人祸</strong></p></h2><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967918.md#1"><img width="150" align ="left" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1071834076-320x200.jpg"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967918.md#1">中共抹黑美军 美共和党委员会罕见发声谴责</a><br><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967554.md#1">每天仍检出多例感染者 援鄂疾控队暂缓撤离</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967585.md#1">【快讯】德国总理默克尔首次测试呈阴性</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11966324.md#1">欧洲疫情危机 荷兰官员：错在依赖中共信息</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967686.md#1">【直播回放】纽约州长库默考察临时医院建设</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967452.md#1">北京成防控重点？飞机绕行 不让湖北人返京</a><br><br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncid280.md#1">更多......</a></p></td></tr><tr><td VALIGN=TOP width="355"><h2><p><strong>社会万象</strong></p></h2><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968668.md#1"><img width="150" align ="left" src="/assets/themes/djy/images/djy_post_default_featured_image_320x200.jpg"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/24/n11968668.md#1">每日三退声明精选（2020/03/23）</a><br><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11966809.md#1">中共拟将内部矛盾外部化 台立委：绝不会得逞</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11966799.md#1">大陆制玩具搞统战 台经济部：会修法防范</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11967123.md#1">川普：不能让抗疫举措比病毒更糟糕</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11966599.md#1">嗅觉味觉无端失灵 或已染中共病毒</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/23/n11966037.md#1">每日三退声明精选（2020/03/22）</a><br><br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncid282.md#1">更多......</a></p></td><td VALIGN=TOP width="352"><h2><p><strong>科教文化</strong></p></h2><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/18/n11949658.md#1"><img width="150" align ="left" src="https://i.epochtimes.com/assets/uploads/2020/03/d5972bc1d265f8d603a958a87e1a3c89-320x200.jpg"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/18/n11949658.md#1">【现场视频】留学生回国被隔离在简陋宿舍</a><br><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/17/n11947141.md#1">视频：中共长征七号改中型运载火箭首发失败</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/17/n11946908.md#1">【现场视频】贵州毕节开学 学生入学被搜身</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/15/n11941987.md#1">视频：贵阳开首例 多间学校高年级开课遭批评</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/15/n11941686.md#1">中共肺炎疫情 使大陆教育问题恶化</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/gb/20/3/10/n11931040.md#1">晒暴饮暴食剧照 孙俪提醒粉丝不要效仿</a><br><br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncid281.md#1">更多......</a></p></td></tr><tr><td VALIGN=TOP width="355"></td><td VALIGN=TOP width="352"></td></tr>
+<tr><td VALIGN=TOP width="355"><h2><p><strong>九评共产党</strong></p></h2><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/11/19/n722529.md#1" target="_blank">【一】评共产党是什么</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/11/21/n723946.md#1" target="_blank">【二】评中国共产党是怎样起家的</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/11/23/n725597.md#1" target="_blank">【三】评中国共产党的暴政</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/11/25/n727814.md#1" target="_blank">【四】评共产党是反宇宙的力量</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/11/27/n730058.md#1" target="_blank">【五】评江泽民与中共相互利用迫害法轮功</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/11/29/n731667.md#1" target="_blank">【六】评中国共产党破坏民族文化</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/12/1/n733806.md#1" target="_blank">【七】评中国共产党的杀人历史</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/12/3/n735942.md#1" target="_blank">【八】评中国共产党的邪教本质</a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/4/12/4/n737542.md#1" target="_blank">【九】评中国共产党的流氓本性</a></td><td VALIGN=TOP width="352"><h2><p><strong>三退大潮</strong></p></h2>sssssssssssss<br><p><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf3046.md#1">更多......</a></p></td></tr></table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/pmjgtr230/djy/blob/master/gb/nf1351518.md#1<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1351518.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pmjgtr230/djy/blob/master/gb/nf1351518.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/nf1351518.htm">https://www.epochtimes.com/gb/nf1351518.htm</a>    （国内需<a href="https://github.com/pmjgtr230/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）
