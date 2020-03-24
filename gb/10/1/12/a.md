@@ -12,18 +12,18 @@
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11962164.md#1" title="美学者:北京瞒疫罔顾生命 令全球看清中共""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/maxresdefault-320x200.jpg">&nbsp;</a>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968052.md#1" title="【一线采访】武汉民众:病毒或留体内 忧再爆发""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/5dc6612d864525d273fbc0705c5405c8-320x200.jpg">&nbsp;</a>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968137.md#1" title="【直播】3·23美国疫情白宫新闻发布会""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/15fdbcf2d8814528_ttl7dayCKG_15fd8c53f5bed8a6_ttl7dayiFD_____1-1-320x200.jpg">&nbsp;</a>
-<hr><strong><h2>退出中共党、团、队总人数:</h2><h1>
+<hr><p align="center"><strong>退出中共党、团、队总人数:
 
 ```diff
 ! 共 352,952,179 人
 ```	
-</h1><h2>我要退出中共党团队</h2></strong>
+我要退出中共党团队</strong></p>
 <br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a></p><hr><h2><p><strong>即时快讯&nbsp;&#160;&nbsp;&#160; :bar_chart: <a target="_blank" href="https://pmjgtr230.github.io/oo/yq.html">全球疫情地图</a></strong></p></h2>
-:clock8: <em>2分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969857.md#1">大陆房企1.46万亿债务到期 引业界担忧</a><br>
-:clock8: <em>15分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968825.md#1">【疫情下的纽约人】为老人送餐的人</a><br>
-:clock8: <em>52分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968907.md#1">瑞银财富预计大陆GDP增幅1.5% 中金亦看衰</a><br>
-:clock8: <em>57分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969979.md#1">游轮乘客在悉尼下船 澳洲病例激增</a><br>
-:clock8: <em>58分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968685.md#1">【翻墙必看】疫情下大陆海量手机用户消失</a><br>
+:clock8: <em>9分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969857.md#1">大陆房企1.46万亿债务到期 引业界担忧</a><br>
+:clock8: <em>21分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968825.md#1">【疫情下的纽约人】为老人送餐的人</a><br>
+:clock8: <em>58分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968907.md#1">瑞银财富预计大陆GDP增幅1.5% 中金亦看衰</a><br>
+:clock8: <em>1小时</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969979.md#1">游轮乘客在悉尼下船 澳洲病例激增</a><br>
+:clock8: <em>1小时</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968685.md#1">【翻墙必看】疫情下大陆海量手机用户消失</a><br>
 :clock8: <em>2小时</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969755.md#1">中共肺炎疫情尚在 官方宣布武汉将“解封”</a><br>
 <hr><h2><p><strong>新闻排行</strong></p></h2>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964527.md#1">网传习近平抱孩子旧片 称“保留本色重要”</a><br>
