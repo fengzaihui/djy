@@ -2,14 +2,15 @@
 
 ```diff
 ! 共 352,952,179 人
-```	 </h1><h2>我要退出中共党团队</h2></strong>
+```	
+</h1><h2>我要退出中共党团队</h2></strong>
 <br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a></p><hr><h2><p><strong>即时快讯&nbsp;&#160;&nbsp;&#160; :bar_chart: <a target="_blank" href="https://pmjgtr230.github.io/oo/yq.html">全球疫情地图</a></strong></p></h2>
-:clock8: <em>6分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968825.md#1">【疫情下的纽约人】为老人送餐的人</a><br>
-:clock8: <em>43分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968907.md#1">瑞银财富预计大陆GDP增幅1.5% 中金亦看衰</a><br>
-:clock8: <em>49分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969979.md#1">游轮乘客在悉尼下船 澳洲病例激增</a><br>
-:clock8: <em>50分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968685.md#1">【翻墙必看】疫情下大陆海量手机用户消失</a><br>
+:clock8: <em>37分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968907.md#1">瑞银财富预计大陆GDP增幅1.5% 中金亦看衰</a><br>
+:clock8: <em>42分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969979.md#1">游轮乘客在悉尼下船 澳洲病例激增</a><br>
+:clock8: <em>43分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968685.md#1">【翻墙必看】疫情下大陆海量手机用户消失</a><br>
 :clock8: <em>1小时</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969755.md#1">中共肺炎疫情尚在 官方宣布武汉将“解封”</a><br>
 :clock8: <em>2小时</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11966759.md#1">600磅海狮跑到森林中 警员如何让它回家呢？</a><br>
+:clock8: <em>2小时</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968366.md#1">【最新疫情3.24】中东亚洲国家求助IMF</a><br>
 <hr><h2><p><strong>新闻排行</strong></p></h2>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964527.md#1">网传习近平抱孩子旧片 称“保留本色重要”</a><br>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11963608.md#1">为中共唱赞歌 谭德塞与北京关系有何内幕</a><br>
