@@ -43,7 +43,7 @@
 !退出中共党、团、队总人数:
 !共 352,969,792 人
 ```
-</strong><p align="center"><strong align="center"><a href="https://x.co/dd3">我要退出中共党团队</a></strong></h2>
+</strong></h2><p align="center"><strong align="center"><a href="https://x.co/dd3">我要退出中共党团队</a></strong>
 </td><td VALIGN=TOP width="352">
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965551.md#1">分析：大疫之下中国两千万手机用户消失</a><br>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969206.md#1">【一线采访】隐匿疫情酿祸 武汉人要求国赔</a><br>
