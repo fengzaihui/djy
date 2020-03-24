@@ -1,659 +1,659 @@
-  :palm_tree:     palm_tree<br>
-  :face_with_thermometer:     face_with_thermometer<br>
-  :house:     house<br>
-  :dart:     dart<br>
-  :art:     art<br>
-  :zap:     zap<br>
-  :racehorse:     racehorse<br>
-  :fire:     fire<br>
-  :bug:     bug<br>
-  :ambulance:     ambulance<br>
-  :sparkles:     sparkles<br>
-  :memo:     memo<br>
-  :rocket:     rocket<br>
-  :lipstick:     lipstick<br>
-  :tada:     tada<br>
-  :white_check_mark:     white_check_mark<br>
-  :lock:     lock<br>
-  :apple:     apple<br>
-  :penguin:     penguin<br>
-  :checkered_flag:     checkered_flag<br>
-  :bookmark:     bookmark<br>
-  :rotating_light:     rotating_light<br>
-  :construction:     construction<br>
-  :green_heart:     green_heart<br>
-  :arrow_down:     arrow_down<br>
-  :arrow_up:     arrow_up<br>
-  :construction_worker_man:     construction_worker_man<br>
-  :chart_with_upwards_trend:     chart_with_upwards_trend<br>
-  :hammer:     hammer<br>
-  :heavy_minus_sign:     heavy_minus_sign<br>
-  :whale:     whale<br>
-  :heavy_plus_sign:     heavy_plus_sign<br>
-  :wrench:     wrench<br>
-  :globe_with_meridians:     globe_with_meridians<br>
-  :pencil2:     pencil2<br>
-  :robot:     robot<br>
-  :green_apple:     green_apple<br>
-  :pushpin:     pushpin<br>
-  :recycle:     recycle<br>
-  :hankey:     hankey<br>
-  :rewind:     rewind<br>
-  :twisted_rightwards_arrows:     twisted_rightwards_arrows<br>
-  :package:     package<br>
-  :alien:     alien<br>
-  :truck:     truck<br>
-  :page_facing_up:     page_facing_up<br>
-  :boom:     boom<br>
-  :bento:     bento<br>
-  :ok_hand:     ok_hand<br>
-  :wheelchair:     wheelchair<br>
-  :bulb:     bulb<br>
-  :beers:     beers<br>
-  :speech_balloon:     speech_balloon<br>
-  :card_file_box:     card_file_box<br>
-  :loud_sound:     loud_sound<br>
-  :mute:     mute<br>
-  :busts_in_silhouette:     busts_in_silhouette<br>
-  :children_crossing:     children_crossing<br>
-  :building_construction:     building_construction<br>
-  :iphone:     iphone<br>
-  :clown_face:     clown_face<br>
-  :egg:     egg<br>
-  :see_no_evil:     see_no_evil<br>
-  :camera_flash:     camera_flash<br>
-  :alembic:     alembic<br>
-  :mag:     mag<br>
-  :wheel_of_dharma:     wheel_of_dharma<br>
-  :label:     label<br>
-  :seedling:     seedling<br>
-  :triangular_flag_on_post:     triangular_flag_on_post<br>
-  :dizzy:     dizzy<br>
-  :cyclone:     cyclone<br>
-  :foggy:     foggy<br>
-  :closed_umbrella:     closed_umbrella<br>
-  :night_with_stars:     night_with_stars<br>
-  :sunrise_over_mountains:     sunrise_over_mountains<br>
-  :sunrise:     sunrise<br>
-  :city_sunset:     city_sunset<br>
-  :city_sunrise:     city_sunrise<br>
-  :rainbow:     rainbow<br>
-  :bridge_at_night:     bridge_at_night<br>
-  :ocean:     ocean<br>
-  :volcano:     volcano<br>
-  :milky_way:     milky_way<br>
-  :earth_asia:     earth_asia<br>
-  :new_moon:     new_moon<br>
-  :moon:     moon<br>
-  :first_quarter_moon:     first_quarter_moon<br>
-  :crescent_moon:     crescent_moon<br>
-  :full_moon:     full_moon<br>
-  :first_quarter_moon_with_face:     first_quarter_moon_with_face<br>
-  :star2:     star2<br>
-  :stars:     stars<br>
-  :clock1:     clock1<br>
-  :clock2:     clock2<br>
-  :clock3:     clock3<br>
-  :clock4:     clock4<br>
-  :clock5:     clock5<br>
-  :clock6:     clock6<br>
-  :clock7:     clock7<br>
-  :clock8:     clock8<br>
-  :clock9:     clock9<br>
-  :clock10:     clock10<br>
-  :clock11:     clock11<br>
-  :clock12:     clock12<br>
-  :alarm_clock:     alarm_clock<br>
-  :hourglass_flowing_sand:     hourglass_flowing_sand<br>
-  :ophiuchus:     ophiuchus<br>
-  :four_leaf_clover:     four_leaf_clover<br>
-  :tulip:     tulip<br>
-  :maple_leaf:     maple_leaf<br>
-  :cherry_blossom:     cherry_blossom<br>
-  :rose:     rose<br>
-  :fallen_leaf:     fallen_leaf<br>
-  :leaves:     leaves<br>
-  :hibiscus:     hibiscus<br>
-  :sunflower:     sunflower<br>
-  :cactus:     cactus<br>
-  :ear_of_rice:     ear_of_rice<br>
-  :corn:     corn<br>
-  :mushroom:     mushroom<br>
-  :chestnut:     chestnut<br>
-  :blossom:     blossom<br>
-  :herb:     herb<br>
-  :cherries:     cherries<br>
-  :banana:     banana<br>
-  :tangerine:     tangerine<br>
-  :strawberry:     strawberry<br>
-  :watermelon:     watermelon<br>
-  :tomato:     tomato<br>
-  :eggplant:     eggplant<br>
-  :melon:     melon<br>
-  :pineapple:     pineapple<br>
-  :grapes:     grapes<br>
-  :peach:     peach<br>
-  :eyes:     eyes<br>
-  :ear:     ear<br>
-  :nose:     nose<br>
-  :lips:     lips<br>
-  :tongue:     tongue<br>
-  :nail_care:     nail_care<br>
-  :massage_woman:     massage_woman<br>
-  :haircut_woman:     haircut_woman<br>
-  :barber:     barber<br>
-  :bust_in_silhouette:     bust_in_silhouette<br>
-  :boy:     boy<br>
-  :girl:     girl<br>
-  :man:     man<br>
-  :woman:     woman<br>
-  :family_man_woman_boy:     family_man_woman_boy<br>
-  :couple:     couple<br>
-  :policeman:     policeman<br>
-  :dancing_women:     dancing_women<br>
-  :bride_with_veil:     bride_with_veil<br>
-  :blonde_man:     blonde_man<br>
-  :man_with_gua_pi_mao:     man_with_gua_pi_mao<br>
-  :man_with_turban:     man_with_turban<br>
-  :older_man:     older_man<br>
-  :older_woman:     older_woman<br>
-  :baby:     baby<br>
-  :princess:     princess<br>
-  :japanese_ogre:     japanese_ogre<br>
-  :japanese_goblin:     japanese_goblin<br>
-  :ghost:     ghost<br>
-  :angel:     angel<br>
-  :space_invader:     space_invader<br>
-  :imp:     imp<br>
-  :skull:     skull<br>
-  :tipping_hand_woman:     tipping_hand_woman<br>
-  :guardsman:     guardsman<br>
-  :dancer:     dancer<br>
-  :snail:     snail<br>
-  :snake:     snake<br>
-  :chicken:     chicken<br>
-  :boar:     boar<br>
-  :camel:     camel<br>
-  :elephant:     elephant<br>
-  :koala:     koala<br>
-  :monkey:     monkey<br>
-  :sheep:     sheep<br>
-  :octopus:     octopus<br>
-  :shell:     shell<br>
-  :ant:     ant<br>
-  :bee:     bee<br>
-  :beetle:     beetle<br>
-  :tropical_fish:     tropical_fish<br>
-  :blowfish:     blowfish<br>
-  :turtle:     turtle<br>
-  :baby_chick:     baby_chick<br>
-  :hatched_chick:     hatched_chick<br>
-  :bird:     bird<br>
-  :hatching_chick:     hatching_chick<br>
-  :poodle:     poodle<br>
-  :fish:     fish<br>
-  :dolphin:     dolphin<br>
-  :mouse:     mouse<br>
-  :tiger:     tiger<br>
-  :cat:     cat<br>
-  :horse:     horse<br>
-  :monkey_face:     monkey_face<br>
-  :dog:     dog<br>
-  :pig:     pig<br>
-  :bear:     bear<br>
-  :hamster:     hamster<br>
-  :wolf:     wolf<br>
-  :cow:     cow<br>
-  :rabbit:     rabbit<br>
-  :frog:     frog<br>
-  :feet:     feet<br>
-  :dragon_face:     dragon_face<br>
-  :panda_face:     panda_face<br>
-  :pig_nose:     pig_nose<br>
-  :angry:     angry<br>
-  :weary:     weary<br>
-  :astonished:     astonished<br>
-  :disappointed:     disappointed<br>
-  :dizzy_face:     dizzy_face<br>
-  :cold_sweat:     cold_sweat<br>
-  :unamused:     unamused<br>
-  :heart_eyes:     heart_eyes<br>
-  :triumph:     triumph<br>
-  :stuck_out_tongue_winking_eye:     stuck_out_tongue_winking_eye<br>
-  :stuck_out_tongue_closed_eyes:     stuck_out_tongue_closed_eyes<br>
-  :yum:     yum<br>
-  :kissing_heart:     kissing_heart<br>
-  :kissing_closed_eyes:     kissing_closed_eyes<br>
-  :mask:     mask<br>
-  :flushed:     flushed<br>
-  :smiley:     smiley<br>
-  :sweat_smile:     sweat_smile<br>
-  :laughing:     laughing<br>
-  :grin:     grin<br>
-  :joy:     joy<br>
-  :blush:     blush<br>
-  :smile:     smile<br>
-  :cry:     cry<br>
-  :sob:     sob<br>
-  :fearful:     fearful<br>
-  :persevere:     persevere<br>
-  :rage:     rage<br>
-  :relieved:     relieved<br>
-  :confounded:     confounded<br>
-  :pensive:     pensive<br>
-  :scream:     scream<br>
-  :sleepy:     sleepy<br>
-  :smirk:     smirk<br>
-  :sweat:     sweat<br>
-  :disappointed_relieved:     disappointed_relieved<br>
-  :tired_face:     tired_face<br>
-  :wink:     wink<br>
-  :smiley_cat:     smiley_cat<br>
-  :smile_cat:     smile_cat<br>
-  :joy_cat:     joy_cat<br>
-  :kissing_cat:     kissing_cat<br>
-  :heart_eyes_cat:     heart_eyes_cat<br>
-  :crying_cat_face:     crying_cat_face<br>
-  :pouting_cat:     pouting_cat<br>
-  :smirk_cat:     smirk_cat<br>
-  :scream_cat:     scream_cat<br>
-  :no_good_woman:     no_good_woman<br>
-  :ok_woman:     ok_woman<br>
-  :bowing_man:     bowing_man<br>
-  :speak_no_evil:     speak_no_evil<br>
-  :hear_no_evil:     hear_no_evil<br>
-  :raising_hand_woman:     raising_hand_woman<br>
-  :raised_hands:     raised_hands<br>
-  :frowning_woman:     frowning_woman<br>
-  :pouting_woman:     pouting_woman<br>
-  :pray:     pray<br>
-  :house_with_garden:     house_with_garden<br>
-  :office:     office<br>
-  :post_office:     post_office<br>
-  :hospital:     hospital<br>
-  :bank:     bank<br>
-  :atm:     atm<br>
-  :hotel:     hotel<br>
-  :love_hotel:     love_hotel<br>
-  :convenience_store:     convenience_store<br>
-  :school:     school<br>
-  :department_store:     department_store<br>
-  :japanese_castle:     japanese_castle<br>
-  :european_castle:     european_castle<br>
-  :factory:     factory<br>
-  :izakaya_lantern:     izakaya_lantern<br>
-  :mount_fuji:     mount_fuji<br>
-  :tokyo_tower:     tokyo_tower<br>
-  :statue_of_liberty:     statue_of_liberty<br>
-  :japan:     japan<br>
-  :moyai:     moyai<br>
-  :mans_shoe:     mans_shoe<br>
-  :athletic_shoe:     athletic_shoe<br>
-  :high_heel:     high_heel<br>
-  :sandal:     sandal<br>
-  :boot:     boot<br>
-  :footprints:     footprints<br>
-  :eyeglasses:     eyeglasses<br>
-  :shirt:     shirt<br>
-  :jeans:     jeans<br>
-  :crown:     crown<br>
-  :necktie:     necktie<br>
-  :womans_hat:     womans_hat<br>
-  :dress:     dress<br>
-  :kimono:     kimono<br>
-  :bikini:     bikini<br>
-  :womans_clothes:     womans_clothes<br>
-  :purse:     purse<br>
-  :handbag:     handbag<br>
-  :pouch:     pouch<br>
-  :moneybag:     moneybag<br>
-  :currency_exchange:     currency_exchange<br>
-  :chart:     chart<br>
-  :heavy_dollar_sign:     heavy_dollar_sign<br>
-  :credit_card:     credit_card<br>
-  :yen:     yen<br>
-  :dollar:     dollar<br>
-  :money_with_wings:     money_with_wings<br>
-  :flashlight:     flashlight<br>
-  :nut_and_bolt:     nut_and_bolt<br>
-  :hocho:     hocho<br>
-  :gun:     gun<br>
-  :crystal_ball:     crystal_ball<br>
-  :six_pointed_star:     six_pointed_star<br>
-  :beginner:     beginner<br>
-  :trident:     trident<br>
-  :syringe:     syringe<br>
-  :pill:     pill<br>
-  :ab:     ab<br>
-  :ribbon:     ribbon<br>
-  :gift:     gift<br>
-  :birthday:     birthday<br>
-  :christmas_tree:     christmas_tree<br>
-  :santa:     santa<br>
-  :crossed_flags:     crossed_flags<br>
-  :fireworks:     fireworks<br>
-  :balloon:     balloon<br>
-  :bamboo:     bamboo<br>
-  :dolls:     dolls<br>
-  :mortar_board:     mortar_board<br>
-  :school_satchel:     school_satchel<br>
-  :flags:     flags<br>
-  :sparkler:     sparkler<br>
-  :wind_chime:     wind_chime<br>
-  :jack_o_lantern:     jack_o_lantern<br>
-  :confetti_ball:     confetti_ball<br>
-  :tanabata_tree:     tanabata_tree<br>
-  :rice_scene:     rice_scene<br>
-  :pager:     pager<br>
-  :telephone_receiver:     telephone_receiver<br>
-  :calling:     calling<br>
-  :fax:     fax<br>
-  :incoming_envelope:     incoming_envelope<br>
-  :envelope_with_arrow:     envelope_with_arrow<br>
-  :mailbox_closed:     mailbox_closed<br>
-  :mailbox:     mailbox<br>
-  :postbox:     postbox<br>
-  :newspaper:     newspaper<br>
-  :loudspeaker:     loudspeaker<br>
-  :mega:     mega<br>
-  :satellite:     satellite<br>
-  :outbox_tray:     outbox_tray<br>
-  :inbox_tray:     inbox_tray<br>
-  :e-mail:     e-mail<br>
-  :capital_abcd:     capital_abcd<br>
-  :abcd:     abcd<br>
-  :1234:     1234<br>
-  :symbols:     symbols<br>
-  :abc:     abc<br>
-  :seat:     seat<br>
-  :computer:     computer<br>
-  :paperclip:     paperclip<br>
-  :briefcase:     briefcase<br>
-  :minidisc:     minidisc<br>
-  :floppy_disk:     floppy_disk<br>
-  :cd:     cd<br>
-  :dvd:     dvd<br>
-  :round_pushpin:     round_pushpin<br>
-  :page_with_curl:     page_with_curl<br>
-  :date:     date<br>
-  :file_folder:     file_folder<br>
-  :open_file_folder:     open_file_folder<br>
-  :notebook:     notebook<br>
-  :book:     book<br>
-  :notebook_with_decorative_cover:     notebook_with_decorative_cover<br>
-  :closed_book:     closed_book<br>
-  :green_book:     green_book<br>
-  :blue_book:     blue_book<br>
-  :orange_book:     orange_book<br>
-  :books:     books<br>
-  :name_badge:     name_badge<br>
-  :scroll:     scroll<br>
-  :clipboard:     clipboard<br>
-  :calendar:     calendar<br>
-  :bar_chart:     bar_chart<br>
-  :chart_with_downwards_trend:     chart_with_downwards_trend<br>
-  :card_index:     card_index<br>
-  :ledger:     ledger<br>
-  :straight_ruler:     straight_ruler<br>
-  :triangular_ruler:     triangular_ruler<br>
-  :bookmark_tabs:     bookmark_tabs<br>
-  :running_shirt_with_sash:     running_shirt_with_sash<br>
-  :tennis:     tennis<br>
-  :ski:     ski<br>
-  :basketball:     basketball<br>
-  :snowboarder:     snowboarder<br>
-  :running_man:     running_man<br>
-  :surfing_man:     surfing_man<br>
-  :trophy:     trophy<br>
-  :football:     football<br>
-  :swimming_man:     swimming_man<br>
-  :railway_car:     railway_car<br>
-  :metro:     metro<br>
-  :bullettrain_side:     bullettrain_side<br>
-  :bullettrain_front:     bullettrain_front<br>
-  :car:     car<br>
-  :blue_car:     blue_car<br>
-  :bus:     bus<br>
-  :busstop:     busstop<br>
-  :ship:     ship<br>
-  :station:     station<br>
-  :speedboat:     speedboat<br>
-  :taxi:     taxi<br>
-  :fire_engine:     fire_engine<br>
-  :police_car:     police_car<br>
-  :traffic_light:     traffic_light<br>
-  :carousel_horse:     carousel_horse<br>
-  :ferris_wheel:     ferris_wheel<br>
-  :roller_coaster:     roller_coaster<br>
-  :fishing_pole_and_fish:     fishing_pole_and_fish<br>
-  :microphone:     microphone<br>
-  :movie_camera:     movie_camera<br>
-  :cinema:     cinema<br>
-  :headphones:     headphones<br>
-  :tophat:     tophat<br>
-  :circus_tent:     circus_tent<br>
-  :ticket:     ticket<br>
-  :clapper:     clapper<br>
-  :performing_arts:     performing_arts<br>
-  :video_game:     video_game<br>
-  :slot_machine:     slot_machine<br>
-  :8ball:     8ball<br>
-  :game_die:     game_die<br>
-  :bowling:     bowling<br>
-  :flower_playing_cards:     flower_playing_cards<br>
-  :black_joker:     black_joker<br>
-  :musical_note:     musical_note<br>
-  :notes:     notes<br>
-  :saxophone:     saxophone<br>
-  :guitar:     guitar<br>
-  :musical_keyboard:     musical_keyboard<br>
-  :trumpet:     trumpet<br>
-  :violin:     violin<br>
-  :musical_score:     musical_score<br>
-  :camera:     camera<br>
-  :video_camera:     video_camera<br>
-  :tv:     tv<br>
-  :radio:     radio<br>
-  :vhs:     vhs<br>
-  :kiss:     kiss<br>
-  :love_letter:     love_letter<br>
-  :ring:     ring<br>
-  :gem:     gem<br>
-  :couplekiss_man_woman:     couplekiss_man_woman<br>
-  :bouquet:     bouquet<br>
-  :couple_with_heart_woman_man:     couple_with_heart_woman_man<br>
-  :wedding:     wedding<br>
-  :underage:     underage<br>
-  :keycap_ten:     keycap_ten<br>
-  :signal_strength:     signal_strength<br>
-  :vibration_mode:     vibration_mode<br>
-  :mobile_phone_off:     mobile_phone_off<br>
-  :hamburger:     hamburger<br>
-  :rice_ball:     rice_ball<br>
-  :cake:     cake<br>
-  :ramen:     ramen<br>
-  :bread:     bread<br>
-  :fried_egg:     fried_egg<br>
-  :icecream:     icecream<br>
-  :fries:     fries<br>
-  :dango:     dango<br>
-  :rice_cracker:     rice_cracker<br>
-  :rice:     rice<br>
-  :spaghetti:     spaghetti<br>
-  :curry:     curry<br>
-  :oden:     oden<br>
-  :sushi:     sushi<br>
-  :stew:     stew<br>
-  :shaved_ice:     shaved_ice<br>
-  :meat_on_bone:     meat_on_bone<br>
-  :fish_cake:     fish_cake<br>
-  :sweet_potato:     sweet_potato<br>
-  :pizza:     pizza<br>
-  :poultry_leg:     poultry_leg<br>
-  :ice_cream:     ice_cream<br>
-  :doughnut:     doughnut<br>
-  :cookie:     cookie<br>
-  :chocolate_bar:     chocolate_bar<br>
-  :candy:     candy<br>
-  :lollipop:     lollipop<br>
-  :custard:     custard<br>
-  :honey_pot:     honey_pot<br>
-  :fried_shrimp:     fried_shrimp<br>
-  :fork_and_knife:     fork_and_knife<br>
-  :cocktail:     cocktail<br>
-  :beer:     beer<br>
-  :tea:     tea<br>
-  :sake:     sake<br>
-  :wine_glass:     wine_glass<br>
-  :tropical_drink:     tropical_drink<br>
-  :fast_forward:     fast_forward<br>
-  :arrow_double_up:     arrow_double_up<br>
-  :arrow_double_down:     arrow_double_down<br>
-  :small_red_triangle:     small_red_triangle<br>
-  :small_red_triangle_down:     small_red_triangle_down<br>
-  :arrow_up_small:     arrow_up_small<br>
-  :arrow_down_small:     arrow_down_small<br>
-  :x:     x<br>
-  :negative_squared_cross_mark:     negative_squared_cross_mark<br>
-  :question:     question<br>
-  :grey_question:     grey_question<br>
-  :grey_exclamation:     grey_exclamation<br>
-  :curly_loop:     curly_loop<br>
-  :heartbeat:     heartbeat<br>
-  :broken_heart:     broken_heart<br>
-  :two_hearts:     two_hearts<br>
-  :sparkling_heart:     sparkling_heart<br>
-  :heartpulse:     heartpulse<br>
-  :cupid:     cupid<br>
-  :blue_heart:     blue_heart<br>
-  :yellow_heart:     yellow_heart<br>
-  :purple_heart:     purple_heart<br>
-  :gift_heart:     gift_heart<br>
-  :revolving_hearts:     revolving_hearts<br>
-  :heart_decoration:     heart_decoration<br>
-  :smoking:     smoking<br>
-  :no_smoking:     no_smoking<br>
-  :bike:     bike<br>
-  :walking_man:     walking_man<br>
-  :mens:     mens<br>
-  :womens:     womens<br>
-  :bath:     bath<br>
-  :restroom:     restroom<br>
-  :toilet:     toilet<br>
-  :wc:     wc<br>
-  :baby_symbol:     baby_symbol<br>
-  :door:     door<br>
-  :no_entry_sign:     no_entry_sign<br>
-  :cl:     cl<br>
-  :cool:     cool<br>
-  :free:     free<br>
-  :id:     id<br>
-  :new:     new<br>
-  :ng:     ng<br>
-  :ok:     ok<br>
-  :sos:     sos<br>
-  :up:     up<br>
-  :vs:     vs<br>
-  :koko:     koko<br>
-  :u7981:     u7981<br>
-  :u7a7a:     u7a7a<br>
-  :u5408:     u5408<br>
-  :u6e80:     u6e80<br>
-  :u6709:     u6709<br>
-  :u7533:     u7533<br>
-  :u5272:     u5272<br>
-  :u55b6:     u55b6<br>
-  :ideograph_advantage:     ideograph_advantage<br>
-  :accept:     accept<br>
-  :heavy_division_sign:     heavy_division_sign<br>
-  :diamond_shape_with_a_dot_inside:     diamond_shape_with_a_dot_inside<br>
-  :anger:     anger<br>
-  :bomb:     bomb<br>
-  :zzz:     zzz<br>
-  :sweat_drops:     sweat_drops<br>
-  :droplet:     droplet<br>
-  :dash:     dash<br>
-  :muscle:     muscle<br>
-  :red_circle:     red_circle<br>
-  :large_blue_circle:     large_blue_circle<br>
-  :black_square_button:     black_square_button<br>
-  :white_square_button:     white_square_button<br>
-  :large_orange_diamond:     large_orange_diamond<br>
-  :large_blue_diamond:     large_blue_diamond<br>
-  :small_orange_diamond:     small_orange_diamond<br>
-  :small_blue_diamond:     small_blue_diamond<br>
-  :white_flower:     white_flower<br>
-  :100:     100<br>
-  :arrows_clockwise:     arrows_clockwise<br>
-  :battery:     battery<br>
-  :electric_plug:     electric_plug<br>
-  :mag_right:     mag_right<br>
-  :unlock:     unlock<br>
-  :lock_with_ink_pen:     lock_with_ink_pen<br>
-  :closed_lock_with_key:     closed_lock_with_key<br>
-  :key:     key<br>
-  :bell:     bell<br>
-  :radio_button:     radio_button<br>
-  :link:     link<br>
-  :back:     back<br>
-  :end:     end<br>
-  :on:     on<br>
-  :soon:     soon<br>
-  :top:     top<br>
-  :fist_raised:     fist_raised<br>
-  :hand:     hand<br>
-  :fist_oncoming:     fist_oncoming<br>
-  :+1:     +1<br>
-  :point_up_2:     point_up_2<br>
-  :point_down:     point_down<br>
-  :point_left:     point_left<br>
-  :point_right:     point_right<br>
-  :wave:     wave<br>
-  :clap:     clap<br>
-  :-1:     -1<br>
-  :open_hands:     open_hands<br>
-  :cloud:     cloud<br>
-  :snowflake:     snowflake<br>
-  :watch:     watch<br>
-  :hourglass:     hourglass<br>
-  :aries:     aries<br>
-  :taurus:     taurus<br>
-  :gemini:     gemini<br>
-  :cancer:     cancer<br>
-  :leo:     leo<br>
-  :virgo:     virgo<br>
-  :libra:     libra<br>
-  :scorpius:     scorpius<br>
-  :sagittarius:     sagittarius<br>
-  :capricorn:     capricorn<br>
-  :aquarius:     aquarius<br>
-  :pisces:     pisces<br>
-  :church:     church<br>
-  :fountain:     fountain<br>
-  :anchor:     anchor<br>
-  :email:     email<br>
-  :black_nib:     black_nib<br>
-  :baseball:     baseball<br>
-  :airplane:     airplane<br>
-  :boat:     boat<br>
-  :tent:     tent<br>
-  :part_alternation_mark:     part_alternation_mark<br>
-  :information_source:     information_source<br>
-  :left_right_arrow:     left_right_arrow<br>
-  :wavy_dash:     wavy_dash<br>
-  :no_entry:     no_entry<br>
-  :heavy_check_mark:     heavy_check_mark<br>
-  :heavy_multiplication_x:     heavy_multiplication_x<br>
-  :eight_pointed_black_star:     eight_pointed_black_star<br>
-  :eight_spoked_asterisk:     eight_spoked_asterisk<br>
-  :white_large_square:     white_large_square<br>
-  :black_large_square:     black_large_square<br>
-  :white_small_square:     white_small_square<br>
-  :black_small_square:     black_small_square<br>
-  :white_medium_small_square:     white_medium_small_square<br>
-  :black_medium_small_square:     black_medium_small_square<br>
-  :white_medium_square:     white_medium_square<br>
-  :black_medium_square:     black_medium_square<br>
-  :sparkle:     sparkle<br>
-  :leftwards_arrow_with_hook:     leftwards_arrow_with_hook<br>
-  :ballot_box_with_check:     ballot_box_with_check<br>
+  :palm_tree:     palm_tree: 	棕榈树<br>
+  :face_with_thermometer:     face_with_thermometer: 	面对温度计<br>
+  :house:     house: 	屋<br>
+  :dart:     dart: 	镖<br>
+  :art:     art: 	艺术<br>
+  :zap:     zap: 	扎普<br>
+  :racehorse:     racehorse: 	赛马<br>
+  :fire:     fire: 	火<br>
+  :bug:     bug: 	虫子<br>
+  :ambulance:     ambulance: 	救护车<br>
+  :sparkles:     sparkles: 	闪闪发光<br>
+  :memo:     memo: 	备忘录<br>
+  :rocket:     rocket: 	火箭<br>
+  :lipstick:     lipstick: 	口红<br>
+  :tada:     tada: 	多田<br>
+  :white_check_mark:     white_check_mark: 	白色复选标记<br>
+  :lock:     lock: 	锁<br>
+  :apple:     apple: 	苹果<br>
+  :penguin:     penguin: 	企鹅<br>
+  :checkered_flag:     checkered_flag: 	方格的旗<br>
+  :bookmark:     bookmark: 	书签<br>
+  :rotating_light:     rotating_light: 	旋转灯<br>
+  :construction:     construction: 	施工<br>
+  :green_heart:     green_heart: 	绿心<br>
+  :arrow_down:     arrow_down: 	向下箭头<br>
+  :arrow_up:     arrow_up: 	向上箭头<br>
+  :construction_worker_man:     construction_worker_man: 	建筑工人人<br>
+  :chart_with_upwards_trend:     chart_with_upwards_trend: 	趋势上升的图表<br>
+  :hammer:     hammer: 	锤子<br>
+  :heavy_minus_sign:     heavy_minus_sign: 	重减号<br>
+  :whale:     whale: 	鲸<br>
+  :heavy_plus_sign:     heavy_plus_sign: 	重加号<br>
+  :wrench:     wrench: 	扳手<br>
+  :globe_with_meridians:     globe_with_meridians: 	地球与经络<br>
+  :pencil2:     pencil2: 	铅笔2<br>
+  :robot:     robot: 	机器人<br>
+  :green_apple:     green_apple: 	青苹果<br>
+  :pushpin:     pushpin: 	图钉<br>
+  :recycle:     recycle: 	回收<br>
+  :hankey:     hankey: 	汉基<br>
+  :rewind:     rewind: 	倒带<br>
+  :twisted_rightwards_arrows:     twisted_rightwards_arrows: 	向右扭曲箭头<br>
+  :package:     package: 	包<br>
+  :alien:     alien: 	外星人<br>
+  :truck:     truck: 	卡车<br>
+  :page_facing_up:     page_facing_up: 	页面朝上<br>
+  :boom:     boom: 	繁荣<br>
+  :bento:     bento: 	便当<br>
+  :ok_hand:     ok_hand: 	好的手<br>
+  :wheelchair:     wheelchair: 	轮椅<br>
+  :bulb:     bulb: 	灯泡<br>
+  :beers:     beers: 	啤酒<br>
+  :speech_balloon:     speech_balloon: 	语音气球<br>
+  :card_file_box:     card_file_box: 	卡文件盒<br>
+  :loud_sound:     loud_sound: 	响亮的声音<br>
+  :mute:     mute: 	静音<br>
+  :busts_in_silhouette:     busts_in_silhouette: 	剪影的半身像<br>
+  :children_crossing:     children_crossing: 	儿童穿越<br>
+  :building_construction:     building_construction: 	建筑施工<br>
+  :iphone:     iphone: 	苹果手机<br>
+  :clown_face:     clown_face: 	小丑脸<br>
+  :egg:     egg: 	蛋<br>
+  :see_no_evil:     see_no_evil: 	看不到邪恶<br>
+  :camera_flash:     camera_flash: 	相机闪光灯<br>
+  :alembic:     alembic: 	阿勒比比奇<br>
+  :mag:     mag: 	磁<br>
+  :wheel_of_dharma:     wheel_of_dharma: 	佛法之轮<br>
+  :label:     label: 	标签<br>
+  :seedling:     seedling: 	幼苗<br>
+  :triangular_flag_on_post:     triangular_flag_on_post: 	张贴三角旗<br>
+  :dizzy:     dizzy: 	头晕<br>
+  :cyclone:     cyclone: 	气旋<br>
+  :foggy:     foggy: 	有雾<br>
+  :closed_umbrella:     closed_umbrella: 	封闭的伞<br>
+  :night_with_stars:     night_with_stars: 	与星星之夜<br>
+  :sunrise_over_mountains:     sunrise_over_mountains: 	翻山越岭的日出<br>
+  :sunrise:     sunrise: 	日出<br>
+  :city_sunset:     city_sunset: 	城市日落<br>
+  :city_sunrise:     city_sunrise: 	城市日出<br>
+  :rainbow:     rainbow: 	彩虹<br>
+  :bridge_at_night:     bridge_at_night: 	晚上的桥<br>
+  :ocean:     ocean: 	海洋<br>
+  :volcano:     volcano: 	火山<br>
+  :milky_way:     milky_way: 	银河<br>
+  :earth_asia:     earth_asia: 	地球亚洲<br>
+  :new_moon:     new_moon: 	新月<br>
+  :moon:     moon: 	月亮<br>
+  :first_quarter_moon:     first_quarter_moon: 	第一季度<br>
+  :crescent_moon:     crescent_moon: 	新月<br>
+  :full_moon:     full_moon: 	满月<br>
+  :first_quarter_moon_with_face:     first_quarter_moon_with_face: 	脸上的第一季度月亮<br>
+  :star2:     star2: 	星2<br>
+  :stars:     stars: 	星星<br>
+  :clock1:     clock1: 	时钟1<br>
+  :clock2:     clock2: 	时钟2<br>
+  :clock3:     clock3: 	时钟3<br>
+  :clock4:     clock4: 	时钟4<br>
+  :clock5:     clock5: 	时钟5<br>
+  :clock6:     clock6: 	时钟6<br>
+  :clock7:     clock7: 	时钟7<br>
+  :clock8:     clock8: 	时钟8<br>
+  :clock9:     clock9: 	时钟9<br>
+  :clock10:     clock10: 	时钟10<br>
+  :clock11:     clock11: 	时钟11<br>
+  :clock12:     clock12: 	时钟12<br>
+  :alarm_clock:     alarm_clock: 	闹钟<br>
+  :hourglass_flowing_sand:     hourglass_flowing_sand: 	沙漏流沙<br>
+  :ophiuchus:     ophiuchus: 	hi<br>
+  :four_leaf_clover:     four_leaf_clover: 	四叶三叶草<br>
+  :tulip:     tulip: 	郁金香<br>
+  :maple_leaf:     maple_leaf: 	枫叶<br>
+  :cherry_blossom:     cherry_blossom: 	樱花盛开<br>
+  :rose:     rose: 	玫瑰<br>
+  :fallen_leaf:     fallen_leaf: 	落叶<br>
+  :leaves:     leaves: 	树叶<br>
+  :hibiscus:     hibiscus: 	芙蓉<br>
+  :sunflower:     sunflower: 	向日葵<br>
+  :cactus:     cactus: 	仙人掌<br>
+  :ear_of_rice:     ear_of_rice: 	稻穗<br>
+  :corn:     corn: 	玉米<br>
+  :mushroom:     mushroom: 	蘑菇<br>
+  :chestnut:     chestnut: 	板栗<br>
+  :blossom:     blossom: 	开花<br>
+  :herb:     herb: 	草本植物<br>
+  :cherries:     cherries: 	樱桃<br>
+  :banana:     banana: 	香蕉<br>
+  :tangerine:     tangerine: 	柑橘<br>
+  :strawberry:     strawberry: 	草莓<br>
+  :watermelon:     watermelon: 	西瓜<br>
+  :tomato:     tomato: 	番茄<br>
+  :eggplant:     eggplant: 	茄子<br>
+  :melon:     melon: 	瓜<br>
+  :pineapple:     pineapple: 	菠萝<br>
+  :grapes:     grapes: 	葡萄<br>
+  :peach:     peach: 	桃子<br>
+  :eyes:     eyes: 	眼睛<br>
+  :ear:     ear: 	耳<br>
+  :nose:     nose: 	鼻子<br>
+  :lips:     lips: 	嘴唇<br>
+  :tongue:     tongue: 	舌<br>
+  :nail_care:     nail_care: 	指甲护理<br>
+  :massage_woman:     massage_woman: 	按摩女人<br>
+  :haircut_woman:     haircut_woman: 	理发的女人<br>
+  :barber:     barber: 	理发师<br>
+  :bust_in_silhouette:     bust_in_silhouette: 	半身像<br>
+  :boy:     boy: 	男孩<br>
+  :girl:     girl: 	女孩<br>
+  :man:     man: 	男子<br>
+  :woman:     woman: 	女人<br>
+  :family_man_woman_boy:     family_man_woman_boy: 	家庭男人女人男孩<br>
+  :couple:     couple: 	一对<br>
+  :policeman:     policeman: 	警察<br>
+  :dancing_women:     dancing_women: 	跳舞的女人<br>
+  :bride_with_veil:     bride_with_veil: 	面纱的新娘<br>
+  :blonde_man:     blonde_man: 	金发男人<br>
+  :man_with_gua_pi_mao:     man_with_gua_pi_mao: 	瓜皮毛的男人<br>
+  :man_with_turban:     man_with_turban: 	头巾的男人<br>
+  :older_man:     older_man: 	年长的男人<br>
+  :older_woman:     older_woman: 	老女人<br>
+  :baby:     baby: 	宝宝<br>
+  :princess:     princess: 	公主<br>
+  :japanese_ogre:     japanese_ogre: 	日本食人魔<br>
+  :japanese_goblin:     japanese_goblin: 	日本妖精<br>
+  :ghost:     ghost: 	鬼<br>
+  :angel:     angel: 	天使<br>
+  :space_invader:     space_invader: 	太空侵略者<br>
+  :imp:     imp: 	小鬼<br>
+  :skull:     skull: 	头骨<br>
+  :tipping_hand_woman:     tipping_hand_woman: 	小费的手女人<br>
+  :guardsman:     guardsman: 	卫兵<br>
+  :dancer:     dancer: 	舞蹈家<br>
+  :snail:     snail: 	蜗牛<br>
+  :snake:     snake: 	蛇<br>
+  :chicken:     chicken: 	鸡<br>
+  :boar:     boar: 	公猪<br>
+  :camel:     camel: 	骆驼<br>
+  :elephant:     elephant: 	象<br>
+  :koala:     koala: 	考拉<br>
+  :monkey:     monkey: 	猴<br>
+  :sheep:     sheep: 	羊<br>
+  :octopus:     octopus: 	章鱼<br>
+  :shell:     shell: 	贝壳<br>
+  :ant:     ant: 	蚂蚁<br>
+  :bee:     bee: 	蜜蜂<br>
+  :beetle:     beetle: 	甲虫<br>
+  :tropical_fish:     tropical_fish: 	热带鱼<br>
+  :blowfish:     blowfish: 	河豚<br>
+  :turtle:     turtle: 	龟<br>
+  :baby_chick:     baby_chick: 	小鸡<br>
+  :hatched_chick:     hatched_chick: 	孵出的小鸡<br>
+  :bird:     bird: 	鸟<br>
+  :hatching_chick:     hatching_chick: 	孵化小鸡<br>
+  :poodle:     poodle: 	贵宾犬<br>
+  :fish:     fish: 	鱼<br>
+  :dolphin:     dolphin: 	海豚<br>
+  :mouse:     mouse: 	鼠<br>
+  :tiger:     tiger: 	虎<br>
+  :cat:     cat: 	猫<br>
+  :horse:     horse: 	马<br>
+  :monkey_face:     monkey_face: 	猴子的脸<br>
+  :dog:     dog: 	狗<br>
+  :pig:     pig: 	猪<br>
+  :bear:     bear: 	熊<br>
+  :hamster:     hamster: 	仓鼠<br>
+  :wolf:     wolf: 	狼<br>
+  :cow:     cow: 	牛<br>
+  :rabbit:     rabbit: 	兔子<br>
+  :frog:     frog: 	青蛙<br>
+  :feet:     feet: 	脚<br>
+  :dragon_face:     dragon_face: 	龙脸<br>
+  :panda_face:     panda_face: 	熊猫脸<br>
+  :pig_nose:     pig_nose: 	猪鼻子<br>
+  :angry:     angry: 	愤怒<br>
+  :weary:     weary: 	厌倦<br>
+  :astonished:     astonished: 	吃惊<br>
+  :disappointed:     disappointed: 	失望的<br>
+  :dizzy_face:     dizzy_face: 	头晕的脸<br>
+  :cold_sweat:     cold_sweat: 	冷汗<br>
+  :unamused:     unamused: 	没戏<br>
+  :heart_eyes:     heart_eyes: 	心眼<br>
+  :triumph:     triumph: 	胜利<br>
+  :stuck_out_tongue_winking_eye:     stuck_out_tongue_winking_eye: 	伸出舌头眨眼<br>
+  :stuck_out_tongue_closed_eyes:     stuck_out_tongue_closed_eyes: 	伸出舌头闭上眼睛<br>
+  :yum:     yum: 	百胜<br>
+  :kissing_heart:     kissing_heart: 	接吻的心<br>
+  :kissing_closed_eyes:     kissing_closed_eyes: 	接吻闭眼<br>
+  :mask:     mask: 	面具<br>
+  :flushed:     flushed: 	酡<br>
+  :smiley:     smiley: 	笑脸<br>
+  :sweat_smile:     sweat_smile: 	出汗的微笑<br>
+  :laughing:     laughing: 	笑<br>
+  :grin:     grin: 	咧嘴<br>
+  :joy:     joy: 	喜悦<br>
+  :blush:     blush: 	脸红<br>
+  :smile:     smile: 	微笑<br>
+  :cry:     cry: 	哭<br>
+  :sob:     sob: 	哭泣<br>
+  :fearful:     fearful: 	可怕<br>
+  :persevere:     persevere: 	坚持不懈<br>
+  :rage:     rage: 	愤怒<br>
+  :relieved:     relieved: 	松了一口气<br>
+  :confounded:     confounded: 	困惑<br>
+  :pensive:     pensive: 	沉思的<br>
+  :scream:     scream: 	惊叫<br>
+  :sleepy:     sleepy: 	困<br>
+  :smirk:     smirk: 	傻笑<br>
+  :sweat:     sweat: 	流汗<br>
+  :disappointed_relieved:     disappointed_relieved: 	失望的释然<br>
+  :tired_face:     tired_face: 	疲倦的脸<br>
+  :wink:     wink: 	眨眼<br>
+  :smiley_cat:     smiley_cat: 	笑脸猫<br>
+  :smile_cat:     smile_cat: 	微笑猫<br>
+  :joy_cat:     joy_cat: 	欢乐猫<br>
+  :kissing_cat:     kissing_cat: 	亲吻猫<br>
+  :heart_eyes_cat:     heart_eyes_cat: 	心眼猫<br>
+  :crying_cat_face:     crying_cat_face: 	哭泣的猫脸<br>
+  :pouting_cat:     pouting_cat: 	uting猫<br>
+  :smirk_cat:     smirk_cat: 	傻笑的猫<br>
+  :scream_cat:     scream_cat: 	尖叫猫<br>
+  :no_good_woman:     no_good_woman: 	没有好女人<br>
+  :ok_woman:     ok_woman: 	好的女人<br>
+  :bowing_man:     bowing_man: 	鞠躬的人<br>
+  :speak_no_evil:     speak_no_evil: 	别嚼舌根<br>
+  :hear_no_evil:     hear_no_evil: 	听不到邪恶<br>
+  :raising_hand_woman:     raising_hand_woman: 	提高手女人<br>
+  :raised_hands:     raised_hands: 	举手<br>
+  :frowning_woman:     frowning_woman: 	皱着眉头的女人<br>
+  :pouting_woman:     pouting_woman: 	uting嘴的女人<br>
+  :pray:     pray: 	祈祷<br>
+  :house_with_garden:     house_with_garden: 	带花园的房子<br>
+  :office:     office: 	办公室<br>
+  :post_office:     post_office: 	邮政局<br>
+  :hospital:     hospital: 	医院<br>
+  :bank:     bank: 	银行<br>
+  :atm:     atm: 	自动取款机<br>
+  :hotel:     hotel: 	旅馆<br>
+  :love_hotel:     love_hotel: 	情趣酒店<br>
+  :convenience_store:     convenience_store: 	便利店<br>
+  :school:     school: 	学校<br>
+  :department_store:     department_store: 	百货商店<br>
+  :japanese_castle:     japanese_castle: 	日本城堡<br>
+  :european_castle:     european_castle: 	欧洲城堡<br>
+  :factory:     factory: 	厂<br>
+  :izakaya_lantern:     izakaya_lantern: 	居酒屋灯笼<br>
+  :mount_fuji:     mount_fuji: 	富士山<br>
+  :tokyo_tower:     tokyo_tower: 	东京铁塔<br>
+  :statue_of_liberty:     statue_of_liberty: 	自由女神像<br>
+  :japan:     japan: 	日本<br>
+  :moyai:     moyai: 	莫艾<br>
+  :mans_shoe:     mans_shoe: 	芒鞋<br>
+  :athletic_shoe:     athletic_shoe: 	运动鞋<br>
+  :high_heel:     high_heel: 	高跟鞋<br>
+  :sandal:     sandal: 	凉鞋<br>
+  :boot:     boot: 	开机<br>
+  :footprints:     footprints: 	脚印<br>
+  :eyeglasses:     eyeglasses: 	眼镜<br>
+  :shirt:     shirt: 	衬衫<br>
+  :jeans:     jeans: 	牛仔裤<br>
+  :crown:     crown: 	王冠<br>
+  :necktie:     necktie: 	领带<br>
+  :womans_hat:     womans_hat: 	女人的帽子<br>
+  :dress:     dress: 	连衣裙<br>
+  :kimono:     kimono: 	和服<br>
+  :bikini:     bikini: 	比基尼<br>
+  :womans_clothes:     womans_clothes: 	女人的衣服<br>
+  :purse:     purse: 	钱包<br>
+  :handbag:     handbag: 	手提包<br>
+  :pouch:     pouch: 	袋<br>
+  :moneybag:     moneybag: 	钱袋子<br>
+  :currency_exchange:     currency_exchange: 	货币兑换<br>
+  :chart:     chart: 	图表<br>
+  :heavy_dollar_sign:     heavy_dollar_sign: 	重的美元符号<br>
+  :credit_card:     credit_card: 	信用卡<br>
+  :yen:     yen: 	日元<br>
+  :dollar:     dollar: 	美元<br>
+  :money_with_wings:     money_with_wings: 	带翅膀的钱<br>
+  :flashlight:     flashlight: 	手电筒<br>
+  :nut_and_bolt:     nut_and_bolt: 	螺母和螺栓<br>
+  :hocho:     hocho: 	霍乔<br>
+  :gun:     gun: 	枪<br>
+  :crystal_ball:     crystal_ball: 	水晶球<br>
+  :six_pointed_star:     six_pointed_star: 	六角星<br>
+  :beginner:     beginner: 	初学者<br>
+  :trident:     trident: 	三叉戟<br>
+  :syringe:     syringe: 	注射器<br>
+  :pill:     pill: 	丸<br>
+  :ab:     ab: 	b<br>
+  :ribbon:     ribbon: 	带<br>
+  :gift:     gift: 	礼品<br>
+  :birthday:     birthday: 	生日<br>
+  :christmas_tree:     christmas_tree: 	圣诞树<br>
+  :santa:     santa: 	圣诞老人<br>
+  :crossed_flags:     crossed_flags: 	交叉的标志<br>
+  :fireworks:     fireworks: 	烟花<br>
+  :balloon:     balloon: 	气球<br>
+  :bamboo:     bamboo: 	竹<br>
+  :dolls:     dolls: 	洋娃娃<br>
+  :mortar_board:     mortar_board: 	砂浆板<br>
+  :school_satchel:     school_satchel: 	学校书包<br>
+  :flags:     flags: 	标志<br>
+  :sparkler:     sparkler: 	烟火<br>
+  :wind_chime:     wind_chime: 	风铃<br>
+  :jack_o_lantern:     jack_o_lantern: 	杰克o灯笼<br>
+  :confetti_ball:     confetti_ball: 	五彩纸屑球<br>
+  :tanabata_tree:     tanabata_tree: 	七夕树<br>
+  :rice_scene:     rice_scene: 	稻田<br>
+  :pager:     pager: 	传呼机<br>
+  :telephone_receiver:     telephone_receiver: 	电话听筒<br>
+  :calling:     calling: 	呼唤<br>
+  :fax:     fax: 	传真<br>
+  :incoming_envelope:     incoming_envelope: 	传入信封<br>
+  :envelope_with_arrow:     envelope_with_arrow: 	带有箭头的信封<br>
+  :mailbox_closed:     mailbox_closed: 	邮箱关闭<br>
+  :mailbox:     mailbox: 	邮箱<br>
+  :postbox:     postbox: 	邮箱<br>
+  :newspaper:     newspaper: 	报纸<br>
+  :loudspeaker:     loudspeaker: 	扩音器<br>
+  :mega:     mega: 	兆<br>
+  :satellite:     satellite: 	卫星<br>
+  :outbox_tray:     outbox_tray: 	发件箱托盘<br>
+  :inbox_tray:     inbox_tray: 	收件匣<br>
+  :e-mail:     e-mail: 	电子邮件<br>
+  :capital_abcd:     capital_abcd: 	大写abcd<br>
+  :abcd:     abcd: 	A B C D<br>
+  :1234:     1234: 	1234<br>
+  :symbols:     symbols: 	符号<br>
+  :abc:     abc: 	abc<br>
+  :seat:     seat: 	座位<br>
+  :computer:     computer: 	电脑<br>
+  :paperclip:     paperclip: 	回形针<br>
+  :briefcase:     briefcase: 	公文包<br>
+  :minidisc:     minidisc: 	迷你碟<br>
+  :floppy_disk:     floppy_disk: 	软盘<br>
+  :cd:     cd: 	光盘<br>
+  :dvd:     dvd: 	DVD<br>
+  :round_pushpin:     round_pushpin: 	圆形图钉<br>
+  :page_with_curl:     page_with_curl: 	卷曲的页面<br>
+  :date:     date: 	日期<br>
+  :file_folder:     file_folder: 	文件夹<br>
+  :open_file_folder:     open_file_folder: 	打开文件夹<br>
+  :notebook:     notebook: 	笔记本<br>
+  :book:     book: 	书<br>
+  :notebook_with_decorative_cover:     notebook_with_decorative_cover: 	带装饰盖的笔记本<br>
+  :closed_book:     closed_book: 	已关闭的书<br>
+  :green_book:     green_book: 	绿皮书<br>
+  :blue_book:     blue_book: 	蓝皮书<br>
+  :orange_book:     orange_book: 	橙皮书<br>
+  :books:     books: 	图书<br>
+  :name_badge:     name_badge: 	名卡<br>
+  :scroll:     scroll: 	滚动<br>
+  :clipboard:     clipboard: 	剪贴板<br>
+  :calendar:     calendar: 	日历<br>
+  :bar_chart:     bar_chart: 	条形图<br>
+  :chart_with_downwards_trend:     chart_with_downwards_trend: 	下降趋势图<br>
+  :card_index:     card_index: 	卡片索引<br>
+  :ledger:     ledger: 	分类帐<br>
+  :straight_ruler:     straight_ruler: 	直尺<br>
+  :triangular_ruler:     triangular_ruler: 	三角尺<br>
+  :bookmark_tabs:     bookmark_tabs: 	书签标签<br>
+  :running_shirt_with_sash:     running_shirt_with_sash: 	腰带跑步衬衫<br>
+  :tennis:     tennis: 	网球<br>
+  :ski:     ski: 	滑雪<br>
+  :basketball:     basketball: 	篮球<br>
+  :snowboarder:     snowboarder: 	单板滑雪者<br>
+  :running_man:     running_man: 	奔跑者<br>
+  :surfing_man:     surfing_man: 	冲浪人<br>
+  :trophy:     trophy: 	杯<br>
+  :football:     football: 	足球<br>
+  :swimming_man:     swimming_man: 	游泳的人<br>
+  :railway_car:     railway_car: 	铁路车<br>
+  :metro:     metro: 	地铁<br>
+  :bullettrain_side:     bullettrain_side: 	子弹头侧<br>
+  :bullettrain_front:     bullettrain_front: 	子弹头战线<br>
+  :car:     car: 	汽车<br>
+  :blue_car:     blue_car: 	蓝车<br>
+  :bus:     bus: 	总线<br>
+  :busstop:     busstop: 	公交车站<br>
+  :ship:     ship: 	船<br>
+  :station:     station: 	站<br>
+  :speedboat:     speedboat: 	快艇<br>
+  :taxi:     taxi: 	出租车<br>
+  :fire_engine:     fire_engine: 	消防车<br>
+  :police_car:     police_car: 	警车<br>
+  :traffic_light:     traffic_light: 	红绿灯<br>
+  :carousel_horse:     carousel_horse: 	旋转木马<br>
+  :ferris_wheel:     ferris_wheel: 	摩天轮<br>
+  :roller_coaster:     roller_coaster: 	过山车<br>
+  :fishing_pole_and_fish:     fishing_pole_and_fish: 	鱼竿和鱼<br>
+  :microphone:     microphone: 	麦克风<br>
+  :movie_camera:     movie_camera: 	电影摄影机<br>
+  :cinema:     cinema: 	电影<br>
+  :headphones:     headphones: 	头戴式耳机<br>
+  :tophat:     tophat: 	高帽<br>
+  :circus_tent:     circus_tent: 	马戏团的帐篷<br>
+  :ticket:     ticket: 	票<br>
+  :clapper:     clapper: 	拍手<br>
+  :performing_arts:     performing_arts: 	表演艺术<br>
+  :video_game:     video_game: 	电子游戏<br>
+  :slot_machine:     slot_machine: 	老虎机<br>
+  :8ball:     8ball: 	8球<br>
+  :game_die:     game_die: 	游戏死<br>
+  :bowling:     bowling: 	保龄球<br>
+  :flower_playing_cards:     flower_playing_cards: 	花扑克牌<br>
+  :black_joker:     black_joker: 	黑色小丑<br>
+  :musical_note:     musical_note: 	音符<br>
+  :notes:     notes: 	笔记<br>
+  :saxophone:     saxophone: 	萨克斯风<br>
+  :guitar:     guitar: 	吉他<br>
+  :musical_keyboard:     musical_keyboard: 	音乐键盘<br>
+  :trumpet:     trumpet: 	喇叭<br>
+  :violin:     violin: 	小提琴<br>
+  :musical_score:     musical_score: 	乐谱<br>
+  :camera:     camera: 	相机<br>
+  :video_camera:     video_camera: 	录影机<br>
+  :tv:     tv: 	电视<br>
+  :radio:     radio: 	无线电<br>
+  :vhs:     vhs: 	甚高频<br>
+  :kiss:     kiss: 	吻<br>
+  :love_letter:     love_letter: 	爱情信<br>
+  :ring:     ring: 	环<br>
+  :gem:     gem: 	宝石<br>
+  :couplekiss_man_woman:     couplekiss_man_woman: 	couplekiss男人女人<br>
+  :bouquet:     bouquet: 	花束<br>
+  :couple_with_heart_woman_man:     couple_with_heart_woman_man: 	与心女人男人夫妇<br>
+  :wedding:     wedding: 	婚礼<br>
+  :underage:     underage: 	未成年<br>
+  :keycap_ten:     keycap_ten: 	键帽十<br>
+  :signal_strength:     signal_strength: 	信号强度<br>
+  :vibration_mode:     vibration_mode: 	振动模式<br>
+  :mobile_phone_off:     mobile_phone_off: 	手机关机<br>
+  :hamburger:     hamburger: 	汉堡包<br>
+  :rice_ball:     rice_ball: 	饭团<br>
+  :cake:     cake: 	蛋糕<br>
+  :ramen:     ramen: 	拉面<br>
+  :bread:     bread: 	面包<br>
+  :fried_egg:     fried_egg: 	煎鸡蛋<br>
+  :icecream:     icecream: 	冰淇淋<br>
+  :fries:     fries: 	薯条<br>
+  :dango:     dango: 	团子<br>
+  :rice_cracker:     rice_cracker: 	米饼<br>
+  :rice:     rice: 	白饭<br>
+  :spaghetti:     spaghetti: 	意大利面<br>
+  :curry:     curry: 	咖喱<br>
+  :oden:     oden: 	关东煮<br>
+  :sushi:     sushi: 	寿司<br>
+  :stew:     stew: 	炖<br>
+  :shaved_ice:     shaved_ice: 	刨冰<br>
+  :meat_on_bone:     meat_on_bone: 	骨头上的肉<br>
+  :fish_cake:     fish_cake: 	鱼饼<br>
+  :sweet_potato:     sweet_potato: 	甘薯<br>
+  :pizza:     pizza: 	比萨<br>
+  :poultry_leg:     poultry_leg: 	家禽腿<br>
+  :ice_cream:     ice_cream: 	冰淇淋<br>
+  :doughnut:     doughnut: 	甜甜圈<br>
+  :cookie:     cookie: 	曲奇饼<br>
+  :chocolate_bar:     chocolate_bar: 	巧克力吧<br>
+  :candy:     candy: 	糖果<br>
+  :lollipop:     lollipop: 	棒糖<br>
+  :custard:     custard: 	卡仕达酱<br>
+  :honey_pot:     honey_pot: 	蜜罐<br>
+  :fried_shrimp:     fried_shrimp: 	炒虾仁<br>
+  :fork_and_knife:     fork_and_knife: 	刀叉<br>
+  :cocktail:     cocktail: 	鸡尾酒<br>
+  :beer:     beer: 	啤酒<br>
+  :tea:     tea: 	茶<br>
+  :sake:     sake: 	清酒<br>
+  :wine_glass:     wine_glass: 	红酒杯<br>
+  :tropical_drink:     tropical_drink: 	热带饮料<br>
+  :fast_forward:     fast_forward: 	快进<br>
+  :arrow_double_up:     arrow_double_up: 	箭头向上<br>
+  :arrow_double_down:     arrow_double_down: 	箭头翻倍<br>
+  :small_red_triangle:     small_red_triangle: 	小红色三角形<br>
+  :small_red_triangle_down:     small_red_triangle_down: 	小红色三角形向下<br>
+  :arrow_up_small:     arrow_up_small: 	小箭头<br>
+  :arrow_down_small:     arrow_down_small: 	小箭头向下<br>
+  :x:     x: 	X<br>
+  :negative_squared_cross_mark:     negative_squared_cross_mark: 	负方形十字标记<br>
+  :question:     question: 	题<br>
+  :grey_question:     grey_question: 	灰色问题<br>
+  :grey_exclamation:     grey_exclamation: 	灰色感叹号<br>
+  :curly_loop:     curly_loop: 	卷曲循环<br>
+  :heartbeat:     heartbeat: 	心跳<br>
+  :broken_heart:     broken_heart: 	心碎<br>
+  :two_hearts:     two_hearts: 	两颗心<br>
+  :sparkling_heart:     sparkling_heart: 	闪闪发光的心<br>
+  :heartpulse:     heartpulse: 	心跳<br>
+  :cupid:     cupid: 	丘比特<br>
+  :blue_heart:     blue_heart: 	蓝心<br>
+  :yellow_heart:     yellow_heart: 	黄心<br>
+  :purple_heart:     purple_heart: 	紫心勋章<br>
+  :gift_heart:     gift_heart: 	礼物的心<br>
+  :revolving_hearts:     revolving_hearts: 	旋转的心<br>
+  :heart_decoration:     heart_decoration: 	心装饰<br>
+  :smoking:     smoking: 	抽烟<br>
+  :no_smoking:     no_smoking: 	禁止抽烟<br>
+  :bike:     bike: 	自行车<br>
+  :walking_man:     walking_man: 	走路的人<br>
+  :mens:     mens: 	男装<br>
+  :womens:     womens: 	女士的<br>
+  :bath:     bath: 	浴<br>
+  :restroom:     restroom: 	卫生间<br>
+  :toilet:     toilet: 	厕所<br>
+  :wc:     wc: 	厕所<br>
+  :baby_symbol:     baby_symbol: 	婴儿符号<br>
+  :door:     door: 	门<br>
+  :no_entry_sign:     no_entry_sign: 	没有进入标志<br>
+  :cl:     cl: 	CL<br>
+  :cool:     cool: 	凉<br>
+  :free:     free: 	自由<br>
+  :id:     id: 	ID<br>
+  :new:     new: 	新<br>
+  :ng:     ng: 	ng<br>
+  :ok:     ok: 	好<br>
+  :sos:     sos: 	s<br>
+  :up:     up: 	上<br>
+  :vs:     vs: 	与<br>
+  :koko:     koko: 	可可<br>
+  :u7981:     u7981: 	u7981<br>
+  :u7a7a:     u7a7a: 	u7a7a<br>
+  :u5408:     u5408: 	u5408<br>
+  :u6e80:     u6e80: 	u6e80<br>
+  :u6709:     u6709: 	u6709<br>
+  :u7533:     u7533: 	u7533<br>
+  :u5272:     u5272: 	u5272<br>
+  :u55b6:     u55b6: 	u55b6<br>
+  :ideograph_advantage:     ideograph_advantage: 	表意文字的优势<br>
+  :accept:     accept: 	接受<br>
+  :heavy_division_sign:     heavy_division_sign: 	重师标志<br>
+  :diamond_shape_with_a_dot_inside:     diamond_shape_with_a_dot_inside: 	菱形，里面有一个点<br>
+  :anger:     anger: 	愤怒<br>
+  :bomb:     bomb: 	炸弹<br>
+  :zzz:     zzz: 	zz<br>
+  :sweat_drops:     sweat_drops: 	汗滴<br>
+  :droplet:     droplet: 	水滴<br>
+  :dash:     dash: 	短跑<br>
+  :muscle:     muscle: 	肌肉<br>
+  :red_circle:     red_circle: 	红色圆圈<br>
+  :large_blue_circle:     large_blue_circle: 	大蓝圈<br>
+  :black_square_button:     black_square_button: 	黑色方形按钮<br>
+  :white_square_button:     white_square_button: 	白色方形按钮<br>
+  :large_orange_diamond:     large_orange_diamond: 	大橙色钻石<br>
+  :large_blue_diamond:     large_blue_diamond: 	大蓝钻<br>
+  :small_orange_diamond:     small_orange_diamond: 	小橙色钻石<br>
+  :small_blue_diamond:     small_blue_diamond: 	小蓝钻<br>
+  :white_flower:     white_flower: 	白色的花<br>
+  :100:     100: 	100<br>
+  :arrows_clockwise:     arrows_clockwise: 	顺时针方向箭头<br>
+  :battery:     battery: 	电池<br>
+  :electric_plug:     electric_plug: 	电插头<br>
+  :mag_right:     mag_right: 	向右<br>
+  :unlock:     unlock: 	开锁<br>
+  :lock_with_ink_pen:     lock_with_ink_pen: 	用墨水笔锁<br>
+  :closed_lock_with_key:     closed_lock_with_key: 	带钥匙的封闭锁<br>
+  :key:     key: 	键<br>
+  :bell:     bell: 	钟<br>
+  :radio_button:     radio_button: 	单选按钮<br>
+  :link:     link: 	链接<br>
+  :back:     back: 	背部<br>
+  :end:     end: 	结束<br>
+  :on:     on: 	上<br>
+  :soon:     soon: 	不久<br>
+  :top:     top: 	最佳<br>
+  :fist_raised:     fist_raised: 	举起拳头<br>
+  :hand:     hand: 	手<br>
+  :fist_oncoming:     fist_oncoming: 	拳头迎面而来<br>
+  :+1:     +1: 	+1<br>
+  :point_up_2:     point_up_2: 	点2<br>
+  :point_down:     point_down: 	指向下方<br>
+  :point_left:     point_left: 	点左<br>
+  :point_right:     point_right: 	指向正确<br>
+  :wave:     wave: 	波<br>
+  :clap:     clap: 	拍<br>
+  :-1:     -1: 	-1<br>
+  :open_hands:     open_hands: 	伸开双手<br>
+  :cloud:     cloud: 	云<br>
+  :snowflake:     snowflake: 	雪花<br>
+  :watch:     watch: 	看<br>
+  :hourglass:     hourglass: 	滴漏<br>
+  :aries:     aries: 	白羊座<br>
+  :taurus:     taurus: 	金牛座<br>
+  :gemini:     gemini: 	双子座<br>
+  :cancer:     cancer: 	癌症<br>
+  :leo:     leo: 	狮子座<br>
+  :virgo:     virgo: 	处女座<br>
+  :libra:     libra: 	天秤座<br>
+  :scorpius:     scorpius: 	天蝎座<br>
+  :sagittarius:     sagittarius: 	人马座<br>
+  :capricorn:     capricorn: 	摩ri座<br>
+  :aquarius:     aquarius: 	水瓶座<br>
+  :pisces:     pisces: 	双鱼座<br>
+  :church:     church: 	教会<br>
+  :fountain:     fountain: 	喷泉<br>
+  :anchor:     anchor: 	锚<br>
+  :email:     email: 	电子邮件<br>
+  :black_nib:     black_nib: 	黑笔尖<br>
+  :baseball:     baseball: 	棒球<br>
+  :airplane:     airplane: 	飞机<br>
+  :boat:     boat: 	船<br>
+  :tent:     tent: 	帐篷<br>
+  :part_alternation_mark:     part_alternation_mark: 	零件交替标记<br>
+  :information_source:     information_source: 	信息来源<br>
+  :left_right_arrow:     left_right_arrow: 	左右箭头<br>
+  :wavy_dash:     wavy_dash: 	波浪破折号<br>
+  :no_entry:     no_entry: 	禁止入内<br>
+  :heavy_check_mark:     heavy_check_mark: 	沉重的复选标记<br>
+  :heavy_multiplication_x:     heavy_multiplication_x: 	重乘x<br>
+  :eight_pointed_black_star:     eight_pointed_black_star: 	八角黑星<br>
+  :eight_spoked_asterisk:     eight_spoked_asterisk: 	八言星号<br>
+  :white_large_square:     white_large_square: 	白色大广场<br>
+  :black_large_square:     black_large_square: 	黑色大广场<br>
+  :white_small_square:     white_small_square: 	白色小方块<br>
+  :black_small_square:     black_small_square: 	黑色小方块<br>
+  :white_medium_small_square:     white_medium_small_square: 	白色中等小方块<br>
+  :black_medium_small_square:     black_medium_small_square: 	黑色中小方块<br>
+  :white_medium_square:     white_medium_square: 	白色中号方形<br>
+  :black_medium_square:     black_medium_square: 	黑色中号方形<br>
+  :sparkle:     sparkle: 	火花<br>
+  :leftwards_arrow_with_hook:     leftwards_arrow_with_hook: 	带钩的向左箭头<br>
+  :ballot_box_with_check:     ballot_box_with_check: 	带支票的投票箱<br>
