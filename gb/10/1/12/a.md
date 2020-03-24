@@ -12,13 +12,7 @@
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968096.md#1" title="还原历史 美媒披露中共病毒爆发初期记录""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1195534971-320x200.jpg">&nbsp;</a>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968196.md#1" title="哈德逊研究员：为了保护未来 要向中共问责""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1213842782-320x200.jpg">&nbsp;</a>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11968318.md#1" title="病毒传播不是亚裔的错 川普吁保护亚裔""><img width="73" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1214369342-320x200.jpg">&nbsp;</a>
-<p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a><hr><h2 align="center"><strong align="center">
-
-```diff
-!退出中共党、团、队总人数:
-!共 352,969,792 人
-```
-</strong><p align="center"><strong align="center"><a href="https://x.co/dd3">我要退出中共党团队</a></strong></h2>
+<p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf4514.md#1">更多头条......</a><hr>
 <h2><p><strong>即时快讯&nbsp;&#160;&nbsp;&#160; :bar_chart: <a target="_blank" href="https://pmjgtr230.github.io/oo/yq.html">全球疫情地图</a></strong></p></h2>
 :clock8: <em>15分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11970655.md#1">FEMA：周二将首次动用《国防生产法案》</a><br>
 :clock8: <em>15分钟</em>&nbsp;&#160;&nbsp;&#160;:speech_balloon:<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11970265.md#1">台去年底通报WHO“病毒人传人” 苏揆：中共一开始隐匿疫情</a><br>
@@ -42,7 +36,15 @@
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965269.md#1">【名家专栏】“中共病毒”会使中共崩溃吗？</a><br>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/22/n11964530.md#1">【一线采访】重症监护室里的“谋杀”</a><br>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/21/n11961956.md#1">【独家】武汉检测数据中的监狱无名氏</a><br>
-<br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news392.md#1">更多......</a></p></td><td VALIGN=TOP width="352">
+<br><p align="center"><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news392.md#1">更多......</a></p>
+<hr><h2 align="center"><strong align="center">
+
+```diff
+!退出中共党、团、队总人数:
+!共 352,969,792 人
+```
+</strong><p align="center"><strong align="center"><a href="https://x.co/dd3">我要退出中共党团队</a></strong></h2>
+</td><td VALIGN=TOP width="352">
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/23/n11965551.md#1">分析：大疫之下中国两千万手机用户消失</a><br>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11969206.md#1">【一线采访】隐匿疫情酿祸 武汉人要求国赔</a><br>
 <a href="https://github.com/pmjgtr230/djy/blob/master/gb/20/3/24/n11968465.md#1">【拍案惊奇】习近平有险？三峡大坝被爆危机</a><br>
