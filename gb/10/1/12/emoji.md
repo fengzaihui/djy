@@ -9901,3 +9901,271 @@ bald
 A a Ạ ạ Ả ả Ḁ ḁ Â Ã Ǎ ǎ Ấ ấ Ầ ầ Ẩ ẩ Ȃ ȃ Ẫ ẫ Ậ ậ À Á Ắ ắ Ằ ằ Ẳ ẳ Ẵ ẵ Ặ ặ Ā ā Ą ą Ǟ Ȁ ȁ Å Ǻ ǻ Ä ä ǟ Ǡ ǡ â á å ã à ẚ Ȧ ȧ Ⱥ Å ⱥ Æ æ Ǽ Ǣ ǣ Ɐ Ꜳ ꜳ Ꜹ Ꜻ Ɑ ꜹ ꜻ ª ℀ ⅍ ℁ B b Ḃ ḃ Ḅ ḅ Ḇ ḇ Ɓ Ƀ ƀ ƃ Ƃ Ƅ ƅ ℬ C c Ḉ ḉ Ć ć Ĉ ĉ Ċ ċ Č č Ç ç Ƈ ƈ Ȼ ȼ ℂ ℃ ℭ Ɔ ℅ ℆ ℄ Ꜿ ꜿ D d Ḋ ḋ Ḍ ḍ Ḏ ḏ Ḑ ḑ Ḓ ḓ Ď ď Ɗ Ƌ ƌ Ɖ Đ đ ȡ ⅅ ⅆ Ǳ ǲ ǳ Ǆ ǅ ǆ ȸ E e Ḕ ḕ Ḗ ḗ Ḙ ḙ Ḛ ḛ Ḝ ḝ Ẹ ẹ Ẻ ẻ Ế ế Ẽ ẽ Ề ề Ể ể Ễ ễ Ệ ệ Ē ē Ĕ ĕ Ė ė Ę ę Ě ě È è É é Ê ê Ë ë Ȅ ȅ Ȩ ȩ Ȇ ȇ Ǝ ⱸ Ɇ ℇ ℯ ℮ Ɛ ℰ Ə ǝ ⱻ ɇ F f Ḟ ḟ Ƒ ƒ ꜰ Ⅎ ⅎ ꟻ ℱ ℻ G g Ɠ Ḡ ḡ Ĝ ĝ Ğ ğ Ġ ġ Ģ ģ Ǥ ǥ Ǧ ǧ Ǵ ℊ ⅁ ǵ H h Ḣ ḣ Ḥ ḥ Ḧ ḧ Ḩ ḩ Ḫ ḫ ẖ Ĥ ĥ Ȟ ȟ Ħ ħ Ⱨ ⱨ Ꜧ ℍ Ƕ ℏ ℎ ℋ ℌ ꜧ I i Ḭ ḭ Ḯ ḯ Ĳ ĳ ì í î ï Ì Í Î Ï Ĩ ĩ Ī ī Ĭ ĭ Į į ı Ɨ ƚ Ỻ Ǐ ǐ ⅈ ⅉ ℹ ℑ ℐ J j Ĵ ĵ ȷ ⱼ Ɉ ɉ ǰ K k Ḱ ḱ Ḳ ḳ Ḵ ḵ Ķ ķ Ƙ ƙ Ꝁ ꝁ Ꝃ ꝃ Ꝅ ꝅ Ǩ ǩ Ⱪ ⱪ ĸ L l Ḷ ḷ Ḹ ḹ Ḻ ḻ Ḽ ḽ Ĺ ĺ Ļ ļ Ľ İ ľ Ŀ ŀ Ł ł Ỉ ỉ Ị ị Ƚ Ⱡ Ꝉ ꝉ ⱡ Ɫ ꞁ ℒ Ǉ ǈ ǉ ⅃ ⅂ ℓ ȉ Ȉ Ȋ ȋ M m Ḿ ḿ Ṁ ṁ Ṃ ṃ ꟿ ꟽ Ɱ Ʃ Ɯ ℳ N n Ṅ ṅ Ṇ ṇ Ṉ ṉ Ṋ ṋ Ń ń Ņ ņ Ň ň Ǹ ǹ Ŋ Ɲ ñ ŉ Ñ Ƞ ƞ ŋ Ǌ ǋ ǌ ȵ ℕ № O o Ṍ ṍ Ṏ ṏ Ṑ ṑ Ṓ ṓ Ȫ ȫ Ȭ ȭ Ȯ ȯ Ȱ ȱ Ǫ ǫ Ǭ ǭ Ọ ọ Ỏ ỏ Ố ố Ồ ồ Ổ ổ Ỗ ỗ Ộ ộ Ớ ớ Ờ ờ Ở ở Ỡ ỡ Ợ ợ Ơ ơ Ō ō Ŏ ŏ Ő ő Ò Ó Ô Õ Ö Ǒ Ȍ ȍ Ȏ ȏ Œ œ Ø Ǿ Ꝋ ǽ ǿ ℴ ⍥ ⍤ ò ó ô õ ö ǒ ø Ꝏ ꝏ P p Ṕ ṕ Ṗ ṗ Ƥ ƥ Ᵽ ℙ Ƿ ꟼ ℘ Q q Ɋ ɋ ℚ ℺ ȹ R r Ŕ ŕ Ŗ ŗ Ř ř Ṙ ṙ Ṛ ṛ Ṝ ṝ Ṟ ṟ Ȑ ȑ Ȓ ȓ ɍ Ɍ Ʀ Ɽ ℞ Ꝛ ꝛ ℜ ℛ ℟ ℝ S s Ṡ ṡ Ṣ ṣ Ṥ ṥ Ṧ ṧ Ṩ ṩ Ś ś Ŝ ŝ Ş ş Š š Ș ș ȿ ꜱ Ƨ ƨ ẞ ß ẛ ẜ ẝ ℠ T t Ṫ ṫ Ṭ ṭ Ṯ ṯ Ṱ ṱ Ţ ţ Ť ť Ŧ ŧ Ƭ Ʈ ẗ Ț Ⱦ ƫ ƭ ț ⱦ ȶ ℡ ™ U u Ṳ ṳ Ṵ ṵ Ṷ ṷ Ṹ ṹ Ṻ ṻ Ụ Ủ ủ Ứ Ừ ụ ứ Ử ử ừ ữ Ữ Ự ự Ũ ũ Ū ū Ŭ ŭ Ů ů Ű ű Ǚ ǚ Ǘ ǘ Ǜ ǜ Ų ų Ǔ ǔ Ȕ ȕ Û û Ȗ ȗ Ù ù Ü ü Ư ú Ʉ ư Ʋ Ʊ V v Ṽ ṽ Ṿ ṿ Ỽ Ʌ ℣ ⱱ ⱴ ⱽ W w Ẁ ẁ Ẃ ẃ Ẅ ẅ Ẇ ẇ Ẉ ẉ Ŵ ŵ ẘ Ⱳ ⱳ X x Ẋ ẋ Ẍ ẍ ℵ × y Y Ẏ ẏ Ỿ ỿ ẙ Ỳ ỳ Ỵ ỵ Ỷ ỷ Ỹ ỹ Ŷ ŷ Ƴ ƴ Ÿ ÿ Ý ý Ɏ ɏ Ȳ Ɣ ⅄ ȳ ℽ Z z Ẑ ẑ Ẓ ẓ Ẕ ẕ Ź ź Ż ż Ž ž Ȥ ȥ Ⱬ ⱬ Ƶ ƶ ɀ ℨ ℤ
 其他未分類
 ᵫ ᵬ ᵭ ᵮ ᵱ ᵲ ᵳ ᵵ ᵷ ᵺ ᵻ ꠸ Ă ă Ǖ ǖ Ꞁ ¤ Ð ¢ ℥ Ω ℧ K ℶ ℷ ℸ ⅇ ⅊ ⚭ ⚮ ᶀ ᶁ ᶂ ᶃ ᶄ ᶆ ᶇ ᶈ ᶉ ᶊ ᶋ ᶌ ᶍ ᶎ ᶏ ᶐ ᶑ ᶒ ᶓ ᶔ ᶕ ᶖ ᶗ ᶘ ᶙ ᶚ ᶸ ᵯ ᵰ ᵴ ᵶ ᵹ ᵼ ᵽ ᵾ ᵿ ⁁ ⁊ ⸜ ⸝ ¶ ¥ £ ⌃ ⌄ ⌤ ⌅ ⌆ ⚋ ⚊ ⌑ ⍴ ⍵ ⍶ ⍷ ⍸ ⍹ ⍺ ℰ £ ¥ € $ ¢ ¶ § π ± √ ‰ Ω † ‡ ⌥ ⌃ ¡ ¿ ‽ α ß Á á À à Å å Ä ä Æ æ Ç ç É é È è Ê ê Í í Ì ì Î î Ñ ñ Ó ó Ò ò Ô ô Ö ö Ø ø Ú ú Ù ù Ü ü Ž ž ₳ ฿ ￠ € ₡ ¢ ₢ ₵ ₫ ￡ £ ₤ ₣ ƒ ₲ ₭ ₥ ₦ ₱ $ ₮ ₩ ￦ ¥ ￥ ₴ ₰ ¤ ៛ ₪ ₯ ₠ ₧ ₨ ௹ ﷼ ㍐ ৲ ৳ ~ ƻ ɂ ǁ ¯ Ɂ ǂ ꟾ ¿ º § ¶ © ® @ ẟ Ɀ Ȿ ^ ỻ ℾ ℿ ℔ ℩ ℉ ⅀ ℈ þ ð Þ µ ª ꝋ ꜿ Ꜿ ⱽ ⱺ ⱹ ⱷ ⱶ Ⱶ ⱴ ⱱ Ɒ ⱦ ȶ ȴ ȣ Ȣ ȡ ȝ Ȝ ț ȋ Ȋ ȉ Ȉ ǯ Ǯ ǃ ǀ ƿ ƾ ƺ ƹ Ƹ Ʒ Ʋ ư ƪ ƣ Ƣ Ɵ ƛ Ɩ ƕ ƍ ſ ỽ ₯ ἀ ἁ ἂ ἃ ἄ ἅ ἆ ἇ Ἀ Ἁ Ἂ Ἃ Ἄ Ἅ Ἆ Ἇ ἐ ἑ ἒ ἓ ἔ ἕ Ἐ Ἑ Ἒ Ἓ Ἔ Ἕ ἠ ἡ ἢ ἣ ἤ ἥ ἦ ἧ Ἠ Ἡ Ἢ Ἣ Ἤ Ἥ Ἦ Ἧ ἰ ἱ ἲ ἳ ἴ ἵ ἶ ἷ Ἰ Ἱ Ἲ Ἳ Ἴ Ἵ Ἶ Ἷ ὀ ὁ ὂ ὃ ὄ ὅ Ὀ Ὁ Ὂ Ὃ Ὄ Ὅ ὐ ὑ ὒ ὓ ὔ ὕ ὖ ὗ Ὑ Ὓ Ὕ Ὗ ὠ ὡ ὢ ὣ ὤ ὥ ὦ ὧ Ὠ Ὡ Ὢ Ὣ Ὤ Ὥ Ὦ Ὧ ὰ ά ὲ έ ὴ ή ὶ ί ὸ ό ὺ ύ ὼ ώ ᾀ ᾁ ᾂ ᾃ ᾄ ᾅ ᾆ ᾇ ᾈ ᾉ ᾊ ᾋ ᾌ ᾍ ᾎ ᾏ ᾐ ᾑ ᾒ ᾓ ᾔ ᾕ ᾖ ᾗ ᾘ ᾙ ᾚ ᾛ ᾜ ᾝ ᾞ ᾟ ᾠ ᾡ ᾢ ᾣ ᾤ ᾥ ᾦ ᾧ ᾨ ᾩ ᾪ ᾫ ᾬ ᾭ ᾮ ᾯ ᾰ ᾱ ᾲ ᾳ ᾴ ᾶ ᾷ Ᾰ Ᾱ Ὰ Ά ᾼ ῂ ῃ ῄ ῆ ῇ Ὲ Έ Ὴ Ή ῌ ῐ ῑ ῒ ΐ ῖ ῗ Ῐ Ῑ Ὶ Ί ῠ ῡ ῢ ΰ ῤ ῥ ῦ ῧ Ῠ Ῡ Ὺ Ύ Ῥ ῲ ῳ ῴ ῶ ῷ Ὸ Ό Ὼ Ώ ῼ Ͱ ͱ Ͳ ͳ Ͷ ͷ ͻ ͼ ͽ Ά Έ Ή Ί Ό Ύ Ώ ΐ Α Β Γ Δ Ε Ζ Η Θ Ι Κ Λ Μ Ν Ξ Ο Π Ρ Σ Τ Υ Φ Χ Ψ Ω Ϊ Ϋ ά έ ή ί ΰ α β γ δ ε ζ η θ ι κ λ μ ν ξ ο π ρ ς σ τ υ φ χ ψ ω ϊ ϋ ό ύ ώ ϐ ϑ ϒ ϓ ϔ ϕ ϖ ϗ Ϙ ϙ Ϛ ϛ Ϝ ϝ Ϟ ϟ Ϡ ϡ Ϣ ϣ Ϥ ϥ Ϧ ϧ Ϩ ϩ Ϫ ϫ Ϭ ϭ Ϯ ϯ ϰ ϱ ϲ ϳ ϴ ϵ ϶ Ϸ ϸ Ϲ Ϻ ϻ ϼ Ͻ Ͼ Ͽ ∀ ∁ ∂ ∃ ∄ ∅ ∆ ∇ ∈ ∉ ∊ ∋ ∌ ∍ ∎ ∏ ∐ ∑ − ∓ ∔ ∟ ∠ ∡ ∢ ∣ ∤ ∥ ∦ ∧ ∨ ∩ ∪ ≍ ≎ ≏ ≐ ≑ ≒ ≓ ≔ ≕ ≖ ≗ ≘ ≙ ≚ ≛ ≜ ≝ ≞ ≬ ≭ ≮ ≯ ≰ ≱ ≲ ≳ ≴ ≵ ≶ ≷ ≸ ≹ ≺ ≻ ≼ ≽ ≾ ≿ ⊀ ⊁ ⊂ ⊃ ⊄ ⊅ ⊆ ⊇ ⊈ ⊉ ⊊ ⊋ ⊌ ⊍ ⊎ ⊏ ⊐ ⊑ ⊒ ⊓ ⊔ ⊢ ⊣ ⊤ ⊥ ⊦ ⊧ ⊨ ⊩ ⊪ ⊫ ⊬ ⊭ ⊮ ⊯ ⊰ ⊱ ⊲ ⊳ ⊴ ⊵ ⊶ ⊷ ⊸ ⊹ ⊺ ⊻ ⊼ ⊽ ⊾ ⊿ ⋀ ⋁ ⋂ ⋃ ⋄ ⋅ ⋆ ⋇ ⋈ ⋉ ⋊ ⋋ ⋌ ⋍ ⋎ ⋏ ⋐ ⋑ ⋒ ⋓ ⋔ ⋕ ⋖ ⋗ ⋚ ⋛ ⋜ ⋝ ⋞ ⋟ ⋠ ⋡ ⋢ ⋣ ⋤ ⋥ ⋦ ⋧ ⋨ ⋩ ⋪ ⋫ ⋬ ⋭ ⋲ ⋳ ⋴ ⋵ ⋶ ⋷ ⋸ ⋹ ⋺ ⋻ ⋼ ⋽ ⋾ ⋿ ᶅ ᴀ ᴁ ᴂ ᴃ ᴄ ᴅ ᴆ ᴇ ᴈ ᴉ ᴊ ᴋ ᴌ ᴍ ᴎ ᴏ ᴐ ᴑ ᴒ ᴓ ᴔ ᴕ ᴖ ᴗ ᴘ ᴙ ᴚ ᴛ ᴜ ᴝ ᴞ ᴟ ᴠ ᴡ ᴢ ᴣ ᴤ ᴥ ᴦ ᴧ ᴨ ᴩ ᴪ ᴫ Ꞌ † ‡ ‣ ⅋ § * ⁑ ⁎ ⁕ ※ ⁜ ⁂ ¿ ⸮ ⁇ ⁉ ⁈ ‽ ⸘ ℄ ¶ ⁋ ❡ ⁌ ⁍ ⸖ ⸗
+
+🌹🍀🍎💰📱🌙🍁🍂🍃🌷💎🔪🔫🏀⚽⚡👄👍🔥
+emoji表情(非图片可复制)↑返回顶部
+😀😁😂😃😄😅😆😉😊😋😎😍😘😗😙😚☺😇😐😑😶😏😣😥😮😯😪😫😴😌😛😜😝😒😓😔😕😲😷😖😞😟😤😢😭😦😧😨😬😰😱😳😵😡😠
+emoji人物(非图片可复制)↑返回顶部
+👦👧👨👩👴👵👶👱👮👲👳👷👸💂🎅👰👼💆💇🙍🙎🙅🙆💁🙋🙇🙌🙏👤👥🚶🏃👯💃👫👬👭💏💑👪
+emoji手势(非图片可复制)↑返回顶部
+💪👈👉☝👆👇✌✋👌👍👎✊👊👋👏👐✍
+emoji日常(非图片可复制)↑返回顶部
+👣👀👂👃👅👄💋👓👔👕👖👗👘👙👚👛👜👝🎒💼👞👟👠👡👢👑👒🎩🎓💄💅💍🌂
+emoji手机(非图片可复制)↑返回顶部
+📱📲📶📳📴☎📞📟📠
+emoji公共(非图片可复制)↑返回顶部
+♻🏧🚮🚰♿🚹🚺🚻🚼🚾⚠🚸⛔🚫🚳🚭🚯🚱🚷🔞💈
+emoji动物(非图片可复制)↑返回顶部
+🙈🙉🙊🐵🐒🐶🐕🐩🐺🐱😺😸😹😻😼😽🙀😿😾🐈🐯🐅🐆🐴🐎🐮🐂🐃🐄🐷🐖🐗🐽🐏🐑🐐🐪🐫🐘🐭🐁🐀🐹🐰🐇🐻🐨🐼🐾🐔🐓🐣🐤🐥🐦🐧🐸🐊🐢🐍🐲🐉🐳🐋🐬🐟🐠🐡🐙🐚🐌🐛🐜🐝🐞🦋
+emoji植物(非图片可复制)↑返回顶部
+💐🌸💮🌹🌺🌻🌼🌷🌱🌲🌳🌴🌵🌾🌿🍀🍁🍂🍃
+emoji自然(非图片可复制)↑返回顶部
+🌍🌎🌏🌐🌑🌒🌓🌔🌕🌖🌗🌘🌙🌚🌛🌜☀🌝🌞⭐🌟🌠☁⛅☔⚡❄🔥💧🌊
+emoji饮食(非图片可复制)↑返回顶部
+🍇🍈🍉🍊🍋🍌🍍🍎🍏🍐🍑🍒🍓🍅🍆🌽🍄🌰🍞🍖🍗🍔🍟🍕🍳🍲🍱🍘🍙🍚🍛🍜🍝🍠🍢🍣🍤🍥🍡🍦🍧🍨🍩🍪🎂🍰🍫🍬🍭🍮🍯🍼☕🍵🍶🍷🍸🍹🍺🍻🍴
+emoji文体(非图片可复制)↑返回顶部
+🎪🎭🎨🎰🚣🛀🎫🏆⚽⚾🏀🏈🏉🎾🎱🎳⛳🎣🎽🎿🏂🏄🏇🏊🚴🚵🎯🎮🎲🎷🎸🎺🎻🎬
+emoji恐怖(非图片可复制)↑返回顶部
+😈👿👹👺💀☠👻👽👾💣
+emoji旅游(非图片可复制)↑返回顶部
+🌋🗻🏠🏡🏢🏣🏤🏥🏦🏨🏩🏪🏫🏬🏭🏯🏰💒🗼🗽⛪⛲🌁🌃🌆🌇🌉🌌🎠🎡🎢🚂🚃🚄🚅🚆🚇🚈🚉🚊🚝🚞🚋🚌🚍🚎🚏🚐🚑🚒🚓🚔🚕🚖🚗🚘🚚🚛🚜🚲⛽🚨🚥🚦🚧⚓⛵🚤🚢✈💺🚁🚟🚠🚡🚀🎑🗿🛂🛃🛄🛅
+emoji物品(非图片可复制)↑返回顶部
+💌💎🔪💈🚪🚽🚿🛁⌛⏳⌚⏰🎈🎉🎊🎎🎏🎐🎀🎁📯📻📱📲☎📞📟📠🔋🔌💻💽💾💿📀🎥📺📷📹📼🔍🔎🔬🔭📡💡🔦🏮📔📕📖📗📘📙📚📓📃📜📄📰📑🔖💰💴💵💶💷💸💳✉📧📨📩📤📥📦📫📪📬📭📮✏✒📝📁📂📅📆📇📈📉📊📋📌📍📎📏📐✂🔒🔓🔏🔐🔑🔨🔫🔧🔩🔗💉💊🚬🔮🚩🎌💦💨
+emoji标志(非图片可复制)↑返回顶部
+♠♥♦♣🀄🎴🔇🔈🔉🔊📢📣💤💢💬💭♨🌀🔔🔕✡✝🔯📛🔰🔱⭕✅☑✔✖❌❎➕➖➗➰➿〽✳✴❇‼⁉❓❔❕❗©®™🎦🔅🔆💯🔠🔡🔢🔣🔤🅰🆎🅱🆑🆒🆓ℹ🆔Ⓜ🆕🆖🅾🆗🅿🆘🆙🆚🈁🈂🈷🈶🈯🉐🈹🈚🈲🉑🈸🈴🈳㊗㊙🈺🈵▪▫◻◼◽◾⬛⬜🔶🔷🔸🔹🔺🔻💠🔲🔳⚪⚫🔴🔵
+emoji生肖(非图片可复制)↑返回顶部
+🐁🐂🐅🐇🐉🐍🐎🐐🐒🐓🐕🐖
+emoji星座(非图片可复制)↑返回顶部
+♈♉♊♋♌♍♎♏♐♑♒♓⛎
+emoji钟表(非图片可复制)↑返回顶部
+🕛🕧🕐🕜🕑🕝🕒🕞🕓🕟🕔🕠🕕🕡🕖🕢🕗🕣🕘🕤🕙🕥🕚🕦⌛⏳⌚⏰⏱⏲🕰
+emoji心形(非图片可复制)↑返回顶部
+💘❤💓💔💕💖💗💙💚💛💜💝💞💟❣
+emoji花草(非图片可复制)↑返回顶部
+💐🌸💮🌹🌺🌻🌼🌷🌱🌿🍀
+emoji树叶(非图片可复制)↑返回顶部
+🌿🍀🍁🍂🍃
+emoji月亮(非图片可复制)↑返回顶部
+🌑🌒🌓🌔🌕🌖🌗🌘🌙🌚🌛🌜🌝
+emoji水果(非图片可复制)↑返回顶部
+🍇🍈🍉🍊🍋🍌🍍🍎🍏🍐🍑🍒🍓
+emoji钱币(非图片可复制)↑返回顶部
+💴💵💶💷💰💸💳
+emoji交通(非图片可复制)↑返回顶部
+🚂🚃🚄🚅🚆🚇🚈🚉🚊🚝🚞🚋🚌🚍🚎🚏🚐🚑🚒🚓🚔🚕🚖🚗🚘🚚🚛🚜🚲⛽🚨🚥🚦🚧⚓⛵🚣🚤🚢✈💺🚁🚟🚠🚡🚀
+emoji建筑(非图片可复制)↑返回顶部
+🏠🏡🏢🏣🏤🏥🏦🏨🏩🏪🏫🏬🏭🏯🏰💒🗼🗽⛪🌆🌇🌉
+emoji办公(非图片可复制)↑返回顶部
+📱📲☎📞📟📠🔋🔌💻💽💾💿📀🎥📺📷📹📼🔍🔎🔬🔭📡📔📕📖📗📘📙📚📓📃📜📄📰📑🔖💳✉📧📨📩📤📥📦📫📪📬📭📮✏✒📝📁📂📅📆📇📈📉📊📋📌📍📎📏📐✂🔒🔓🔏🔐🔑
+emoji箭头(非图片可复制)↑返回顶部
+⬆↗➡↘⬇↙⬅↖↕↔↩↪⤴⤵🔃🔄🔙🔚🔛🔜🔝
+
+
+Light Skin Tone
+浅肤色emoji
+Medium-Light Skin Tone
+Medium Skin Tone
+Medium-Dark Skin Tone
+Dark Skin Tone
+love heart symbol
+tired sleepy sleep
+symbol
+object weapon dead death die dying
+symbol
+rain stressed sweat
+cloud clouds cold smoking smoke cigarette puff
+star symbol
+transportation Anchor
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol time clock
+symbol game Game Die
+love heart symbol game Heart Suit
+shapes symbol game Diamond Suit
+symbol game Club Suit
+Mahjong Red Dragon chinese
+symbol money cash dollar bucks currency funds payment
+symbol money cash dollar bucks currency funds payment
+math symbol money cash dollar bucks currency funds payment
+symbol office school Link
+electronics symbol money cash dollar bucks currency funds payment
+symbol Litter Bin Sign
+symbol Potable Water
+symbol Wheelchair Symbol
+symbol Men’s Room
+symbol Women’s Room
+symbol Restroom
+symbol Baby Symbol
+symbol Water Closet
+symbol Passport Control
+symbol Customs
+symbol Baggage Claim
+symbol Left Luggage
+symbol Children Crossing
+symbol circle circles Prohibited stop
+symbol No Bicycles
+symbol smoking smoke cigarette puff No Smoking
+symbol No Littering
+symbol Non-Potable Water
+symbol No Pedestrians
+symbol phone telephone iphone No Mobile Phones
+symbol No One Under Eighteen
+Radioactive
+Biohazard
+religion symbol pray hope Place Worship
+Atom Symbol
+Om
+religion jew jewish judaism star symbol Star David
+Wheel Dharma symbol
+Yin Yang symbol
+religion symbol
+Orthodox Cross symbol
+Star Crescent Cross symbol
+Peace Symbol symbol
+religion object jew jewish judaism symbol holiday Menorah
+religion jew jewish judaism star symbol Dotted Six-Pointed Star
+Constellation zodiac Aries
+Constellation zodiac Taurus
+Constellation zodiac Gemini
+Constellation zodiac Cancer
+Constellation zodiac Leo
+Constellation zodiac Virgo
+Constellation zodiac Libra
+Constellation zodiac Scorpio
+Constellation zodiac Sagittarius
+Constellation zodiac Capricorn
+Constellation zodiac Aquarius
+Constellation zodiac Pisces
+Constellation zodiac Ophiuchus
+Pause Button symbol
+Stop Button symbol
+Record Button symbol
+Eject Button symbol
+symbol camera moviecinema film films
+symbol Antenna Bars
+symbol Vibration Mode
+symbol Mobile Phone Off
+symbol Recycling Symbol
+symbol Japanese Symbol Beginner
+symbol White Heavy Check Mark
+symbol Ballot Box With Check
+symbol Heavy Check Mark
+math symbol Heavy Multiplication X
+symbol sol shit outta luck Cross Mark
+symbol Cross Mark Button
+math symbol Heavy Plus Sign
+math symbol Heavy Minus Sign
+math symbol Heavy Minus Sign
+symbol Curly Loop
+symbol Double Curly Loop
+symbol Part Alternation Mark
+symbol Eight-Spoked Asterisk
+symbol Eight-Spoked Asterisk
+symbol Sparkle
+symbol punctuation mark punctuationmark marks punctuationmarks Double Exclamation Mark
+symbol punctuation mark punctuationmark marks punctuationmarks Exclamation Question Mark
+symbol punctuation mark punctuationmark marks punctuationmarks wth what hell Question Mark
+symbol punctuation mark punctuationmark marks punctuationmarks White Question Mark
+symbol punctuation mark punctuationmark marks punctuationmarks White Exclamation Mark
+symbol punctuation mark Exclamation Mark
+symbol Wavy Dash
+symbol Copyright
+symbol Registered
+symbol Trade Mark
+symbol Keycap Number Sign
+symbol Keycap Asterisk
+symbol Keycap Digit Zero
+symbol Keycap Digit One
+symbol Keycap Digit Two
+symbol Keycap Digit Three
+symbol Keycap Digit Four
+symbol Keycap Digit Five
+symbol Keycap Digit Six
+symbol Keycap Digit Seven
+symbol Keycap Digit Eight
+symbol Keycap Digit Nine
+10 number numbers math symbol
+symbol parties celebrate party celebration event celebrations wow whoa win winning killing it crushing victory victorious success successful perfect perfecto
+symbol Input Latin Uppercase
+symbol Input Latin Lowercase
+symbol Input Numbers
+symbol Input Numbers
+symbol Input Latin Letters
+symbol A Button (blood Type)
+symbol Ab Button (blood Type)
+symbol B Button (blood Type)
+symbol CL Button
+symbol Cool Button
+symbol Free Button
+symbol Information
+symbol ID Button
+symbol Circled M
+symbol New Button
+symbol NG Button
+O Button (blood Type)
+symbol OK Button
+symbol P Button
+symbol SOS Button
+symbol Up! Button
+symbol Vs Button
+symbol Japanese “here” Button
+symbol Japanese “service Charge” Button
+symbol Japanese “monthly Amount” Button
+symbol Japanese “not Free Charge” Button
+symbol Japanese “reserved” Button
+japan japanese symbol Japanese “bargain” Button
+symbol Japanese “discount” Button
+symbolJapanese “free Charge” Button
+symbol japan japanese symbol
+symbol Japanese “acceptable” Button
+symbol Japanese “application” Button
+japan japanese symbol Japanese “passing Grade” Button
+symbol Japanese “vacancy” Button
+japan japanese symbol Japanese “congratulations” Button
+japan japanese symbol Japanese “secret” Button
+symbol Japanese “open Business” Button
+japan japanese symbol Japanese “no Vacancy” Button
+shapes symbol square squares Black Small Square
+shapes symbol square squares White Small Square
+shapes symbol square squares White Medium Square
+shapes symbol square squares Black Medium Square
+shapes symbol White Medium-Small Square
+shapes symbol Black Medium-Small Square
+shapes symbol Black Large Square
+shapes symbol White Large Square
+shapes symbol Large Orange Diamond
+shapes symbol Large Blue Diamond
+shapes symbol Small Orange Diamond
+shapes symbol Small Blue Diamond
+shapes symbol triangle triangles Red Triangle Pointed Up
+shapes symbol triangle triangles Red Triangle Pointed Down
+symbol Diamond With a Dot
+symbol circle circles Radio Button
+shapes symbol square squares Black Square Button
+shapes symbol square squares White Square Button
+shapes symbol White Circle
+shapes symbol Black Circle
+shapes symbol circle circles Red Circle
+shapes symbol circle circles Blue Circle
+
