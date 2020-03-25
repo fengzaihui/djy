@@ -1,3 +1,5 @@
+  https://emojixd.com/list
+  
   :palm_tree:     palm_tree: 	棕榈树<br>
   :face_with_thermometer:     face_with_thermometer: 	面对温度计<br>
   :house:     house: 	屋<br>
