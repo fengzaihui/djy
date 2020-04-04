@@ -1019,15 +1019,4 @@ Jiang说： “一名患者刚刚在医院摘除了阑尾，但她不知道如�
 
 
 此前，悉尼晨锋报曾曝光莫索.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 3:24 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997553.md#1" target="_blank">缓解失业危机 澳政府开设Jobactive寻工网站</a><br></h3>疫情肆虐已使成千上万的澳洲人失去了工作，不得不申请福利津贴。为缓解疫情对就业的冲击，澳洲联邦政府开设了一个名为Jobactive的寻工网站。
-
-据澳新社消息，该寻工网站列出了网络上所有的空缺职位，以帮助因中共病毒（武汉肺炎）失业的人重新寻找工作。
-
-澳洲就业部长卡什（Michaelia Cash）表示，政府正试.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 3:17 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997543.md#1" target="_blank">悉尼银行家起诉澳洲财经见闻诽谤</a><br></h3>澳洲的麦觉里私人银行（Macquarie Private Bank）前行长赫德利（Guy Hedley）起诉一家中文商业新闻媒体以及一名文章作者诽谤。赫德利说，这家媒体指控他的银行从事旁氏骗局，占那些不了解澳洲市场的中国投资者的便宜。
-
-这篇引起纷争的中文新闻题目是《待宰的羔羊？5年向中国人吸金数百亿！澳洲“影子银.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 3:15 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997449.md#1" target="_blank">澳洲开始测试两种中共病毒候选疫苗</a><br></h3>澳洲最高科研机构已开始就两种候选中共病毒（俗称武汉肺炎）疫苗展开测试，这是全球与疫情抗争的一个里程碑。
-
-联邦科学与工业研究院（CSIRO）正在其下属的位于维州吉朗（Geelong）的高水准生物安全设施内，进行第一阶段的疫苗测试。这个阶段将对动物进行实验，为期3个月。这项测试选定的两种疫苗分别来自英国牛津大学和美国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 3:13 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/tlmwc248/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/tlmwc248/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tlmwc248/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/tlmwc248/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
