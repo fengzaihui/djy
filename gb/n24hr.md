@@ -768,44 +768,6 @@ CDC：戴口罩前一定要洗手
 <tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997368.md#1" target="_blank">来桃园“望进未来”奖8万  桃园设计奖开始</a><br></h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997368.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/8b4cb879d78c7ef7770b49e285ea81e2-150x120.jpg" align ="left"></a>桃园市青年事务局主办的“2020桃园设计奖”，以《Look into the Future》为题，寻找“革新旧有观念”或是“大破大立的全新设计”，设计奖共分为“视觉与商业设计”、“数位与多媒体设计”及“产品与工业设计”三大组别，并开放桃园限定的“桃园高中设计之星组”，109年4月起向全台15岁至30岁的年轻设计师们发出.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 2:19 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997353.md#1" target="_blank">澳洲推出免费入托计划对抗疫情 百万家庭获益</a><br></h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997353.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2011/06/1106050347232024-150x120.jpg" align ="left"></a>总理莫里森周四宣布将为澳洲家庭提供免费入托服务。该计划将在中共病毒（俗称武汉肺炎）疫情流行期间，帮助约百万个家庭及上万个托儿所渡过难关。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 2:18 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997374.md#1" target="_blank">防疫及纾困  桃园维持业者生计与消费者安全</a><br></h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/2/n11997374.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/bc0629f799d9332183236e4ba2fac38f-150x120.jpg" align ="left"></a>桃园市长郑文灿2日到中坜区访视兴国市场防疫作为时表示，兴国市场是经济部认的品牌市集及4星优良市集，在防疫作为方面也相当积极，包括于市场门口设置酒精自主消毒区供民众消毒、要求市场摊商营业配戴口罩、进行市场环境及采买车消毒等，并积极协调贩售熟食的摊商在食物上装设透明罩，减少飞沫传染风险，市府将持续推动各项防疫措施及经济纾困.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 2:15 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/24/n11969085.md#1" target="_blank">湾区中共肺炎患者确诊及死亡人数（截止4月3日）</a><br></h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/3/24/n11969085.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/tu3-040303-1-150x120.jpg" align ="left"></a>湾区中共肺炎患者确诊及死亡人数（截止4月3日）
-
-
-
-
-
-
-
-
-
-
-
-湾区中共肺炎患者确诊及死亡人数（截止4月2日）
-
-
-
-
-
-
-
-
-湾区中共肺炎患者确诊及死亡人数（截止3月31日）
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-湾区中共肺炎患者确诊及死亡人数（.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月02日 2:02 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12003143.md#1" target="_blank">“御守台湾?科技抗疫专案”征件启动</a><br></h3>由科技部国家实验研究院国家高速网路与计算中心（国研院国网中心）与台湾产业国家队打造的超级电脑“台湾AI云”，于2019年正式对各界提供服务，以前瞻基础建设推动台湾科技与产业发展，已具有显着成效。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月04日 9:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002784.md#1" target="_blank">作文选登：妈妈启发我写出好作文</a><br></h3>妈妈知道我不会写心得和作文，妈妈想要让我放松心情就带我去便利商店买荞麦面............<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月04日 5:48 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tlmwc248/djy/blob/master/gb/20/4/4/n12002748.md#1" target="_blank">趣味英语 ：Healthy as a horse 像马一样健康</a><br></h3>为什么人们会认为马很健康的？这是因为在过去，没有汽车、火车的年代里，人们生活中接触最多的又大又强壮健康的动物就是马。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月04日 3:56 PM			</td></tr>
