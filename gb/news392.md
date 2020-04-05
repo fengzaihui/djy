@@ -33,9 +33,9 @@
 
 十天前，3.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月04日 3:26 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n12000178.md#1" target="_blank">【疫情透视】远离中共是各国减轻疫情关键</a><br></h3><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n12000178.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1202936225-150x120.jpg" align ="left"></a>世界性的瘟疫，让各国防不胜防，远远超出了人们的想像。中共隐瞒疫情，造成了各国防疫的被动；依赖中国的供应链，造成了各国医疗物资的供应风险；中共暗地里提前搜罗口罩等抗疫物资，更造成了全球性短缺。与此同时，中共却根本不顾国民的生死，还用劣质品扮演救世主，又频频动用大外宣混淆视听、幸灾乐祸。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月04日 2:04 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/5/n12005282.md#1" target="_blank">王友群：中共文革把大陆变为“东方疯人院”</a><br></h3>1980年8月，意大利著名女记者法拉奇在北京问邓小平：“文化大革命究竟死了多少人？”邓小平回答说：“文化大革命真正死了多少人，那可是天文数字，永远都无法估算的数字。”他专门谈到了云南省委书记赵健民冤案。仅此一案，就牵连138万多人，打死1万7千多人，打残6万多人。
-康生一眼就看出赵健民是“叛徒”
-据赵健民回忆：19.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月06日 2:55 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n11999699.md#1" target="_blank">吴玉：《归途》——当生命只剩下90天</a><br></h3><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/3/n11999699.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/content____2020.04.02__1-150x120.jpg" align ="left"></a>小时候的我，住在中国南方的一个小镇。记忆中，每当春天来临，那里总是阴雨连绵，我常无数次地从梦中惊醒，然后听着窗外滴滴答答的雨点从屋檐掉落，仿佛永远也不会停止……
+
+无法安睡的小小人儿，内心总会有无数疑问，他们中的大多数很快被淡忘，但一个问题似乎总在不断重复、伴随我的整个童年和青春期：人究竟从何而来，又将去向何处？如.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月04日 12:25 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ulskhc2002/djy/blob/master/gb/20/4/4/n12002413.md#1" target="_blank">祝君安：浣溪沙·团购</a><br></h3>小区菜市开又封
 商家微信团购空
 疫猖马路禁人通......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月04日 12:33 PM			</td></tr>
