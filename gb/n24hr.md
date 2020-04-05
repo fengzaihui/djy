@@ -772,6 +772,9 @@ CDC：戴口罩前一定要洗手
 13例新的死亡病例使洛县的总死亡人数达到78人，并将死亡率提高到1.9%，比过去一周的1.8%有所提高。
 
 县公共卫生局局长芭芭拉·费雷尔（Barbara F.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月03日 7:21 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/2/n11999306.md#1" target="_blank">居家防疫 如何有效清洁与消毒</a><br></h3><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/2/n11999306.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/gettyimages-1212554289-594x594-1-150x120.jpg" align ="left"></a>随着中共病毒（也称武汉肺炎、武汉病毒、中共肺炎）疫情在全美加剧，人们也更加重视清洁和消毒，超市的消毒剂、消毒纸巾都被抢光，网上也流传各种自制消毒液的配方，那么，到底使用哪些产品以及如何操作才能达到理想的消毒效果呢？
+
+据加州大学洛杉矶分校生态与进化生物学教授史密斯（Lloyd-Smith）与美国国立卫生研究院、疾控.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月03日 7:07 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/5/n12004508.md#1" target="_blank">真的是“大煞风景”彰化红树林园区遭滥倒垃圾</a><br></h3>彰化有非常美丽的海岸线与丰富的湿地生态，长久以来常遭民众随意丢弃垃圾，不仅影响海岸观光发展，也破坏海洋生态，彰化县政府虽在周围设置监视器，但不肖民众依然趁黑夜滥倒垃圾，近日再度发现有民众不法行为，县府根据车牌追人，从重罚锾。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月05日 2:41 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tsfcd2943/djy/blob/master/gb/20/4/5/n12004231.md#1" target="_blank">【翻墙必看】北京市民抢粮画面曝光</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
