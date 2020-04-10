@@ -5,17 +5,24 @@
 
 1、安德鲁?杰克（Andrew Jack）
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 10:40 AM	</td></tr>
+<tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018619.md#1" target="_blank">批世卫偏袒中共 美议员要谭德塞到国会作证</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018619.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/f006228b7e057da0f1929ca7dfb4491b-150x120.jpg" align ="left"></a>世界卫生组织（WHO）总干事谭德塞因在中共病毒瘟疫问题上屡屡偏袒中共，引发美国政府和国会广泛批评。负责监督美国参与世卫的共和党参议员杨恩致函谭德塞，要求他出席美国国会听证会，回答世卫应对中共病毒大流行遭质疑的问题。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 11:01 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018612.md#1" target="_blank">调查局：中共网军假冒台湾网友攻讦谭德塞</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018612.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/196b8bf17af45cd4e0750fc4ec5cae01-150x120.png" align ="left"></a>法务部调查局今天表示，于上午11时召开记者会，说明查获大陆网军假冒台湾网民攻讦世卫组织秘书长谭德塞的情况。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 11:01 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018615.md#1" target="_blank">因中共病毒亚省3月失去117,000个工作</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018615.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/termination-110302_1280-150x120.jpg" align ="left"></a>4月9日（周四），加拿大统计局发布数据，亚省3月份损失了117,100个工作岗位，全国失去超过100万个岗位。这些新数据反映了中共病毒（COVID-19）对经济造成的损失。
+亚省失业全国第四
+这是亚省有记录以来最严重的单月变化。该省的总体失业率从2月份的7.2％升至3月份的8.7％，为全国第四高的省份。
+
+3月.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 10:46 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015830.md#1" target="_blank">【最新疫情4.10】川普：完成两百多万例测试</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12015830.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/000_1QI4U6-150x120.jpg" align ="left"></a>4月10日全球中共病毒（武汉肺炎）疫情最新情况：
 
 中共肺炎全球疫情及美国疫情大数据请点击这里。
 要点：
-白宫顾问：男性感染率远高于女性
+白宫顾问：男性感染率高于女性
 川普：美国完成超过200万例测试
 新疫情热点发病率低于纽约新泽西
 美股经历40年来最好一周
 纽约新增799死 连3天创单日新高
-加州重症者下降 住院人数增加
-免费.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 10:38 AM			</td></tr>
+欧洲病例数每三四天翻番
+免费奋战在抗.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 10:41 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018635.md#1" target="_blank">疫情持续恶化 州长令购物必须戴口罩</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018635.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/5-7-150x120.jpg" align ="left"></a>最近几天，新泽西“中共病毒”（武汉肺炎）感染人数持续攀昇，截至周四（4月9日），新州共有确诊病例51,027，共计死亡人数1,700，已超过在越战期间丧生的新泽西州居民的人数（1,487名）。
 
 本周三（4月8日），州长墨菲再颁布行政命令，加强防疫措施，要求所有开张的商店员工和顾客从周五（4月10日）必须戴上脸部覆.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 10:37 AM			</td></tr>
@@ -864,7 +871,7 @@ BART在周一（4月6日）的一份声明中宣布，从周三（4月8日）起
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011685.md#1" target="_blank">拼复工？ 台媒：大陆老百姓只是中共的数字</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011685.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/f4568f041dda9a63145724782ba54789-1-1-150x120.jpg" align ="left"></a>最近中共新华网等官媒一边称美国经济“遇到大麻烦”，一边鼓吹大陆经济复苏，被揭由此更可见中共造假。大陆经济受疫情重创岌岌可危，而中共的所作所为是在置民生于不顾。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 3:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011850.md#1" target="_blank">吴惠林：“正人心”才是灵丹妙药</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011850.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/AM3A6891-1-600x390-1-600x390-150x120.jpg" align ="left"></a>突如其来的“中共病毒”（武汉肺炎），短短三个月已经遍布全球，没有一个国家或地区能幸免，唯一的区别是各地的疫情轻重有别。大致而言，与中共关系密切或为中共揺旗呐喊的地方和人士，受害较重较深。不论如何，世人都在问：什么时候才会停止？有什么方法能解决？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 3:12 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011827.md#1" target="_blank">【珍言真语】刘慧卿：港府干涉新闻自由</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011827.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/e9123c396fb01690d44f1942d4794aa3-150x120.jpg" align ="left"></a>香港电台（港台）记者28日视讯访问世界卫生组织（WHO）高级顾问艾沃德（Bruce Aylward），问到世卫会否重新考虑接纳台湾作为会员时，对方装作没听见，然后切断视讯。采访画面被许多美国知名媒体人转发，纷纷质疑WHO的中立性。然而，香港商务及经济发展局（商经局）却抨击港台记者有违“一中”原则，引发外界争议。民主党前.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 3:09 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011832.md#1" target="_blank">法国染疫死亡总数破万 单日增幅高达16%</a><br></h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/7/n12011832.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/000_1QG2K8-150x120.jpg" align ="left"></a>法国卫生部周二（4月7日）公布数据显示，法国因中共病毒（武汉肺炎）造成的死亡总数已超过10,000人，且法国周二记录单日新增最大死亡人数，总计1,417人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 3:01 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018626.md#1" target="_blank">悉尼一医院现可快验中共病毒 45分钟出结果</a><br></h3>悉尼圣文森特医院（St Vincent）现在可以采用快速检测方法，在1小时内后查出检测对象是否感染中共病毒（武汉肺炎）。这是澳洲首家医疗机构能够在这么短的时间内出检测结果。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 10:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018433.md#1" target="_blank">疫情严峻 卑多所监狱提前释放部分囚犯</a><br></h3>据卑诗省公共安全和检查署办公室称，在3月1日至4月2日期间，共有9个监狱的95名囚犯被释放，其中包括高贵林港市北部菲沙预审中心的20名在押囚犯。上星期，卑诗省惩教所一直在考虑这一举动，并且正在对提前释放一些非暴力罪犯进行风险评估。随后，该省的两所监狱都有了确诊病例，预示着疫情将在监狱中的开始爆发。囚犯被认为是高危人群.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 8:49 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/10/n12018404.md#1" target="_blank">卑诗省3月份失业率飙升至7.2％</a><br></h3>财政厅长詹嘉璐在新闻稿中表示：“新冠病毒（中共病毒）大流行，对世界各国的民众和经济都构成重大影响，卑诗省也不能幸免，从最新一份劳工市场数据显示的失业数字，可见一斑。”她说：“我们知道，今天的数字只是反映疫情的初步影响。下月份数据将会展示更全面的画面。”詹嘉璐表示，省府会继续监察疫情带来的影响，并且承诺会竭尽所能，支援卑.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 8:09 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ylnu2943/djy/blob/master/gb/20/4/9/n12018386.md#1" target="_blank">纽森：为医护人员提供酒店代金券和补贴</a><br></h3>周四（4月9日）加州州长纽森（Gavin Newsom）宣布，所有在中共病毒（武汉肺炎）大流行期间，在第一线的医护人员，都可以获得酒店房间代金券和津贴。
