@@ -1,5 +1,18 @@
 <a name="1" id="1" target="_blank">&nbsp;</a> <span id="1">&nbsp;</span><table border="0"><tr><td colspan="2" VALIGN=TOP><a href="https://github.com/ux2545/djy/blob/master/gb/nf1351518.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/1.jpg" title="大纪元"></a><a href="https://github.com/ux2545/djy/blob/master/gb/n24hr.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/3.jpg" title="国际新闻"></a><a href="https://github.com/ux2545/djy/blob/master/gb/nf1351518.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/4.jpg" title="大陆新闻"></a><a href="https://github.com/ux2545/djy/blob/master/gb/news392.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/5.jpg" title="评论"></a><a href="https://github.com/ux2545/djy/blob/master/gb/news2007.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/6.jpg" title="文化"></a><a href="https://github.com/ux2545/djy/blob/master/gb/news2008.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/7.jpg" title="生活"></a><a href="https://github.com/ux2545/djy/blob/master/gb/ncyule.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/8.jpg" title="娱乐"></a><a href="https://github.com/ux2545/djy/blob/master/gb/nsc1002.md#1"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/9.jpg" title="健康"><a href="https://www.youlucky.com"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/10.jpg" title="购物"></a><a href="https://donate.epochtimes.com/?utm_medium=epochtimes&utm_source=referral&utm_campaign=donate_button_djyarticleheader"><img src="https://raw.githubusercontent.com/ux2545/www/master/t/djy/12.jpg" title="捐款"></a></td></tr><tr><td colspan="2" VALIGN=TOP><p><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=zcox2XJAms574" rel="nofollow">大纪元</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=D8Ax1TtAnol74" rel="nofollow">动态网</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=G5IN0M9kn5F64" rel="nofollow">神州</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=wf4N4cAnik9Rs0" rel="nofollow">退党</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=oQhDrP9jaNomgd953b1AgeVB1TtAnol74" rel="nofollow">九评</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=8D43fA4loYFTi0" rel="nofollow">网门</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=Sp8g2msSlexkp0" rel="nofollow">神韵</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=ZiIMbsVmsNV54" rel="nofollow">新纪元</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=oTQid61TrHh44" rel="nofollow">看中国</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=tOA2cZR4kmZ74" rel="nofollow">明慧网</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=sM1DqTVg5hMgn4FQl7oQjflQm187n3t4q0" rel="nofollow">明慧十方</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=vPRklaR07gs12hxAhrdwgbJkm7RxrotQgI12" rel="nofollow">明慧焦点</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=Nug07FB5h2d64" rel="nofollow">希望之声</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=Trlljilh3b4huwVSsHESoz5SvBo5o-J7l0" rel="nofollow">漫谈党文化</a ></p><p><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=C9gN1Qpkmpp74" rel="nofollow">新唐人</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=LrN5nvs5grJMkhpwijNQ48Z2nK5nsu12" rel="nofollow">亚太台</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=yNJnohBwu4JRnM12" rel="nofollow">直播</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=UkhBjj9N2703cJEnpFp7aDNCryFD8jdCoAB44" rel="nofollow">传奇</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=RpJRggtN0fc1hvNmsJMmoxZmsDgBpVBDl0" rel="nofollow">神话</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=7Hlmvylie_4ytNRDoYI7sOVDrSsQtKxmh0" rel="nofollow">人生</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=I01Am7Vx128g1qYAlkBk5kBlmnpDbvZCtMR54" rel="nofollow">伪火</a > | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=QoxBgvpN29ghhs95sKQCpwN6sEklpUVTl0" rel="nofollow">真相片</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=I01Am7VN0tEklpp46nNBniFA4zNSsTx54" rel="nofollow">藏字石</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=hZZTpYJ38DA2aR8mvNV6cfhAha9B2XJAms574" rel="nofollow">短视频</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=4ExCsLpie-gitI9Sv-UTtTRToVE4tHZ6g0" rel="nofollow">告诉未来</a > | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=F5tQn4dM6s000tEklpp46nNBniFA4zNSsTx54" rel="nofollow">终级目的</a> | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=i_V7oZxP9wAOaQk6vOZS3etQhddl2WhQmv174" rel="nofollow">中共活摘</a > | <a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=wcNAlbFM4kwgk8pQm38QibBRhtU6m7d4r0" rel="nofollow">风雨天地行</a></p></td></tr><tr><td width="707"><h3><p><strong>24小时全球新闻滚动</strong></p></h3></td><td VALIGN=TOP rowspan=50><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=tNdTq8Zw5gg159Uli5F513xAi6pA7LZBh0R64" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/gudianwu.jpg" title="神韵古典舞技巧表演" alt="神韵古典舞技巧表演"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=wxplpXtRkrkNgmk0h9BQhpZ1ru5kgK12" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/9ping.jpg" title="九评共产党" alt="九评共产党"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=EVFAnQZn5vtNp5dw36Ul2os5nu9Biic6rPt7m0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/communism.jpg" title="共产主义终极目的" alt="共产主义终极目的"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=RpJRggtN2kk4ni1DbJp6oI17all6u_t54" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/weihuo.jpg" title="中共的伪火骗局" alt="中共的伪火骗局"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=qSp7qR1jbfwRgfhB2994j0N51N54nqJ64" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/changzhi.jpg" title="古今奇观-藏字石" alt="古今奇观-藏字石"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=gYNDpXFj8ysiaScCuMRmcMlkhblR2UFklt974" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/tianan.jpg" title="通往天安门的旅程" alt="通往天安门的旅程"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=tNdTq8ZM6nI0n7J4m6kAj8h4m0Qmn0pQr0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/weilai.jpg" title="未来人的神话" alt="未来人的神话"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=rT5nqS535lc13thAintwhfZkhr5wssdQhE12" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/ji-zy.jpg" title="中共罪恶的活摘" alt="中共罪恶的活摘"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=1JZStIJyd-w3eB8nrxV78-hDtW9CebJDqI544" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/huozhai.jpg" title="铁证如山" alt="铁证如山"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=mWF7rNhz8EMicC5kjiNMi09AjupMt7V5mR12" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/4ke.jpg" title="一家四口死于中共暴政" alt="一家四口死于中共暴政"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=A8xAkfpg6vEN0kZQg0Vhnm15n0xhplxAjD12" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/jie-di.jpg" title="─弟妹相继死于中共迫害" alt="─弟妹相继死于中共迫害"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=8AhCvz9ieXUPfEdTvAFjuON7sIhjgNNCqX12" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/ma-sj.jpg" title="她们许多已经被中共迫害至死" alt="她们许多已经被中共迫害至死"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=4ExCsLpye-EP8QZSowVjvS17vwxjhRxCr712" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/shuan-cxl.jpg" title="双城血泪" alt="双城血泪"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=OuV5gtxx1aoNgq1ljhY6pCFCsGIRqWNnk0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/wu-zbh.jpg" title="震撼人心的无罪辩护" alt="震撼人心的无罪辩护"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=zfBkkeB04sI11lNAgvZxnntln3BxqkJQjw12" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/6c10-720.jpg" title="从610到720" alt="从610到720"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=yeV4kdxM5roMka1kn10kllJlhrwCm5RAo0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/xian-z.jpg" title="中共官员的选择" alt="中共官员的选择"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=B9JQk0t07rQ171olkt947r1BkuVA5DtBj8l64" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/1400l.jpg" title="剖析1400例" alt="剖析1400例"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=Xn5limVycO8jdGYDpABn9ABmqDBTfcVnoxV44" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/425.jpg" title="万人上访真相" alt="万人上访真相"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=F5tQn4dM7t4w7b95m5B1mtRRkdd1oi97tp12" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/qing-h.jpg" title="被中共迫害的清华学子" alt="被中共迫害的清华学子"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=Trlljil12c4huwVSsHESoz5SvBo5o-J7l0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/jian-z513.jpg" title="见证513" alt="见证513"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=UkhBjj9N2703cJEnpFp7aDNCryFD8jdCoAB44" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/gongfu.jpg" title="功夫 寻道" alt="功夫 寻道"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=yeV4kdxM4owN64k5j2ZR7utRltdk6GhRif164" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/guangguimian.jpg" title="歌唱家人生奇迹" alt="歌唱家人生奇迹"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=3LBmsKBif-I39RNCo-ZzvTtnvzBziQJSr012" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/ming-jjy.jpg" title="名校精英的选择" alt="名校精英的选择"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=cw1CuDVjazMjrQFTpToTv-lTqN84jjt5u0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/yin-lj.jpg" title="音乐之家的故事" alt="音乐之家的故事"></a><br><a href="https://rawcdn.githack.com/ux2545/oo/master/jump2.htm?id=j-Bno_BPaGkzoZ5DrMY4h6FAkaITiqNls0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/fvnwm2273/djy/master/gb/130/ming-hsf.jpg" title="平凡中的不平凡" alt="平凡中的不平凡"></a><br><a href="https://github.com/ux2545/www/blob/master/README.md?dfh#9" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/yong-h.jpg" title="永恒的见证"  alt="永恒的见证"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/13/9/29/n3974789.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/shang-lnz.jpg" title="善良女子被中共投男牢"  alt="善良女子被中共投男牢"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/16/3/16/n4663449.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/huo-z3.jpg" title="警卫目击中共活摘"  alt="警卫目击中共活摘"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/16/8/7/n8177641.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/huo-z4.jpg" title="证人描述活摘恐怖"  alt="证人描述活摘恐怖"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/10/4/19/n2881569.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/huo-z1.jpg" title="揭开活摘器官黑幕"  alt="揭开活摘器官黑幕"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/10/11/7/n3077476.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/ma-ks.jpg" title="马克思的成魔之路"  alt="马克思的成魔之路"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/18/5/10/n10381511.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/st1.jpg" title="关注3亿人三退"  alt="关注3亿人三退"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/18/3/21/n10237682.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/jie-t.jpg" title="解体中共复兴中华"  alt="解体中共复兴中华"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/9/2/9/n2422991.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/gao-zs.jpg" title="中共迫害良心律师"  alt="中共迫害良心律师"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/18/12/9/n10900044.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/sj1.jpg" title="303万人举报江泽民"  alt="303万人举报江泽民"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/18/8/28/n10672014.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/sj2.jpg" title="这些官员为何起诉江泽民"  alt="这些官员为何起诉江泽民"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/8/12/18/n2367165.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/liangan.jpg" title="海峡两岸的强烈反差"  alt="海峡两岸的强烈反差"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/15/12/10/n4593139.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/jia-ndzl.jpg" title="加拿大总理的贺信"  alt="加拿大总理的贺信"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/11/6/17/n3289382.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/xiao-wd.jpg" title="探寻真相兼听则明"  alt="探寻真相兼听则明"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/18/10/27/n10812623.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/yindu.jpg" title="印度媒体报道东方"  alt="印度媒体报道东方"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/18/6/9/n10469652.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/xie-j.jpg" title="不一样的海外校园"  alt="不一样的海外校园"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/7/4/5/n1669415.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/li-up.jpg" title="从大师到徒弟的传奇"  alt="从大师到徒弟的传奇"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/17/5/26/n9191512.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/zfl2.jpg" title="亿万人与东方一本奇书"  alt="亿万人与东方一本奇书"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/13/11/27/n4020290.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/zhen-h.jpg" title="大陆见不到的震撼场面"  alt="大陆见不到的震撼场面"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/15/7/17/n4482910.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/dalu-sk.jpg" title="人心向善 大陆当初盛况"  alt="人心向善 大陆当初盛况"></a><br><a href="https://github.com/ux2545/djy/blob/master/gb/19/1/5/n10955468.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/zfl1.jpg" title="追寻真理 这书讲什么"  alt="追寻真理 这书讲什么"></a><br><a href="https://github.com/ux2545/www/blob/master/README.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/ux2545/djy/master/gb/130/fq1.jpg" title="下载免费翻墙软件"  alt="下载免费翻墙软件"></a><br></td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018816.md#1" target="_blank">星野源疫情下在家献唱 日本艺人隔空助阵</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018816.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/guitar-756326_1920-320x200.jpg" align ="left"></a>就像世界各地的很多民众一样，日本创作歌手星野源也在进行居家隔离。他最近在家里藉由网路献唱新歌《在家跳舞吧》，敦促人们做好防疫工作，也鼓励其他人与他合作，为这首歌曲添加伴奏或其他花絮，结果引来不少艺人隔空助阵。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:12 PM	</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019146.md#1" target="_blank">前NASA太空人给居家隔离者的建议</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019146.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-513199678-320x200.jpg" align ="left"></a>太空人长时间在与世隔绝的太空中工作，形同另类隔离，所以他们拥有这方面的丰富经验。在当前许多人进行隔离的情况下，这些前辈提供了一些建议，供有需要的人们参考。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:48 PM	</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012323.md#1" target="_blank">被轰为中共谎言背书 澳洲州议员辞议长助理</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012323.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/slide5-600x400-150x120.jpg" align ="left"></a>2020年4月，澳大利亚新州议会上议员莫索曼（Shaoquett Moselmane）为中共站台的言论引发澳洲各界的谴责，在舆论压力下，莫索曼辞去上议院议长助理。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:50 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019175.md#1" target="_blank">台湾增2例中共肺炎患者 均为境外移入</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019175.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/0-04-102.33-150x120.jpg" align ="left"></a>台湾中央流行疫情指挥中心今日（10日）公布台湾新增2例中共肺炎（武汉肺炎）境外移入病例，分别为20多岁女性（案381）及60多岁男性（案382）。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:42 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018842.md#1" target="_blank">广东非洲籍男子染疫 4月持续出现本土病例</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018842.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-955122220-150x120.jpg" align ="left"></a>中共病毒（武汉肺炎，新冠病毒）疫情在大陆持续，广东省在4月份的前9天持续出现确诊的本土病例。其中一名利比里亚籍男子从4日出现发热症状，直到9日才被确诊感染中共病毒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:25 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018780.md#1" target="_blank">中共暂停陆生赴台就读 台陆委会表示遗憾</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018780.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/11/dd46c90c9bf03b16965bf4622e0a10ed-150x120.jpg" align ="left"></a>中共最近暂停了2020年大陆各地各学历层级毕业生赴台升学就读试点工作，台湾高校校长担心，这样会让两岸学术交流因此中断。近期还传出，中共要求陆配提供在台家庭资料，陆委会表示，对不法搜集会依法查办，陆配应谨慎维护自身及家人个资。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:16 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019047.md#1" target="_blank">谢志伟感动见证援欧口罩抵达  德国官员：台湾微小却伟大</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019047.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/b18aeb5dd024f556cd99f5eb472a847b-150x120.jpg" align ="left"></a>驻德代表谢志伟周五（4月10日）见证了台湾援欧口罩抵达德国的那一刻，激动的分享令他眼角湿润的瞬间；此外，前来迎接的德国官员更说：“台湾微小却伟大，孤立但独立。”还对台湾致上深深的谢意。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:15 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019141.md#1" target="_blank">【直播】4.10指挥中心记者会 说明最新疫情</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019141.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/0-04-092.56-150x120.jpg" align ="left"></a>中央流行疫情指挥中心召开每日例行记者会，并进行现场直播。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:15 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018775.md#1" target="_blank">赖清德贴医生誓词 盼唤谭德塞“医者仁心”</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018775.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/2004092342502378-150x120.jpg" align ="left"></a>中华民国副总统当选人赖清德4月9日表示，WHO秘书长谭德塞的发言对台湾极端不公且违反世卫成立宗旨应向台湾道歉。他在脸书贴医生誓词说，谭德塞医学院毕业，相信他应该很清楚“医者仁心”的概念。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:14 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019114.md#1" target="_blank">加州补助医务人员 并将加速病毒检测</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019114.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1209296016-150x120.jpg" align ="left"></a>4月9日，加州州长加文?纽森（Gavin Newsom）在当日的疫情简报会上表示，该州将从10日开始启动一项津贴计划，为疫情期间在前线工作的医务人员发放酒店津贴，他们也将获得免费或低价机票。
+
+纽森说，医护人员为抗疫不得不与家人分离，其中一些人因为怕感染家人而不得不睡在汽车或旅馆里。津贴计划生效后，政府将为医护人员.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:13 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018726.md#1" target="_blank">动手做料理 度过孩子停课期 (4)：水果优格冰棒</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018726.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/shutterstock_280629056-150x120.jpg" align ="left"></a>做料理不只很有趣，也可以借机学习科学知识，还能提升手眼协调能力。研究更指出，参与烹饪过程的孩子，饮食也会比较健康均衡。今天，我们分享的食谱是“水果优格冰棒”，透过自制冰棒，你可将孩子爱吃的垃圾食物，变成健康美味的营养点心。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:11 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019055.md#1" target="_blank">全面盘查市内酒店及舞厅  呼吁减少群聚活动</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019055.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/9b20b0a7908916d2071357622988f2a6-150x120.jpg" align ="left"></a>桃园市长郑文灿10日表示，中央流行疫情指挥中心公告自4月9日起，酒店和舞厅全面停止营业，市府已请经发局、卫生局、警察局、消防局、建管处5个单位，组成联合稽查小组，于2日内稽查92家舞厅及酒店歇业政策落实情形，9日已完成稽查55家，全数达标，10日将持续第2波盘查。市府除了感谢业者愿意配合停止营业，也展现政府执行防疫对策.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:09 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019060.md#1" target="_blank">台湾国防部：西南海域侦获轰6歼11等共机</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019060.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/H-6K_landing-150x120.jpg" align ="left"></a>台湾国防部今日（10日）表示，上午侦获中共轰6、空警500、歼11等各型机，于台湾西南方海域执行远海长航训练，并经巴士海峡进入西太平洋后，即循原航路返回驻地，我空中侦巡战机全程掌握应处。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:08 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018987.md#1" target="_blank">环保局无强制申装室内空气监测设施  鼓励安装</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018987.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/62d5c6a38b25d6b866e01e0b03b622b6-150x120.jpg" align ="left"></a>桃园环保局收到寺庙及幼儿园反应，发现有不肖业者冒用环保局名义，强力推销或强迫要求须安装自动监测设施，桃园市环保局为提升寺庙及幼儿园室内空气品质，今年持续加码推动“桃园市寺庙设置室内空气品质自动监测设施补助计划”与“桃园市幼儿园设置室内空气品质自动监测设施补助计划”，鼓励相关单位自主为空气品质把关，绝无强制要求安装的情形.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:04 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018993.md#1" target="_blank">汽燃费约定扣款自动缴  电子账单最环保防疫好</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018993.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/d9a8105aee546070aca506dafc42adfb-150x120.jpg" align ="left"></a>因应网路时代的来临，线上申办监理业务更加多元化，汽燃费亦可使用监理服务网、监理服务APP及语音操作等方式办理线上查询缴纳，但每年皆有民众因忙碌且未居住在户籍地，又未办理公路监理业务住居所、就业处所地址申请，未留意相关资讯导致遗忘缴纳逾期受罚的情形发生，为避免此情形的发生，桃园监理站积极推广汽燃费电子缴款单及约定扣款等多.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:02 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019020.md#1" target="_blank">纽约华人染疫康复者：愿捐血浆  助研究抗体</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019020.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/3ab604046e845833460df055e4649314-150x120.jpg" align ="left"></a>家住新泽西的华人何先生是一名击剑爱好者，今年3月初在击剑馆训练之后，他与一起训练的同伴两人双双发现感染了武汉肺炎（中共病毒）。不过在住院4天半后，他就奇迹康复并出院了，再检测，结果为阴性。何先生认为，他能康复，自身免疫力很关键，也感到自己算幸运，并表示愿意到医院捐献自己的血浆，供有关单位做COVID-19抗体方面的研究.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:55 PM			</td></tr>
@@ -20,6 +33,7 @@
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019012.md#1" target="_blank">【新泽西疫情4.10】确诊破5万 预计高峰将在数日出现</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019012.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/COVID-19-1-2-150x120.jpg" align ="left"></a>根据新泽西州政府4月9日（周四）下午疫情发布会的报告，新泽西州目前共有51,027例“中共病毒”（或新冠病毒，COVID-19，武汉肺炎）的确诊病例，死亡1,700人。在过去24小时内新增3,748个确诊病例和198例死亡。
 
 州长墨菲（Phil Murphy）周四在春顿战争纪念馆的每日疫情发布会上表示，尽管确诊病.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:20 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018816.md#1" target="_blank">星野源疫情下在家献唱 日本艺人隔空助阵</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018816.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/guitar-756326_1920-150x120.jpg" align ="left"></a>就像世界各地的很多民众一样，日本创作歌手星野源也在进行居家隔离。他最近在家里藉由网路献唱新歌《在家跳舞吧》，敦促人们做好防疫工作，也鼓励其他人与他合作，为这首歌曲添加伴奏或其他花絮，结果引来不少艺人隔空助阵。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:12 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019005.md#1" target="_blank">纽森：加州接受ICU治疗人数下降</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019005.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/gettyimages-1209096263-594x594-150x120.jpg" align ="left"></a>加州州长纽森（Gavin Newsom）自每日的中共病毒（武汉肺炎）简报会以来，周四（4月9日）首次宣布，加州在重症监护室（ICU）接受治疗的患者人数有所下降。
 
 纽森表示，目前，加州有1,132名中共病毒（武汉肺炎）患者，正在ICU内接受治疗，比前一天（4月8日）下降了1.9%。他说：“这是一个百分比的下降，并不.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:11 PM			</td></tr>
@@ -29,7 +43,6 @@
 
 旧金山交通局（San Francisco Municipal Transportati.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:04 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018923.md#1" target="_blank">34项国际电影节大奖 《归途》4/12早10点半网络公映</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018923.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/7228cd6ff3011777383aff821fe1de44.jpeg" align ="left"></a>获得多项国际电影节奖项的故事长片《归途》，定于4月12日（周日）美东时间早十点半，在Youtube上向全球网络公映，欢迎收看。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:03 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012323.md#1" target="_blank">澳议员为中共站台?舆论中辞去议长助理职务</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012323.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/slide5-600x400-150x120.jpg" align ="left"></a>2020年4月，澳大利亚新州议会上议员莫索曼（Shaoquett Moselmane）为中共站台的言论引发澳洲各界的谴责，在舆论压力下，莫索曼辞去上议院议长助理。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 1:03 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018929.md#1" target="_blank">过去36小时内  纽约市逾千人因染疫而死去</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018929.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/9050069399664a56031450bc5e4ce0de-150x120.jpg" align ="left"></a>纽约市卫生局数据显示，从周二（7日）早上至周三（8日）晚间，有至少1,000人死于中共肺炎。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 12:58 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018933.md#1" target="_blank">纽约州府再设5处病毒检测点</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018933.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/77784a988f6fc9c94b1343baa0983c3a-150x120.jpg" align ="left"></a>鉴于目前中共病毒疫情造成西语裔和非裔民众死亡率高的问题，纽约州长库默（Andrew Cuomo）9日宣布在纽约下州增设5个检测点，位置主要在少数族裔聚集的社区，为他们提供更多检测。这些检测点皆需致电预约。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 12:53 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018704.md#1" target="_blank">世卫受中共控制防疫反应慢 前白宫官员吁改革</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018704.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/GettyImages-1195328093-1-600x400-150x120.jpg" align ="left"></a>中共病毒（武汉肺炎）肆虐全球，世卫防疫作为、挺共言论饱受批评。美国前白宫国安会官员史帕丁4月9日表示，世卫不只受中共高度控制，疫情反应也不够快，应被好好改革。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 12:51 PM			</td></tr>
@@ -886,20 +899,163 @@ NBA联盟日前向球员工会提出，若本赛季常规赛取消，希望联�
 
 BART在周一（4月6日）的一份声明中宣布，从周三（4月8日）起，周一到周五的捷运班次，将变更为每30分钟运行一次，晚间开始提供3条线路往返旧金山，单向班次在晚上8点左右从旧金山出发。目前，周末期.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012057.md#1" target="_blank">【直播回放】4·7美国疫情发布会 确诊逾40万人</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012057.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/download-7-150x120.jpg" align ="left"></a>美国政府于周二（4月7日）召开每日疫情新闻发布会，新唐人、大纪元将联合对此进行直播（中文同声翻译），并同时在新唐人电视频道和大纪元、新唐人网络频道播出。敬请收看。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:51 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12011905.md#1" target="_blank">生产3万呼吸机 加拿大近5千公司助产医疗设备</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12011905.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/23046041-150x120.jpg" align ="left"></a>随着中共病毒（COVID-19）在全球蔓延，凸显西方各国医疗用品供应链的脆弱现实，加拿大总理特鲁多周二（4月7日）表示，加拿大政府正在与一些加拿大公司合作在本土生产多达3万台呼吸机，呼吸机是挽救感染病毒重症患者的关键装备。特鲁多还表示已经有多达5千家加拿大公司提出可以生产医疗防护装备。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:42 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12011538.md#1" target="_blank">【纪元播报】美议员：中共掩盖疫情 罕见卑鄙行为</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12011538.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-577289740-600x400-150x120.jpg" align ="left"></a>美国德州联邦共和党众议员迈克尔·麦考尔（Michael McCaul）接受美国媒体采访时表示，中共极力掩盖国内中共肺炎疫情的行为，是“历史上最卑鄙和最罕见的行为之一”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:41 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012140.md#1" target="_blank">【新泽西疫情4·7】州长签署4新行政令 562名州警感染</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012140.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/NJCOVID-2-2-150x120.png" align ="left"></a>根据新泽西州长墨菲周二（4月7日）在春顿（Trenton）每日疫情发布会上公布的数据，昨天一天，新泽西州新增“中共病毒”（冠状病毒，COVID-19，武汉肺炎）确诊病例3,361个，新增死亡病例232人，创单日死亡最大增幅。全州感染病例上升至44,416，死亡者总计达到1,232人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:41 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012141.md#1" target="_blank">调查：大陆37%消费者拟推迟买新手机计划</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012141.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2017/01/1701310549302378-150x120.jpg" align ="left"></a>近日有调查显示，大陆有37%的消费者计划推迟原来的购买新智能手机计划。受中共病毒疫情（武汉肺炎）影响，大陆民众消费能力大减。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:39 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012188.md#1" target="_blank">圣地亚哥富临酒家被大火烧毁 损失数百万</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012188.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/2004071824562371-150x120.jpg" align ="left"></a>4月6日晚，圣地亚哥Kearny Mesa地区的老牌高档中餐厅富临海鲜酒家（China Max Seafood Restaurant）突发大火，餐馆被完全烧毁，与之相连的周围几个商家也受到不同程度的毁损。
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019237.md#1" target="_blank">冷气 空调 冷冻库</a><br></h3>
 
-富临酒家位于圣地亚哥亚裔餐馆聚集的Convoy和Engineer交叉路口边上的一个商圈里，所在位置是一栋两层.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:35 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012232.md#1" target="_blank">违反社交疏离 警察开始大开罚单</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012232.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/ca-times.brightspotcdn-1-150x120.png" align ="left"></a>近几天来，南加州各地对违反州内居家防疫令的打击力度不断升级。曼哈顿海滩市在周末开了129张罚单，并关闭了4个建筑项目，理由是在疫情中违反了社交疏离（Social Distancing）规定，包括在公共场合与他人保持六英尺的距离、禁止两人以上的集会等。
+冷气、空调，冷冻库，专业维修，价格合理，省时省钱，加州执照。
 
-曼哈顿海滩市已确诊48个中共病毒（武汉肺炎、冠状病毒、COVI.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:34 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12011664.md#1" target="_blank">全球旅行自由度 加拿大护照排名跌至第9位</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12011664.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/09/07082938-150x120.jpg" align ="left"></a>衡量世界上最方便旅行护照的亨利护照指数（Henley Passport Index），还是按照原来的方法排位，假设没病毒流行的正常情况下，各国护照可以无需事先签证访问哪些国家。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:31 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012250.md#1" target="_blank">魁省感染过9千 蒙市禁文体活动至7月2日</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12012250.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/20200407_Montreal_Quebec_press_COVID-19-150x120.jpg" align ="left"></a>4月7日星期二，魁北克省政府在中共病毒肺炎（又称武汉肺炎、新冠肺炎、COVID-19）疫情每日发布会上更新，全省最新确诊人数超过9千，病亡150人。
-魁省长勒戈（Fran?ois Legault）在解读数据时说，重症室患者较昨日无新增， 依然为164宗，这令人鼓舞。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:29 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12010666.md#1" target="_blank">【纽约疫情4.7】媒体曝纽约市病死数恐被低估</a><br></h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/7/n12010666.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1209150285-150x120.jpg" align ="left"></a>4月7日，美国纽约州中共病毒（武汉肺炎）疫情的最新情况：新闻网站Gothamist报导发现，纽约市法医办公室没有对所有在家中死亡的大体进行病毒检测，就将其依“可能”是病毒死亡报告给该市卫生部门。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月08日 6:11 AM			</td></tr>
+电话： 626-872-9902??阿东......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:49 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019231.md#1" target="_blank">漏水救星</a><br></h3>
+
+20年修补屋顶漏水经验，卫浴水管，排水漏水，换热水炉，各类大小工程。
+
+电话：626-382-6938房生......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:45 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019214.md#1" target="_blank">电工教师 空调专家</a><br></h3>
+
+电机空调科班出身，学校电工空调及建筑执照老师，研究安装维修各类空调及电力，为人师表童叟无欺，修好才收费。
+
+电话：626-376-3129 王老师......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:42 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019188.md#1" target="_blank">疫情期出行 新州艺术厅长被罚1000 州长道歉</a><br></h3>周四晚，新州艺术厅长哈文（Don Harwin）因在疫情蔓延期间前往自己在新州中央海岸的度假屋，被警察罚款1000澳元。哈文的行为引发了公众的不满。目前哈文已离开度假屋，返回悉尼。新州州长贝丽吉克莲（Gladys Berejiklian ）为此代表政府团队向公众道歉。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:40 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019210.md#1" target="_blank">省电冷暖空调</a><br></h3>
+
+批发价销售安装最新变频冷暖分体空调，省电无噪音，全职专业团队安装、维修、保养中央空调。
+
+电话：626-391-0412......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:39 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019202.md#1" target="_blank">专业疏通</a><br></h3>
+
+疏通马桶，洗碗池，餐馆下水道，水龙头，绞碎机。
+
+电话：626-759-1861莫......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:35 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019197.md#1" target="_blank">电力公司电工</a><br></h3>
+
+专业安装电箱，电表，室内外及建筑/停车场照明/整体住宅电力施工工作，厨房浴室全部翻新。
+
+电话：626-559-3188；626-265-2921......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:32 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019187.md#1" target="_blank">不通不收费</a><br></h3>
+通：马捅、洗碗池、浴缸
+通：餐馆下水道
+修：漏水
+换：水龙头 绞碎机 热水炉
+电话：626-759-1828......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:28 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019167.md#1" target="_blank">两州或成解禁试点 复活节长周末是关键</a><br></h3>联邦卫生部长亨特（Greg Hunt）表示，这个复活节周末是澳大利亚与疫情抗争的“最重要”时期。这个周末的情况将决定政府能否开始放宽社交疏离措施。此外，南澳、西澳以及一些次发达地区可能会成为解禁的试点区域。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:25 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019181.md#1" target="_blank">新美装修</a><br></h3>
+
+新美装修，全屋翻新，内外油漆地板、围墙、厨浴，修建车房，改建水电、新建，多年经验，质量保证，广东赵。
+电话：626-492-8326......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:25 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019173.md#1" target="_blank">通大小下水管</a><br></h3>
+通大小下水管，焊接铜水管，修装 热水炉，绞碎机，水龙头，马桶，焊接门窗，网护栏，七天营业 。
+
+电话：626-400-7630
+&nbsp;......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:21 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019158.md#1" target="_blank">专业地板&#038;小修小补</a><br></h3>
+
+多年经验，专业地板，做工最好，价格最低。
+
+电话：626-295-7750刘......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:17 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019126.md#1" target="_blank">新州12区疫情传播风险高 当局加大检测力度</a><br></h3>截至2020年4月9日星期四晚8点， 新州又增49宗中共病毒（武汉肺炎）感染病例，确诊病例总数达到2,822例。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:16 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019149.md#1" target="_blank">168装修</a><br></h3>
+
+瓷砖地板●内外油漆●浴室隔间
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+水电煤气●大修小补●专业诚信
+
+电话：626-203-5262
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:14 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019140.md#1" target="_blank">环球装修</a><br></h3>
+
+水●木●电工程
+磁砖地板●门窗更改●厨浴更换
+油漆翻新●质量保证●安期完工
+626-454-9929 周先生......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:12 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019134.md#1" target="_blank">旧车报废</a><br></h3>
+
+补贴$1500，ID,DMV填表，快考驾照，车主证。
+电话：626-716-8387
+微信：ymr2328
+地址：145 E Garvey Ave Monterey Park......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:09 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019125.md#1" target="_blank">冠腾移民事务所</a><br></h3>
+
+冠腾移民事务所
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+电话：626-698-9555......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:05 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12018999.md#1" target="_blank">新州27个地方政府辖区至今无人染疫</a><br></h3>尽管新州的中共病毒（武汉肺炎）感染者数量已逼近3000，但在128个地方政府辖区中仍有27个区尚未发现任何感染者。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月10日 2:02 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/10/n12019108.md#1" target="_blank">移民乐换工卡$30</a><br></h3>
 免试中英文入籍，移民 工卡转绿卡，委托书，老人金，失业金，粮食券，医疗卡，免费巴士证，护照绿卡，安家费 DMV旧车报废＄1500，电话626-716-8387。
@@ -996,17 +1152,7 @@ BART在周一（4月6日）的一份声明中宣布，从周三（4月8日）起
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12016653.md#1" target="_blank">新州政府正考虑减免房东地税 居民房租或降</a><br></h3>新州政府表示，在中共肺炎（俗称武汉肺炎）疫情期间，如果房东同意将政府提供的优惠传递给租客，房东将得到延迟缴纳、甚至减免地税的优惠。
 
 据悉尼晨锋报报导，新州财政厅长佩罗泰特（Dominic Perrottet）说，在本周国家内阁会议后，各州都在研究为租客减压的政策。“提供一定程度的地税减免或延期纳税，是我们正在敲定.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 3:35 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12015965.md#1" target="_blank">全球真相新闻·专刊 第1期（2020年4月）</a><br></h3>全球真相新闻·专刊 第1期（2020年4月）台湾大纪元制作，页数：共4页。报纸高清晰正体版（6MB）
-
-
-
-
-
-
-
-
-
-责任编辑：黄郁婷......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 3:33 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12015965.md#1" target="_blank">全球真相新闻·专刊 第1期（2020年4月）</a><br></h3>参考资料：全球真相新闻·专刊第1期（2020年4月）台湾大纪元制作（正体版）页数：共4页。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 3:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12016385.md#1" target="_blank">赖昌星家族上诉争影视城 状告厦门市政府</a><br></h3>福建厦门远华影视娱乐公司旗下的远华影视城（现称“同安影视城”）因归属权问题，将厦门当局告上法庭，厦门市长庄稼汉亦成为被告。目前，该案已上诉到福建高法，已进入审理阶段。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 3:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ux2545/djy/blob/master/gb/20/4/9/n12016544.md#1" target="_blank">部分被困海外澳人将乘澳航回国 机票自负</a><br></h3>周四，澳洲联邦政府宣布，因疫情爆发而滞留在秘鲁、阿根廷和南非的澳洲人，可以在下周搭乘澳航（Qantas）航班回国。
 
