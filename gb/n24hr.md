@@ -858,16 +858,7 @@ Opentable周三（4月8日）发布了食品店服务，旧金山湾区8家商�
 <tr><td><h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/9/n12017204.md#1" target="_blank">出于安全考虑 德国外交部限制使用Zoom</a><br></h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/9/n12017204.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/Auswaertiges_Amt_Berlin_Eingang-150x120.jpg" align ="left"></a>已遭多国封杀的在线会议软件Zoom再次遇挫。路透社报导，两名德国政府消息人士称，由于担心安全问题，德国外交部规定，视像会议服务Zoom仅限在固定连接的计算机上使用。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 9:58 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/9/n12017276.md#1" target="_blank">塞尔维亚总统吻五星旗后 儿子确诊患肺炎</a><br></h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/9/n12017276.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1207242507-150x120.jpg" align ="left"></a>塞尔维亚的总理武契奇（Aleksandar Vucic）在接受中共“援助”的医疗设备时，曾一度激动的亲吻中共五星旗，但是两周之后他亲口告诉外界，自己的长子也染上了中共肺炎，已经住院医治。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 9:50 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/9/n12017353.md#1" target="_blank">发公开信要谭德塞道歉 宜兰女孩挺身护台湾</a><br></h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/9/n12017353.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/taiwan1-150x120.jpg" align ="left"></a>世卫组织谭德塞8日在记者会上飙骂台湾3分钟，来自台湾在英国留学的女孩发表致谭德塞的公开信，并自制影片上传社交媒体，引发网友热烈回响。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 9:45 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/11/n12023366.md#1" target="_blank">大顺装修–林先生</a><br></h3>
-
-全屋内外翻新，厨房、浴室瓷砖、木地板、门窗、凉棚，内外油漆，车库改建，加建房间，水电维修。
-
-电话：626-278-8544......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月12日 5:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/11/n12023359.md#1" target="_blank">铁工厂维修装修–冯先生</a><br></h3>
-
-热水器，滤水器，煤气管，屋顶，更换门窗，油漆，车房门，各种自动马达，木工，焊工，电动铁门，铁栏杆，防盗网，铁门，铁窗，窗纱，大理石，地板，磁砖，浴缸，水泥，围墙，水电，草地自动洒水器，凉棚等。
-
-电话：626-848-8057......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月12日 5:33 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/8/n12014273.md#1" target="_blank">1月至3月 辽宁八位法轮功学员被迫害致死</a><br></h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/8/n12014273.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/11-9-150x120.jpg" align ="left"></a>据明慧网资料统计，从2020年1月中旬至3月上旬的60天里，辽宁省有八位法轮功学员被中共迫害致死。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月09日 9:35 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ej2940/djy/blob/master/gb/20/4/11/n12023341.md#1" target="_blank">天道酬勤</a><br></h3>
 
 天道酬勤，人道酬善，家道酬和，商道酬信
