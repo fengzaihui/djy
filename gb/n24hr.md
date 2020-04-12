@@ -44,16 +44,6 @@
 <tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024221.md#1" target="_blank">组图：复活节 美国向神祈祷渡过疫劫</a><br></h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024221.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1209593609-1-150x120.jpg" align ="left"></a>复活节即将来到，许多基督徒也把此视为一个重要的节日。美国总统川普（特朗普）此时也与主教哈里·杰克逊（Harry Jackson）一起参加复活节祝福活动时，一起祈祷，希望神能够治愈这些罹患中共肺炎的人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 2:05 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024568.md#1" target="_blank">【珍言真语】李兆富：台港受屈 全球受够了中共</a><br></h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024568.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/9169970b969eaff44bba28cfd8dcc4ce-150x120.jpg" align ="left"></a>全球爆发疫情以来，中共造假数据、蒙骗疫情、控制舆论、煽动宣传等等恶迹曝光国际。前苹果社群资讯网行政总裁、财经专栏作家李兆富（笔名利世民）接受《珍言真语》专访时表示，经历这次疫情，人们认清中共是地球的隐患，目前中共正面临极端劣势的外交处境，经济上也正遭受国际围剿，全球正形成新的对华政策，“就是Enough is enou.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 1:56 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024646.md#1" target="_blank">居家防疫 澳女子盛装出门 网络爆红</a><br></h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024646.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1217721444-150x120.jpg" align ="left"></a>在同样遭受中共病毒（武汉肺炎）袭击的澳大利亚，居家避疫的人们正在将以往再普通不过的家务琐事变成博人一笑的开心时刻。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 1:50 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12020389.md#1" target="_blank">【最新疫情4.12】迪士尼4.3万员工放无薪假</a><br></h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12020389.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1217891821-150x120.jpg" align ="left"></a>4月12日全球中共病毒（武汉肺炎）疫情最新情况：
-
-中共肺炎全球疫情及美国疫情大数据请点击这里。
-要点：
-迪士尼43,000名员工放无薪假
-美国至少有532,339例病患
-墨西哥证券交易所负责人去世
-纽约州长签署行政令 扩大病毒抗体测试规模
-英国的中共肺炎死亡人数破万
-英国首相约翰逊出院 不会立即恢复.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 1:48 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12025041.md#1" target="_blank">颜丹：中国“温和”言论被删之因</a><br></h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12025041.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/28d2e36dc847b3e7720da52b8ae30c01-600x400-150x120.png" align ="left"></a>最近，《香港经济日报》有报导称，中（共）国“多名体制内学者，在上海开了一个高层沙龙，商讨目前国内外疫情的问题，最后提出九点共识”。共识如下：
 
 第一，本次疫情是人类史上具有历史性意义的事件，一定深刻影响全球未来；
@@ -774,6 +764,17 @@ Lic＃1032918......<br><img align="bottom" src="https://www.epochtimes.com/asset
 
 美国全州保险公司（Allstate）实行一项名为“就地保护回报”（shelter-in-place payback）的新规，将退还客户4月和5月每月保费的15％。P.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 2:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12025177.md#1" target="_blank">4月14日起 新州失业者将收到600元救济金</a><br></h3>在过去的三周中，由于“中共病毒”（COVID-19）大爆发，一些企业关闭或解雇了工人。新泽西州有超过57.6万的人申请了失业救济。据州劳工厅（DOL）报告，上周又收到近21.5万份新的失业救济申请。州政府表示，4月14日起，申请失业救济金的人将会收到3月30日至4月5日这一周的补助金600美元。州政府表示，这笔单独的失.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 2:13 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/10/n12020389.md#1" target="_blank">【最新疫情4.12】纽约逾6500警察患病</a><br></h3>4月12日全球中共病毒（武汉肺炎）疫情最新情况：
+
+中共肺炎全球疫情及美国疫情大数据请点击这里。
+要点：
+纽约市逾6500名警员请病假
+迪士尼43,000名员工放无薪假
+美国至少有532,339例病患
+墨西哥证券交易所负责人去世
+纽约州长签署行政令 扩大病毒抗体测试规模
+英国的中共肺炎死亡人数破万
+.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 1:48 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/jcsds258/djy/blob/master/gb/20/4/12/n12024740.md#1" target="_blank">【宾州疫情4．11】确诊超2万 一成需住院 病例不再激增</a><br></h3>据宾州政府4月11日（周六）疫情报告显示，当日新增1,676例确诊病例，全州感染中共病毒（武汉肺炎、新冠病毒）的病例达21，655例，其中494人死亡。当日新增78例死亡病例。宾州67个郡均有中共病毒确诊病例。
 
 感染病例中，1067人为医护人员，1409人来自195家养老院。截至11日上午10点，有 2189名(.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月12日 10:35 PM			</td></tr>
