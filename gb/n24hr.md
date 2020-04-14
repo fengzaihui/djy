@@ -145,10 +145,11 @@
 
 中共肺炎全球疫情及美国疫情大数据请点击这里。
 要点：
+美国病患超过584,000例
 纽约州州长：“我们处于疫情顶点”
 FDA授权紧急情况下 可进行唾液测试
 “如北京早行动 中国患者或减95%”
-逾3,000美服役军人 病毒检测呈.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 2:40 PM			</td></tr>
+逾.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 2:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12029295.md#1" target="_blank">巴基斯坦被丢弃的一批蛋 孵出几千只小鸡</a><br></h3><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12029295.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/chickens-773566_1920-150x120.jpg" align ="left"></a>网上一段短片显示，巴基斯坦路旁一批被丢弃的鸡蛋，自然孵出几千只小鸡，它们散落在野外的空地上，而且此起彼落地叽叽叫。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 2:38 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12029162.md#1" target="_blank">台湾新女团PER6IX 新歌MV本周即将上线</a><br></h3><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12029162.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/2004140143331487-150x120.jpg" align ="left"></a>台湾全新女团“PER6IX”由六位平均年龄18岁的女孩：彭名慧、王加瑄、申力安、林采婕、李紫嫣、马玮伶组成，首波主打歌《不让》于上周电台首播后，在许多粉丝的期盼下，今（14）日预告“本周即将上线”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 2:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12029263.md#1" target="_blank">海风：上海侨领在巴西偷口罩的背后</a><br></h3><a href="https://github.com/dhila2243/djy/blob/master/gb/20/4/14/n12029263.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1208999612-600x400-1-150x120.jpg" align ="left"></a>你相信一个有钱资助国际赛事的商界侨领会雇人去偷口罩吗？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 2:30 PM			</td></tr>
