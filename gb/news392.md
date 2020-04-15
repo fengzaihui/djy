@@ -42,7 +42,11 @@
 
 第.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 1:42 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025054.md#1" target="_blank">陈思敏：统计有粮 中共难掩心慌</a><br></h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025054.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/8c791287f808721bc451bd8e3bdc4e12-150x120.jpg" align ="left"></a>进入4月以来，中国民众抢粮囤粮现象未见放缓，中共官员从上到下针对粮荒的辟谣声音也没间断。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 1:09 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/10/n12018446.md#1" target="_blank">【美股瞭望】道指已收复近半崩跌失土</a><br></h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/10/n12018446.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2017/10/GettyImages-862880896-150x120.jpg" align ="left"></a>在中共病毒疫情的肆虐下，道指由历史高峰的29,568点跌到3月23日的最低点18,213点，短短一个多月的时间重挫38.4%。所幸经过了不到一个月的时间，周四（9日）该指数最高冲高到24,008点，已收复了一半崩跌的失土，下跌速度之快与反弹强度之猛，成了鲜明的对比。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月12日 9:31 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030496.md#1" target="_blank">王友群：先整习仲勋后“叛党自杀”的阎红彦</a><br></h3>中共历次政治运动中，不断上演整人、挨整、被整死的悲剧。1962年，云南省委第一书记阎红彦先告发，再揭批，后诬陷，充当毛泽东打倒习仲勋的重要打手。到十年文革时，阎红彦成了挨整对象，最后被整死。
+
+阎红彦是“文革”中唯一一个“自杀”的中共上将，也是第一个“自杀”的省委书记。
+阎红彦被中共认定“叛党自杀”
+1967年.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月15日 10:04 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12031102.md#1" target="_blank">夏林: 谭得赛与北京的双簧戏悲剧结尾</a><br></h3>中共病毒瘟疫在全世界闹到今天这个地步，全球共识的两个战犯已经出炉：北京中共当局和世界卫生组织总干事谭得赛。谭得赛真名Tedros Adhanom Ghebreyesus，在汉语世界通常被译为谭德赛，但我只叫他谭得赛，因为此人草菅人命，何德何能？
 
 谭某是世卫组织首位来自非洲的总干事。此人据说在竞选世卫总干事时得到北.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月15日 5:12 AM			</td></tr>
