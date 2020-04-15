@@ -29,6 +29,12 @@
 
 在武汉大浩劫与中国各省人民的苦难之后.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 12:26 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12028651.md#1" target="_blank">【网海拾贝】大陆经济危机已经悄然而至</a><br></h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12028651.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/000_1OP6VD-600x400-1-150x120.jpg" align ="left"></a>大型企业海尔海信在大规模裁员，海信裁员一万人。中小型企业如珠海晶昊电子科技有限公司，通知放假半年。义乌最大的的物流仓库义乌港空无一人。义乌一家首饰加工厂负责人说，“前段时间是催着我们发货，现在是让我们不要发货，上周起意大利的单子突然直接说不要了”。3月是历年订单高峰，如今却下单没着落。有个工厂的停工通知：所有订单暂停.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 11:07 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12032806.md#1" target="_blank">关乐：调笑令?殃视推出“习近平战‘疫’兵法”感言</a><br></h3>兵法，兵法，
+瞒疫当魔仗打。
+齐名古代兵家，
+灰脸焦头挂花。
+花挂，花挂，
+捧杀全裸笑话。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月15日 5:58 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12032604.md#1" target="_blank">理悟： 瘟疫爆发谁之过</a><br></h3>猪鼠交替降魔难，
 春风不暖透心寒，
 是谁招来瘟神万民涂炭？
@@ -69,6 +75,5 @@
 权贵拥金醉依然，覆巢之下无完卵
 肺炎夺命多党员，同气连根谁能欢
 四海瘟肆应垂泪，党病还笑民脑残......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 3:43 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/13/n12027889.md#1" target="_blank">章明：撒旦的梦想</a><br></h3>有一定文化基础的人都知道，“撒旦”不是形容词，更不是虚构。大疫当前，全球死亡人数可比战争，而中国大陆却一片幸灾乐祸，满目鸵鸟。下面的故事，是根据新近从大陆流出的一段中共文宣写成的。各位看官可以根据自己的实际经验，认识一下现实中的撒旦。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 3:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/hpuk2064/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/hpuk2064/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/hpuk2064/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hpuk2064/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/hpuk2064/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
