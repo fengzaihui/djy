@@ -26,9 +26,9 @@
 
 异议作家“老.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 2:07 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12029145.md#1" target="_blank">洪微：瘟疫中无助的人类 应重新仰望神</a><br></h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12029145.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-841608592-600x400-1-150x120.jpg" align ="left"></a>刚刚过去的周末，世界很多国家的民众，度过了一个特殊的复活节，他们中的绝大多数人，只能在家里向神祈祷。相信几乎每个人，都会祈祷神能够救赎瘟疫中无助的人类，应该也有很多人在忏悔所犯的罪过，求神宽恕。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 2:02 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12028677.md#1" target="_blank">骆克仁：中共大外宣、大撒币到头了</a><br></h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/14/n12028677.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/79c809e9e9316d934e38e59bf876bafe-150x120.jpg" align ="left"></a>2020年初，新型冠状病毒在中国肆虐，为了维持政局稳定，极权专制的中共一出手就是强悍的封锁与隔离，数以千计的小区遭挖路、断桥，确诊病患家的大门被焊死，武汉封城，一千万居民被迫自生自灭两三个月。全世界终于见识到了共产党的手段，它可以毫无底线地牺牲自己国人的性命来维持政权稳定。
-
-在武汉大浩劫与中国各省人民的苦难之后.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月14日 12:26 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12033689.md#1" target="_blank">郑纯清：装神的中共连人都装不成了</a><br></h3>四月飞雪冰雹河，无风龙卷摩天涡。
+正邪大战近末尾，天变人当紧顺随。
+中共病毒冲着谁，眼下瘟疫怎应对？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月16日 12:44 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/hpuk2064/djy/blob/master/gb/20/4/15/n12032806.md#1" target="_blank">关乐：调笑令?殃视推出“习近平战‘疫’兵法”感言</a><br></h3>兵法，兵法，
 瞒疫当魔仗打。
 齐名古代兵家，
