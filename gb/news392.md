@@ -35,13 +35,7 @@
 <tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025307.md#1" target="_blank">【名家专栏】中共病毒曝中共“超限战”企图</a><br></h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025307.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2005/04/5042650141457-150x120.jpg" align ="left"></a>中共病毒的传播引发了人们对中共掩盖其生物战努力的怀疑。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 9:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025147.md#1" target="_blank">周晓辉：川普不再掩饰愤怒 美中或出大事</a><br></h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025147.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/ba995407285142c19aa43d4609ca1bcc-150x120.jpg" align ="left"></a>川普言辞的转变除了是美国朝野上下因为疫情而更加认清中共并坚定反共使然外，也是美国在未来大动作的预兆。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 7:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025374.md#1" target="_blank">何清涟：武肺疫祸为“中国制造”开出病危通知书</a><br></h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025374.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/f4568f041dda9a63145724782ba54789-1-1-150x120.jpg" align ="left"></a>当中国的爱国小粉红纷纷为欧美疫情严重幸灾乐祸之时，他们可能没想到来自欧美的订单消失之后果，就是国内大量工厂倒闭，成千上万工人失业。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 4:44 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025041.md#1" target="_blank">颜丹：中国“温和”言论被删之因</a><br></h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/12/n12025041.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/28d2e36dc847b3e7720da52b8ae30c01-600x400-150x120.png" align ="left"></a>最近，《香港经济日报》有报导称，中（共）国“多名体制内学者，在上海开了一个高层沙龙，商讨目前国内外疫情的问题，最后提出九点共识”。共识如下：
-
-第一，本次疫情是人类史上具有历史性意义的事件，一定深刻影响全球未来；
-
-第二，疫情将持续发酵，但欧美疫情不足虑，危险的是第三世界，如果失控，死亡可能超过百万；
-
-第.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月13日 1:42 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/15/n12031678.md#1" target="_blank">洪微：中共也谈补助公布或泄漏真实疫情</a><br></h3>中共病毒疫情蔓延世界后，各国不得不纷纷居家隔离，很多人失去了收入，西方各国政府立即颁布了各种补助政策，保障民众的基本生活。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月15日 11:41 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/zlnlsw205/djy/blob/master/gb/20/4/14/n12030496.md#1" target="_blank">王友群：先整习仲勋后“叛党自杀”的阎红彦</a><br></h3>中共历次政治运动中，不断上演整人、挨整、被整死的悲剧。1962年，云南省委第一书记阎红彦先告发，再揭批，后诬陷，充当毛泽东打倒习仲勋的重要打手。到十年文革时，阎红彦成了挨整对象，最后被整死。
 
 阎红彦是“文革”中唯一一个“自杀”的中共上将，也是第一个“自杀”的省委书记。
