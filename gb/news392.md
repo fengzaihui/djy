@@ -21,9 +21,24 @@
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12037832.md#1" target="_blank">唐恩：从“四．二五”谈两岸强烈对比</a><br></h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12037832.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/p8146841a678765042-1-150x120.jpg" align ="left"></a>一九九二年五月传出的法轮大法（法轮功），使学炼者身强体健、心性道德提升，广受民众喜爱，仅凭口耳相传即迅速广传于全中国。一九九九年四月二十五日，上万名中国大陆法轮功学员闻悉天津动用防暴警察抓打法轮功学员的消息后，赶到位于中南海附近（府右街）的国务院信访办公室，为在天津市被非法逮捕的四十五名法轮功学员和平上访。此次上访得到.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 10:27 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/16/n12037606.md#1" target="_blank">甄言：保两会 中共禁止对京销售病毒检测产品</a><br></h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/16/n12037606.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/IMG_4702-600x400-2-150x120.jpg" align ="left"></a>日前，北京赵先生因需要了解中共病毒（武汉肺炎）检测产品方面的信息，在航天云网上，找到银发时代（北京）健康咨询有限公司（以下简称银发时代）。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 7:45 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/15/n12033573.md#1" target="_blank">谭德塞为何对中共言听计从？</a><br></h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/15/n12033573.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1196986955-150x120.jpg" align ="left"></a>中共病毒（武汉肺炎）肆虐全球后，中共的谎言和掩盖引起了世界的公愤。不光中共，世卫组织（以下简称WHO）和其总干事谭德塞也陷入了舆论漩涡中。美国总统川普、国务卿蓬佩奥、众多参议员国会议员纷纷指责WHO及谭德塞，日本副相兼财务大臣麻生太郎、英国保守派议员等也加入指责行列。川普总统14日更是声明停止给WHO输送资金，并要对W.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 5:22 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/16/n12037029.md#1" target="_blank">颜丹：意大利现惊心一幕 疫情是神对人的警示</a><br></h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/16/n12037029.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/000_1Q171V-600x400-150x120.jpg" align ="left"></a>最近看到一段震撼人心的视频，视频拍摄意大利某地的大街上，在那里，隔几步就跪着一名正在忏悔祷告的人。跟着视频中的拍摄镜头一路走下去，发现这样的人不在少数，已跪满了好几条街。隔着手机屏幕，都能感受到那种沉寂、凝重与哀戚的氛围。或许，这场恶疫已让意大利的天主教信徒们开始正视神的警示与告诫，并希望得到神的宽恕和救赎。
-
-另.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 4:12 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041241.md#1" target="_blank">山月：诗歌 赶“疫”考</a><br></h3>共产主义是瘟床，
+西来邪灵摆战场。
+镰刀铁斧人头落，
+百年红祸恁疯狂。
+戕害国人八千万，
+冤魂无数待昭彰。
+共党九九铸大错，
+江鬼妒嫉逞强梁。
+庚子鄂运起大疫，
+报应终到邪党慌。
+末日揭开大审判，
+大劫当前无处藏。
+党毒十恶遭天杀，
+退党保命有良方。
+善劝同胞习党魁，
+解散共党快主张。
+.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 3:08 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041228.md#1" target="_blank">王思汉：疫情下的对策及经济转机</a><br></h3>经济学人周刊本期的封面就是一个挂着歇业牌子的地球。原因是，自从中国武汉肺炎病毒（中共病毒）在元月23日武汉封城后就通过各种渠道迅速的扩散到全世界，变成今年最令人惊悚的头条新闻。在全国各地折腾了两个月后，北京当局终于下令开禁，要恢复生产，无论疫情是否真的控制住了或者假报数据来摆脱经济的困境，毕竟关门在家避疫，坐吃山空也不.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 3:00 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12040184.md#1" target="_blank">王友群：中共公安部长李震离奇死亡之谜</a><br></h3>1973年10月22日，时任中共公安部长李震被发现吊死在公安部机关大院地下室的热力管道上，双膝跪地，身体向后仰着，上衣口袋里有几十片安眠药，地上还撒了若干片安眠药。
 
 李震之死，非常蹊跷。据李震的妻子讲，1973年10月21号晚，李震接到一个电话，通知他到公安部5号楼会议室开会，李震披了件军大衣就出门了，这一去就再.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 12:50 PM			</td></tr>
@@ -54,6 +69,5 @@
 讨伐世卫丧职守，围剿战狼疯咬人。
 武汉病毒漫天火，新疆核试浮战云。
 回光返照死期到，俄患百年归粉尘。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 4:41 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/16/n12037263.md#1" target="_blank">奕云天：摒弃邪党，匹夫有责</a><br></h3>“天下兴亡，匹夫有责”。这个说法最初是顾炎武提出来的，他认为：“易姓改号，谓之亡国；仁义充塞，而至于率兽食人，人将相食，谓之亡天下。……保国者，其君其臣肉食者谋之；保天下者，匹夫之贱与有责焉耳矣。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 4:33 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/fibru2198/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fibru2198/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/fibru2198/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fibru2198/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/fibru2198/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
