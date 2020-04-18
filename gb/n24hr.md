@@ -982,8 +982,17 @@ SARS-coV-2-DETECTR测试是一种针孔测试，与目前使用的诊断测试�
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/16/n12037643.md#1" target="_blank">圣安东尼奥级登陆舰 第12艘“劳德岱堡号”下水</a><br></h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/16/n12037643.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/Tu3_LPD28rendering-150x120.jpg" align ="left"></a>美国海军“圣安东尼奥级”两栖船坞登陆舰第12号舰“劳德岱堡号”（LPD-28），3月28日正式下水，该舰由亨廷顿英格尔斯工业（HII）负责制造。与第1批次相比，劳德岱堡号简化了桅杆设计，由相对简易的桅杆取代隐形桅杆（stealth mast）。
 
 事实上，由HII建造的劳德岱堡号（USS Fort Lauderda.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月16日 7:52 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/15/n12034372.md#1" target="_blank">加保守党领袖忧世卫指导准确性 总理未表态</a><br></h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/15/n12034372.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/Capture-8-150x120.jpg" align ="left"></a>在此次全球瘟疫大流行中，世界卫生组织（WHO）提供的指导成为许多国家控制病毒传播的政策指南。加拿大保守党领袖熙尔（Andrew Scheer）周三（4月15日）在召开的新闻发布会上表示，“非常担忧”世卫组织指导的准确性，而总理特鲁多在同日举行的每日简报会上回避了记者提出的有关世卫组织的问题。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月16日 7:32 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/15/n12034637.md#1" target="_blank">维州“关门令”延至5月8日 华府至5月中旬</a><br></h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/15/n12034637.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/Epoch_Times510A5957-150x120.jpg" align ="left"></a>维吉尼亚州州长诺瑟姆（Ralph Northam）周三表示，维州娱乐休闲业商家的关门命令将延长至5月8日，同时仍禁止大型集会。华盛顿DC市长鲍泽（Muriel Bowser）也表示， 将“关门令”和“居家令”延至5月15日。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月16日 7:27 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041290.md#1" target="_blank">旧金山湾区圣塔罗莎市警方：将加强执法违反“社交禁令”者</a><br></h3>旧金山湾区圣塔罗莎市警察局局长雷·纳瓦罗（Ray Navarro），周五在社交媒体上表示，警告居民和企业雇主，圣塔罗莎市警员已经开始对违反“社交禁令”的人发出传票。
+
+纳瓦罗表示，虽然大多数当地居民和企业雇主，都遵守这一命令，但是还有一些企业雇主依然没有遵守。他说，“我们感谢大多数企业和居民遵守社交禁令，但我们依然.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 3:34 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041277.md#1" target="_blank">新病毒测试站在旧金山启动</a><br></h3>周五（4月17日），旧金山开设了一个新的免下车中共病毒（武汉肺炎，COVID-19）测试站。
+
+这个免下车测试站，和其它地区的测试站有所不同，必须在前往测试站之前，填写一份在线的调查问卷。这份网络调查问卷，会评判你是否符合测试标准。如果符合了标准，会给你一个时间前往测试站。
+
+这个新的免下车测试站，位于7th .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 3:29 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041270.md#1" target="_blank">疫情流行期间 部分全食超市转为仅线上销售</a><br></h3>因中共病毒（武汉肺炎，COVID-19）疫情的影响，加州政府要求民众“居家防疫”，许多人对出门购物感到却步，而选择线上购物，为了满足在这期间网络购物的高需求，零售龙头亚马逊（Amazon）旗下全食超市（Whole Foods Markets），某些分店，已经暂时转换为仅接受网络订单。
+
+亚马逊旗下的全食超市在声明中.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 3:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041226.md#1" target="_blank">卑省如何执行公共卫生令答疑</a><br></h3>医疗卫生人员负责执行省级卫生命令，而检疫人员则负责实施《联邦检疫法》。警察，市政执法人员（例如城市法规官员，赌博执法人员以及酒类和执照检查员）无权对违反公共卫生命令的市民进行拘留或开罚单，但是他们可以协助医疗卫生人员执行命令。但温哥华市是个例外，该市宣布了自己的紧急状态应对执行办法，而市议会已赋予市法规执法官员有权力针.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 3:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041241.md#1" target="_blank">山月：诗歌 赶“疫”考</a><br></h3>共产主义是瘟床，
 西来邪灵摆战场。
@@ -1016,6 +1025,7 @@ SARS-coV-2-DETECTR测试是一种针孔测试，与目前使用的诊断测试�
 
 加州的死.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 1:50 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12041114.md#1" target="_blank">昆州政府拨款2亿澳元救助维珍航空</a><br></h3>昆州政府周六表示，由于澳洲维珍航空公司（Virgin Australia）在中共病毒（武汉肺炎）疫情的危机中难以维持生计，州政府已向这家航空公司提供2亿澳元的救助资金，条件是要求维珍将其总部保留在布里斯本。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 1:37 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12040700.md#1" target="_blank">【翻墙必看】武汉医护人员被下令封口</a><br></h3>随着武汉4月8日解封，预料很多海外媒体将赶赴武汉，对这场全球大瘟疫的始发地进行报导，中共对此极为惊慌，提前下令医院各个科室及个人不得接受外媒采访。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 1:24 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12040958.md#1" target="_blank">陈其迈：台湾提出预警但世卫无作为</a><br></h3>美国总统川普质疑WHO忽略台湾警示，行政院副院长陈其迈今天表示，去年底台湾提供资料，WHO回复已收悉后便石沈大海，他必须沉痛地指出，这一次的全球疫情，人祸是主因，而关键正是在于世卫的无所作为。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 1:04 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12040184.md#1" target="_blank">王友群：中共公安部长李震离奇死亡之谜</a><br></h3>1973年10月22日，时任中共公安部长李震被发现吊死在公安部机关大院地下室的热力管道上，双膝跪地，身体向后仰着，上衣口袋里有几十片安眠药，地上还撒了若干片安眠药。
 
@@ -1069,7 +1079,6 @@ SARS-coV-2-DETECTR测试是一种针孔测试，与目前使用的诊断测试�
 警官Stephanie Burns表示，渥太华警局抢劫处理小组“上个月的闯入案例增加了70%”，“我们提醒居民采取一切可能的措施保护好自己的财产。”
 
 市警局在发布上述.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 9:45 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12040700.md#1" target="_blank">【翻墙必看】武汉医护人员被下令封口</a><br></h3>随着武汉4月8日解封，预料很多海外媒体将赶赴武汉，对这场全球大瘟疫的始发地进行报导，中共对此极为惊慌，提前下令医院各个科室及个人不得接受外媒采访。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 9:24 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/17/n12039985.md#1" target="_blank">王赫：中共正在两端间打滚</a><br></h3>近20年来，中共一直在讲“重要战略机遇期”，从16大讲到19大，就是中美贸易战中的“中央经济工作会议”（2018年12月）也仍讲“我国发展仍处于并将长期处于重要战略机遇期”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 8:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fibru2198/djy/blob/master/gb/20/4/18/n12040648.md#1" target="_blank">州参院候选人：中共病毒期间改善交通设施</a><br></h3>共和党第48区州参议员候选人马特·里夫斯（Matt Reeves）日前表示，希望州、郡和市政府官员在当前应对中共病毒危机期间和这个夏天，尽快在交通还没有那么繁忙的时候，拨款最大限度的改善交通。
 
