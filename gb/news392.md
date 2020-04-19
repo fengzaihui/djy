@@ -23,7 +23,15 @@
 <tr><td><h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/17/n12038751.md#1" target="_blank">【瘟疫与中共】澳洲疫情改善 与中共脱钩是关键</a><br></h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/17/n12038751.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/Concetta-Fierravanti-Wells-600x400-2-150x120.jpg" align ="left"></a>为了应对瘟疫大流行，世界各国都无法找到满意的对策。但是、澳大利亚在这次中共病毒传播中，从3月底到现在的半个多月里新增感染病例持续下降，导致的死亡人数也远远少于与其情况相当的国家。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 7:25 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/17/n12038997.md#1" target="_blank">【名家专栏】后瘟疫时代 美国经济将如何？</a><br></h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/17/n12038997.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/Kudlow-Whitehouse-2-150x120.jpg" align ="left"></a>疫情后的经济也将不同于以往。远端工作可能成为许多行业的常态。而打零工的零工经济可能在就业中占更大比率，而与住房相关的工作或许也会减少招工。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 7:23 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/17/n12038615.md#1" target="_blank">【瘟疫与中共】加拿大为什么疫情也严重</a><br></h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/17/n12038615.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1208127085-150x120.jpg" align ="left"></a>3月21日，加拿大确诊案例超过1000人，4月初，确诊案例又突破万人，截止4月16日，加拿大确诊28,899人，紧随欧洲各国，成为瘟疫重灾区。不到1个月，风云突变，加拿大也很快陷入停摆，全民被迫居家隔离。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 7:00 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/16/n12037539.md#1" target="_blank">掸封尘：知骗而后勇——从“粉红”到“恨红”</a><br></h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/16/n12037539.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/zz-600x400-150x120.jpg" align ="left"></a>2020年3月30日，山东青年张文斌发布视频，实名公开呼吁“共产党下课”、“习近平下课”。从视频看到，他在连续说出这两个“下课”时，表情十分凝重，鼻翅因情绪激昂而颤动。可以想见，这是他压抑已久、孕育已久的心声与能量。视频短短，然而，不知他早已为此经历了多少个辗转反侧的难眠之夜。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月17日 5:23 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/19/n12042701.md#1" target="_blank">关乐：没谱红色英雄谱选注（一）</a><br></h3>党末天谴大瘟疫，犹逆天行欺人己。
+大国战疫书告捷，抗疫先进表彰急。
+疫情无情自收书，光荣哄榜留怪异。
+吹哨被诬造谣医，抓造谣警辟谣记。
+可控可治谣砖家，济济一纸驾驱齐。
+正常思维难思议，认清邪党方破迷。
+政党只是邪灵皮，世棋盘上下鬼棋。
+谎称可防身先病，洗脑愚功为党立。
+笔杆枪杆双手握，党警党媒两流痞.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月19日 11:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/f2362/djy/blob/master/gb/20/4/18/n12042505.md#1" target="_blank">李春草：妖共必须为疫祸买单</a><br></h3>标榜命运共同体，散播肺炎想逃避？
 合成病毒居心鄙，隐瞒造假刻意欺；
 百年暴谎罪罄竹，一旦得志邪无底；
