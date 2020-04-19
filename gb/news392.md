@@ -36,7 +36,7 @@
 
 又一个劣迹斑斑、恶贯满盈的中共恶徒遭到了报应。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 4:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/19/n12042983.md#1" target="_blank">【网海拾贝】十多位名人去世 中共肺炎重创好莱坞</a><br></h3>今天中共“订正”武汉肺炎（中共病毒）数字，病例增1%，死亡人数增50%。中共明知更正后的数字也没人信，为何还要充样子呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月19日 2:02 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/19/n12042701.md#1" target="_blank">关乐：没谱红色英雄谱选注（一）</a><br></h3>党末天谴大瘟疫，犹逆天行欺人己。
+<tr><td><h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/19/n12042701.md#1" target="_blank">关乐：没谱红色英雄谱选注</a><br></h3>党末天谴大瘟疫，犹逆天行欺人己。
 大国战疫书告捷，抗疫先进表彰急。
 疫情无情自收书，光荣哄榜留怪异。
 吹哨被诬造谣医，抓造谣警辟谣记。
