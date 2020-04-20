@@ -27,7 +27,14 @@
 
 更权威的数据来自德国联邦疾控机构罗伯特·科赫研究所。该所4月12日公布的数据显示，德国现存确诊病例57606人、累计治愈60200人，“治愈人数首次.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月19日 4:55 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/18/n12041199.md#1" target="_blank">【瘟疫与中共】菲律宾富商和学者去世的警示</a><br></h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/18/n12041199.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1209945701-150x120.jpg" align ="left"></a>3月份，菲律宾两位名人先后染疫去世，其亲共背景值得注意。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 11:23 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/18/n12041254.md#1" target="_blank">洪微：中共假借“他人”自我吹捧大起底</a><br></h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/18/n12041254.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/2020-3-24-ccp-virus-600x400-2-150x120.png" align ="left"></a>假借“他人”之口，自己吹捧自己，是中共内外宣传的一个常用手段。中共假借的“他人”，有时是被利用，有的是被断章取义，有的只是被借名，有的又是中共自己的伪装，然后再把这些精心策划的内容，出口转内销，蒙骗中国老百姓，当然，也试图糊弄一些西方人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 4:35 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/20/n12044900.md#1" target="_blank">千瑞：生与死，你如何选择？</a><br></h3>世界到了最危急的关头。
+武汉肺炎，正摧城掠地，肆虐全球。
+世界危哉，如何求救？
+对中共，是你表明态度的时候了。
+无论你是哪一个国，不管你是哪一方客。
+亲近中共者——殃！
+决裂中共者——昌！
+两种态度，两样的结果。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 11:46 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/y232/djy/blob/master/gb/20/4/20/n12044842.md#1" target="_blank">山月：九字真言是良药</a><br></h3>共产主义是瘟床，
 西来邪灵摆战场。
 镰刀铁斧人头落，
