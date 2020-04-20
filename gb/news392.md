@@ -26,7 +26,7 @@
 <tr><td><h3><a href="https://github.com/puj222/djy/blob/master/gb/20/4/18/n12042177.md#1" target="_blank">颜丹：德国疫情趋缓的必然之因</a><br></h3><a href="https://github.com/puj222/djy/blob/master/gb/20/4/18/n12042177.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/iStock-1157051736-600x400-1-150x120.jpg" align ="left"></a>自4月以来，德国疫情趋缓的消息一直频现报端。4月1日，有消息称，“德国的新增确诊感染病例数已连续数天走低；随着治愈病例的增加，现存感染人数甚至已开始出现下降趋势”。
 
 更权威的数据来自德国联邦疾控机构罗伯特·科赫研究所。该所4月12日公布的数据显示，德国现存确诊病例57606人、累计治愈60200人，“治愈人数首次.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月19日 4:55 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/puj222/djy/blob/master/gb/20/4/18/n12041199.md#1" target="_blank">【瘟疫与中共】菲律宾富商和学者去世的警示</a><br></h3><a href="https://github.com/puj222/djy/blob/master/gb/20/4/18/n12041199.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1209945701-150x120.jpg" align ="left"></a>3月份，菲律宾两位名人先后染疫去世，其亲共背景值得注意。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月18日 11:23 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12045013.md#1" target="_blank">【投书】开学是为了维稳和钱</a><br></h3>今天是青岛高三学生开学的日子，作为一名高三家长，我想谈谈我的感受。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 12:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/puj222/djy/blob/master/gb/20/4/20/n12044900.md#1" target="_blank">千瑞：生与死，你如何选择？</a><br></h3>世界到了最危急的关头。
 武汉肺炎，正摧城掠地，肆虐全球。
 世界危哉，如何求救？
