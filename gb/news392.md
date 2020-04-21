@@ -36,16 +36,7 @@
 中共的邪恶
 香港反送中运动爆发的根本原因，是1997年7月1日中共统治香港22年来.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 12:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12044863.md#1" target="_blank">常忍：道德复兴的希望</a><br></h3><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12044863.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/20150421034545748-1-600x400-150x120.jpg" align ="left"></a>一九九二年五月传出的法轮大法（法轮功），使学炼者身强体健、心性道德提升，广受民众喜爱，仅凭口耳相传即迅速广传于全中国。一九九九年四月二十五日，上万名中国大陆法轮功学员闻悉天津动用防暴警察抓打法轮功学员的消息后，赶到位于中南海附近（府右街）的国务院信访办公室，为在天津市被非法逮捕的四十五名法轮功学员和平上访。此次上访得到.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 10:30 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047642.md#1" target="_blank">伍新：隐形杀手明遭报</a><br></h3>香港重演七零九，
-北京痛打大警狗。
-隐形杀手明遭报，
-党末内斗整打手。
-武汉焚尸炉督阵，
-六四港版强推进。
-六一零办副主任，
-拚命爬蹬活摘刃。
-残害法徒追江妖，
-罪恶冒尖债台高。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月21日 8:41 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12044809.md#1" target="_blank">高婧婧：全球化？是时候刹车了</a><br></h3><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12044809.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/85f3bed1d460d0894827b8ed39dafb25-600x400-150x120.jpg" align ="left"></a>自中共肺炎肆虐全球以来，引发一系列关于公共卫生，国际关系以及中美贸易的问题，而经济全球化这个近四十年来号称大同世界的雏形在这个病毒面前原型毕露，尤其是中共无耻的统战阴谋。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 9:54 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ozd2953/djy/blob/master/gb/20/4/20/n12047629.md#1" target="_blank">吐为快：阮郎归 · 红朝末日</a><br></h3>无症状者时隐现
 人稀忐忑见
 惊闻北疆肺疫陷
