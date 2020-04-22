@@ -39,8 +39,23 @@
 忘记了洗脚、臭气熏天。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月21日 1:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/20/n12046872.md#1" target="_blank">张菁：刚刚复工又停工 外贸企业难上加难</a><br></h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/20/n12046872.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/1201130034481657-1-150x120.jpg" align ="left"></a>多年来中共一直津津乐道于自己是“世界工厂”，认为世界离不开“中国制造”，当2020年伊始“中共病毒”导致的疫情蔓延全球时，全球经济下滑的现实已经摆在世界面前，覆巢之下，安有完卵？中共一手制造的疫情困境已经反作用到自己身上。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月21日 1:37 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/1/21/n11811398.md#1" target="_blank">【思想领袖】菲顿：弹劾决议是“政变决议”</a><br></h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/1/21/n11811398.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/Tom_Fitton-1200x800-150x120.jpg" align ="left"></a>英文《大纪元时报》的“美国思想领袖”（American Thought Leader）节目主持人杨杰凯（Jan Jekielek）在2019年10月对独立政府监督机构“司法观察”（Judicial Watch）的主席汤姆·菲顿（Tom Fitton）进行了专访。全文翻译如下：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 9:56 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/20/n12046087.md#1" target="_blank">长风拂泪：观电影《希望的声音》有感（中）</a><br></h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/20/n12046087.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/photo-600x400-1-1-150x120.jpg" align ="left"></a>这是一部细腻到极致的短片，有着记录片一样的格调。
-片中的故事，每一个情节都似曾相识，因为在最难的日子里，它们都曾经真实的发生过，我们都曾经真实的经历过。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月20日 9:42 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/22/n12051480.md#1" target="_blank">祝君安：政治赋</a><br></h3>它舌战于庙堂之上
+又剑舞于鸿门宴前
+它高贵时峨冠博带
+而低贱时发配荒远
+太亲近它龙颜发怒
+太疏远它被斥落后
+向明君死谏
+唐魏徵有惊无险
+对暴君死磕
+彭德怀万言遭揙
+忠臣处江湖之远忧其君
+奸倿顺虎毛而摸喜沾恩
+谏之以诙谐隐语
+优孟四两拨千斤
+奏之以梗直忠言
+太史公腐刑蒙怨
+有时虽忠却站错队.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月22日 1:41 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/21/n12050727.md#1" target="_blank">颜纯钩：“一国两制”的初心何在？</a><br></h3>港大法律学院教授陈弘毅在一个研讨会上提到“一国两制”出现了“中年危机”，仍然有机会重启及重新定位“一国两制”，并认为需要审视过去二十年“边啲（哪些）未做得好”，寻回推动《基本法》的初心。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月22日 11:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/19/n12044500.md#1" target="_blank">【名家专栏】从中共对美国掐喉之举中吸取教训</a><br></h3>现在，我来讲一个非常简短的发生在我身上的故事。我曾两次因为看到脸书广告，订购了看起来像美国生产的家具抛光剂和一件上衣，后来我才发现它们都来自中国。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月21日 9:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/wfruxc2424/djy/blob/master/gb/20/4/20/n12047642.md#1" target="_blank">伍新：隐形杀手明遭报</a><br></h3>香港重演七零九，
