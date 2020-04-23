@@ -35,7 +35,7 @@
 3月6日，一篇署名“任志强”的反习文在网上发表。之后，任志强“失联”。由于任志强是红二代、中国著名地产商、与王岐山关系密切，这一事件立即在海外引发巨大反响。有人认为，王岐山和习近平彻底决裂了。
 
 3月21日，香港阳光卫视董事.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月21日 1:56 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/xm247/djy/blob/master/gb/20/4/21/n12047773.md#1" target="_blank">同根、无弦：做哨子的人与吹哨媒体</a><br></h3><a href="https://github.com/xm247/djy/blob/master/gb/20/4/21/n12047773.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/2c2c8f16daecd2300ad0d24aaa205993-150x120.jpg" align ="left"></a>2019年末至2020年初，武汉爆发肺炎疫情，在中共的维稳掩盖之下，武汉人一如既往地年前欢聚、走亲访友，瘟疫迅速传遍武汉、撒向全国、播向世界。至2020年4月19日，已造成全球229万人感染，16万多死亡。而中共报道的大陆感染人数8.4万，死亡4642人，而在武汉市区，清明节前集中发放骨灰盒就在2万个左右，超过正常死亡.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月21日 9:48 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/xm247/djy/blob/master/gb/20/4/23/n12053870.md#1" target="_blank">【网海拾贝】国际社会对中共的追责进入现实操作</a><br></h3>美国密苏里州成为第一个起诉中共的州政府。今天密苏里州总检察长起诉中共隐瞒、欺骗疫情导致密苏里州巨大损失。国际追责进入一种现实操作了。——@LifetimeUSCN......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 9:24 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/xm247/djy/blob/master/gb/20/4/22/n12051683.md#1" target="_blank">理悟：四·二五之歌</a><br></h3>四二五万人上访，
 大法弟子正气扬。
 心平气和静如秋水，
