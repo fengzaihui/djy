@@ -1,3 +1,458 @@
-<a name="1" id="1" target="_blank">&nbsp;</a> <span id="1">&nbsp;</span><table border="0"><tr><td colspan="2" VALIGN=TOP><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1351518.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/1.jpg" title="大纪元"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/n24hr.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/3.jpg" title="国际新闻"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1351518.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/4.jpg" title="大陆新闻"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news392.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/5.jpg" title="评论"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news2007.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/6.jpg" title="文化"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/news2008.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/7.jpg" title="生活"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/ncyule.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/8.jpg" title="娱乐"></a><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nsc1002.md#1"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/9.jpg" title="健康"><a href="https://www.youlucky.com"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/10.jpg" title="购物"></a><a href="https://donate.epochtimes.com/?utm_medium=epochtimes&utm_source=referral&utm_campaign=donate_button_djyarticleheader"><img src="https://raw.githubusercontent.com/pmjgtr230/www/master/t/djy/12.jpg" title="捐款"></a></td></tr><tr><td colspan="2" VALIGN=TOP><p><a href="aaaaaaaaaaaaaaaaaa/7" rel="nofollow">大纪元</a> | <a href="aaaaaaaaaaaaaaaaaa/513" rel="nofollow">动态网</a> | <a href="https://git.io/fjHpv" rel="nofollow">神州</a> | <a href="aaaaaaaaaaaaaaaaaa/8" rel="nofollow">退党</a> | <a href="https://git.io/fjHpU" rel="nofollow">九评</a> | <a href="https://git.io/fjHpT" rel="nofollow">网门</a> | <a href="aaaaaaaaaaaaaaaaaa/4" rel="nofollow">神韵</a> | <a href="https://git.io/fjHpI" rel="nofollow">新纪元</a> | <a href="aaaaaaaaaaaaaaaaaa/11" rel="nofollow">看中国</a> | <a href="aaaaaaaaaaaaaaaaaa/3" rel="nofollow">明慧网</a> | <a href="https://git.io/fjHpq" rel="nofollow">明慧十方</a> | <a href="https://git.io/fj9lQ" rel="nofollow">明慧焦点</a> | <a href="aaaaaaaaaaaaaaaaaa/9" rel="nofollow">希望之声</a> | <a href="https://git.io/fjHpY" rel="nofollow">漫谈党文化</a ></p><p><a href="aaaaaaaaaaaaaaaaaa/5" rel="nofollow">新唐人</a> | <a href="https://git.io/JervF" rel="nofollow">亚太台</a> | <a href="https://git.io/fjHpG" rel="nofollow">直播</a> | <a href="https://git.io/fj9lp" rel="nofollow">传奇</a> | <a href="https://git.io/fj9lX" rel="nofollow">神话</a> | <a href="https://git.io/fjHpZ" rel="nofollow">人生</a> | <a href="https://git.io/fjFNJ" rel="nofollow">伪火</a > | <a href="https://git.io/fjHpc" rel="nofollow">真相片</a> | <a href="https://git.io/fj9lK" rel="nofollow">藏字石</a> | <a href="https://git.io/fj9l5" rel="nofollow">短视频</a> | <a href="https://git.io/fjHpW" rel="nofollow">告诉未来</a > | <a href="https://git.io/fjHpl" rel="nofollow">终级目的</a> | <a href="https://git.io/fj9lM" rel="nofollow">中共活摘</a > | <a href="https://git.io/fjHp4" rel="nofollow">风雨天地行</a></p></td></tr><tr><td width="707"><h3><p><strong>纪元推荐</strong></p></h3></td><td VALIGN=TOP rowspan=50><a href="https://git.io/fj9l0" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/gudianwu.jpg" title="神韵古典舞技巧表演" alt="神韵古典舞技巧表演"></a><br><a href="https://git.io/fj9la" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/9ping.jpg" title="九评共产党" alt="九评共产党"></a><br><a href="https://git.io/fj9lr" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/communism.jpg" title="共产主义终极目的" alt="共产主义终极目的"></a><br><a href="https://git.io/fjFNJ" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/weihuo.jpg" title="中共的伪火骗局" alt="中共的伪火骗局"></a><br><a href="https://git.io/fj9lK" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/changzhi.jpg" title="古今奇观-藏字石" alt="古今奇观-藏字石"></a><br><a href="https://git.io/fj9lP" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/tianan.jpg" title="通往天安门的旅程" alt="通往天安门的旅程"></a><br><a href="https://git.io/fj9lX" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/weilai.jpg" title="未来人的神话" alt="未来人的神话"></a><br><a href="https://git.io/fj9l1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/ji-zy.jpg" title="中共罪恶的活摘" alt="中共罪恶的活摘"></a><br><a href="https://git.io/fj9lM" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/huozhai.jpg" title="铁证如山" alt="铁证如山"></a><br><a href="https://git.io/fj9lD" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/4ke.jpg" title="一家四口死于中共暴政" alt="一家四口死于中共暴政"></a><br><a href="https://git.io/fj9ly" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/jie-di.jpg" title="─弟妹相继死于中共迫害" alt="─弟妹相继死于中共迫害"></a><br><a href="https://git.io/fj9lS" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/ma-sj.jpg" title="她们许多已经被中共迫害至死" alt="她们许多已经被中共迫害至死"></a><br><a href="https://git.io/fj9l9" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/shuan-cxl.jpg" title="双城血泪" alt="双城血泪"></a><br><a href="https://git.io/fj9lH" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/wu-zbh.jpg" title="震撼人心的无罪辩护" alt="震撼人心的无罪辩护"></a><br><a href="https://git.io/fj9lQ" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/6c10-720.jpg" title="从610到720" alt="从610到720"></a><br><a href="https://git.io/fj9l7" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/xian-z.jpg" title="中共官员的选择" alt="中共官员的选择"></a><br><a href="https://git.io/fj9l5" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/1400l.jpg" title="剖析1400例" alt="剖析1400例"></a><br><a href="https://git.io/fj9lb" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/425.jpg" title="万人上访真相" alt="万人上访真相"></a><br><a href="https://git.io/fj9lN" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/qing-h.jpg" title="被中共迫害的清华学子" alt="被中共迫害的清华学子"></a><br><a href="https://git.io/fj9lx" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/jian-z513.jpg" title="见证513" alt="见证513"></a><br><a href="https://git.io/fj9lp" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/gongfu.jpg" title="功夫 寻道" alt="功夫 寻道"></a><br><a href="https://git.io/fj9lh" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/guangguimian.jpg" title="歌唱家人生奇迹" alt="歌唱家人生奇迹"></a><br><a href="https://git.io/fj9lj" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/ming-jjy.jpg" title="名校精英的选择" alt="名校精英的选择"></a><br><a href="https://git.io/fj98e" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/yin-lj.jpg" title="音乐之家的故事" alt="音乐之家的故事"></a><br><a href="https://git.io/fj98v" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/ming-hsf.jpg" title="平凡中的不平凡" alt="平凡中的不平凡"></a><br><a href="https://github.com/pmjgtr230/www/blob/master/README.md?dfh#9" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/yong-h.jpg" title="永恒的见证"  alt="永恒的见证"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/13/9/29/n3974789.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/shang-lnz.jpg" title="善良女子被中共投男牢"  alt="善良女子被中共投男牢"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/16/3/16/n4663449.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/huo-z3.jpg" title="警卫目击中共活摘"  alt="警卫目击中共活摘"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/16/8/7/n8177641.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/huo-z4.jpg" title="证人描述活摘恐怖"  alt="证人描述活摘恐怖"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/10/4/19/n2881569.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/huo-z1.jpg" title="揭开活摘器官黑幕"  alt="揭开活摘器官黑幕"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/10/11/7/n3077476.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/ma-ks.jpg" title="马克思的成魔之路"  alt="马克思的成魔之路"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/5/10/n10381511.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/st1.jpg" title="关注3亿人三退"  alt="关注3亿人三退"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/3/21/n10237682.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/jie-t.jpg" title="解体中共复兴中华"  alt="解体中共复兴中华"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/9/2/9/n2422991.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/gao-zs.jpg" title="中共迫害良心律师"  alt="中共迫害良心律师"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/12/9/n10900044.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/sj1.jpg" title="303万人举报江泽民"  alt="303万人举报江泽民"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/8/28/n10672014.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/sj2.jpg" title="这些官员为何起诉江泽民"  alt="这些官员为何起诉江泽民"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/8/12/18/n2367165.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/liangan.jpg" title="海峡两岸的强烈反差"  alt="海峡两岸的强烈反差"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/15/12/10/n4593139.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/jia-ndzl.jpg" title="加拿大总理的贺信"  alt="加拿大总理的贺信"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/11/6/17/n3289382.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/xiao-wd.jpg" title="探寻真相兼听则明"  alt="探寻真相兼听则明"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/10/27/n10812623.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/yindu.jpg" title="印度媒体报道东方"  alt="印度媒体报道东方"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/18/6/9/n10469652.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/xie-j.jpg" title="不一样的海外校园"  alt="不一样的海外校园"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/7/4/5/n1669415.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/li-up.jpg" title="从大师到徒弟的传奇"  alt="从大师到徒弟的传奇"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/17/5/26/n9191512.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/zfl2.jpg" title="亿万人与东方一本奇书"  alt="亿万人与东方一本奇书"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/13/11/27/n4020290.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/zhen-h.jpg" title="大陆见不到的震撼场面"  alt="大陆见不到的震撼场面"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/15/7/17/n4482910.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/dalu-sk.jpg" title="人心向善 大陆当初盛况"  alt="人心向善 大陆当初盛况"></a><br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/19/1/5/n10955468.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/zfl1.jpg" title="追寻真理 这书讲什么"  alt="追寻真理 这书讲什么"></a><br><a href="https://github.com/pmjgtr230/www/blob/master/README.md?dfh#1" target="_blank"><img width="130" src="https://raw.githubusercontent.com/pmjgtr230/djy/master/gb/130/fq1.jpg" title="下载免费翻墙软件"  alt="下载免费翻墙软件"></a><br></td></tr>
-<tr><td><h3><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681_2.md#1">下一页</a></h3></td></tr>
-</table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681.md#1<br><a href="https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/pmjgtr230/djy/blob/master/gb/nf1356681.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/nf1356681.htm">https://www.epochtimes.com/gb/nf1356681.htm</a>    （国内需<a href="https://github.com/pmjgtr230/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
+Skip to content
+Search or jump to…
+
+Pull requests
+Issues
+Marketplace
+Explore
+ 
+@fyaq233 
+Learn Git and GitHub without any code!
+Using the Hello World guide, you’ll start a branch, write comments, and open a pull request.
+
+
+fyaq233
+/
+djy
+forked from noformnocontent/djy
+0
+29
+ Code Pull requests 0 Actions Projects 0 Wiki Security 0 Insights Settings
+djy/gb/10/1/12/n2783807.html
+Cannot retrieve latest commit at this time.
+422 lines (342 sloc)  13.3 KB
+  
+README
+===========================
+<p><details><summary>
+<g-emoji class="g-emoji" alias="memo" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/1f4dd.png">📝</g-emoji>
+<img width="20" onclick="return false" src="https://github.com/images/icons/emoji/unicode/1f4dd.png"/><br>
+
+<a target="_blank" rel="noopener noreferrer" onclick="return false" href><img width="20" src="https://github.com/images/icons/emoji/unicode/1f4dd.png" data-canonical-src="https://github.com/images/icons/emoji/unicode/1f4dd.png" style="max-width:100%;"></a><br>
+
+<g-emoji class="g-emoji" alias="memo" fallback-src="https://github.com/images/icons/emoji/unicode/1f4dd.png"><img width="20" onclick="return false" src="https://github.com/images/icons/emoji/unicode/1f4dd.png"></g-emoji>
+
+
+
+<g-emoji class="g-emoji" alias="memo" fallback-src="https://github.com/images/icons/emoji/unicode/1f4dd.png"><img src="https://github.com/images/icons/emoji/unicode/1f4dd.png"></g-emoji>
+<g-emoji class="g-emoji" alias="memo" fallback-src="https://github.com/images/icons/emoji/unicode/1f4dd.png">aaa</g-emoji>
+<g-emoji class="g-emoji" alias="memo" fallback-src="https://github.com/images/icons/emoji/unicode/1f4dd.png">📝</g-emoji>
+<g-emoji class="g-emoji" alias="memo" fallback-src="https://github.com/images/icons/emoji/unicode/1f4dd.png">:pencil:</g-emoji>
+<g-emoji class="g-emoji" alias="memo" fallback-src="https://github.githubassets.com/images/icons/emoji/unicode/1f4dd.png">:pencil:</g-emoji>
+</summary>
+gfdddddddddddd
+dfdsfggkkkkkkkkkkkkkkkk
+</details>
+
+该文件用来测试和展示书写README的各种markdown语法。GitHub的markdown语法在标准的markdown语法基础上做了扩充，称之为`GitHub Flavored Markdown`。简称`GFM`，GFM在GitHub上有广泛应用，除了README文件外，issues和wiki均支持markdown语法。
+
+****
+	
+|Author|果冻虾仁|
+|---|---
+|E-mail|Jelly.K.Wang@qq.com
+
+
+
+****
+## 目录
+* [横线](#横线)
+* [标题](#标题)
+* [文本](#文本)
+    * 普通文本
+    * 单行文本
+    * 多行文本
+    * 文字高亮
+    * 换行
+    * 斜体
+    * 粗体
+    * 删除线
+* [图片](#图片)
+    * 来源于网络的图片
+    * GitHub仓库中的图片
+* [链接](#链接) 
+    * 文字超链接
+        *  链接外部URL
+        *  链接本仓库里的URL
+    *  锚点
+    * [图片链接](#图片链接)
+* [列表](#列表)
+    * 无序列表
+    * 有序列表
+    * 复选框列表
+* [块引用](#块引用)
+* [代码高亮](#代码高亮)
+* [表格](#表格) 
+* [表情](#表情)
+* [diff语法](#diff语法)
+
+### 横线
+-----------
+***、---、___可以显示横线效果
+
+***
+---
+___
+
+
+
+标题
+------
+
+# 一级标题  
+## 二级标题  
+### 三级标题  
+#### 四级标题  
+##### 五级标题  
+###### 六级标题  
+
+
+文本
+------
+### 普通文本
+这是一段普通的文本
+### 单行文本
+    Hello,大家好，我是果冻虾仁。
+在一行开头加入1个Tab或者4个空格。
+### 文本块
+#### 语法1
+在连续几行的文本开头加入1个Tab或者4个空格。
+
+    欢迎到访
+    很高兴见到您
+    祝您，早上好，中午好，下午好，晚安
+
+#### 语法2
+使用一对各三个的反引号：
+```
+欢迎到访
+我是C++码农
+你可以在知乎、CSDN、简书搜索【果冻虾仁】找到我
+```
+该语法也可以实现代码高亮，见[代码高亮](#代码高亮)
+### 文字高亮
+文字高亮功能能使行内部分文字高亮，使用一对反引号。
+语法：
+```
+`linux` `网络编程` `socket` `epoll` 
+```
+效果：`linux` `网络编程` `socket` `epoll`
+
+也适合做一篇文章的tag
+#### 换行
+直接回车不能换行，  
+可以在上一行文本后面补两个空格，  
+这样下一行的文本就换行了。
+
+或者就是在两行文本直接加一个空行。
+
+也能实现换行效果，不过这个行间距有点大。
+#### 斜体、粗体、删除线
+
+|语法|效果|
+|----|-----|
+|`*斜体1*`|*斜体1*|
+|`_斜体2_`| _斜体2_|
+|`**粗体1**`|**粗体1**|
+|`__粗体2__`|__粗体2__|
+|`这是一个 ~~删除线~~`|这是一个 ~~删除线~~|
+|`***斜粗体1***`|***斜粗体1***|
+|`___斜粗体2___`|___斜粗体2___|
+|`***~~斜粗体删除线1~~***`|***~~斜粗体删除线1~~***|
+|`~~***斜粗体删除线2***~~`|~~***斜粗体删除线2***~~|
+
+    斜体、粗体、删除线可混合使用
+
+图片
+------
+基本格式：
+```
+![alt](URL title)
+```
+alt和title即对应HTML中的alt和title属性（都可省略）：
+- alt表示图片显示失败时的替换文本
+- title表示鼠标悬停在图片时的显示文本（注意这里要加引号）
+
+URL即图片的url地址，如果引用本仓库中的图片，直接使用**相对路径**就可了，如果引用其他github仓库中的图片要注意格式，即：`仓库地址/raw/分支名/图片路径`，如：
+```
+https://github.com/guodongxiaren/ImageCache/raw/master/Logo/foryou.gif
+```
+
+|#|语法|效果|
+|---|---|----
+|1|`![baidu](http://www.baidu.com/img/bdlogo.gif "百度logo")`|![baidu](http://www.baidu.com/img/bdlogo.gif "百度logo")
+|2|`![][code-past]`|![][code-past]
+
+注意例2的写法使用了**URL标识符**的形式，在[链接](#链接)一节有介绍。
+>在文末有code-past的定义：
+```
+[code-past]:https://img-blog.csdnimg.cn/201908060004034.png
+```
+
+链接
+------
+### 链接外部URL
+
+|#|语法|效果|
+|---|----|-----|
+|1|`[我的博客](http://blog.csdn.net/guodongxiaren "悬停显示")`|[我的博客](http://blog.csdn.net/guodongxiaren "悬停显示")|
+|2|`[我的知乎][zhihu] `|[我的知乎][zhihu] |
+
+语法2由两部分组成：
+- 第一部分使用两个中括号，[ ]里的标识符（本例中zhihu），可以是数字，字母等的组合，标识符上下对应就行了（**姑且称之为URL标识符**）
+- 第二部分标记实际URL。
+
+>使用URL标识符能达到复用的目的，一般把全文所有的URL标识符统一放在文章末尾，这样看起来比较干净。
+>>URL标识符是我起的名字，不知道是否准确。囧。。
+
+### 链接本仓库里的URL
+
+|语法|效果|
+|----|-----|
+|`[我的简介](/example/profile.md)`|[我的简介](/example/profile.md)|
+|`[example](./example)`|[example](./example)|
+
+
+### 图片链接
+给图片加链接的本质是混合图片显示语法和普通的链接语法。普通的链接中[ ]内部是链接要显示的文本，而图片链接[ ]里面则是要显示的图片。  
+直接混合两种语法当然可以，但是十分啰嗦，为此我们可以使用URL标识符的形式。
+
+|#|语法|效果|
+|---|----|:---:|
+|1|`[![weibo-logo]](http://weibo.com/linpiaochen)`|[![weibo-logo]](http://weibo.com/linpiaochen)|
+|2|`[![](/img/zhihu.png "我的知乎，欢迎关注")][zhihu]`|[![](/img/zhihu.png "我的知乎，欢迎关注")][zhihu]|
+|3|`[![csdn-logo]][csdn]`|[![csdn-logo]][csdn]|
+
+因为图片本身和链接本身都支持URL标识符的形式，所以图片链接也可以很简洁（见例3）。  
+注意，此时鼠标悬停时显示的文字是图片的title，而非链接本身的title了。
+> 本文URL标识符都放置于文末
+
+### 锚点
+其实呢，每一个标题都是一个锚点，和HTML的锚点（`#`）类似，比如我们 
+
+|语法|效果|
+|---|---|
+|`[回到顶部](#readme)`|[回到顶部](#readme)|
+
+不过要注意，标题中的英文字母都被转化为**小写字母**了。
+> 以前GitHub对中文支持的不好，所以中文标题不能正确识别为锚点，但是现在已经没问题啦！
+
+## 列表
+### 无序列表
+#### 语法
+```
+* 昵称：果冻虾仁
+- 别名：隔壁老王
+* 英文名：Jelly
+```
+#### 效果
+* 昵称：果冻虾仁
+- 别名：隔壁老王
+* 英文名：Jelly
+
+### 多级无序列表
+#### 语法
+```
+* 编程语言
+    * 脚本语言
+        * Python
+```
+#### 效果
+* 编程语言
+    * 脚本语言
+        * Python
+
+### 一级有序列表
+#### 语法
+就是在数字后面加一个点，再加一个空格。不过看起来起来可能不够明显。 
+```
+面向对象的三个基本特征：
+
+1. 封装
+2. 继承
+3. 多态
+```
+
+#### 效果
+面向对象的三个基本特征：
+
+1. 封装
+2. 继承
+3. 多态
+
+
+### 多级有序列表
+和无序列表一样，有序列表也有多级结构。
+#### 语法
+```
+1. 这是一级的有序列表，数字1还是1
+   1. 这是二级的有序列表，阿拉伯数字在显示的时候变成了罗马数字
+      1. 这是三级的有序列表，数字在显示的时候变成了英文字母
+```
+
+#### 效果
+
+1. 这是一级的有序列表，数字1还是1
+   1. 这是二级的有序列表，阿拉伯数字在显示的时候变成了罗马数字
+      1. 这是三级的有序列表，数字在显示的时候变成了英文字母
+	 
+
+### 复选框列表
+#### 语法
+```
+- [x] 需求分析
+- [x] 系统设计
+- [x] 详细设计
+- [ ] 编码
+- [ ] 测试
+- [ ] 交付
+```
+#### 效果
+
+- [x] 需求分析
+- [x] 系统设计
+- [x] 详细设计
+- [ ] 编码
+- [ ] 测试
+- [ ] 交付
+
+<a id="user-content-1" class="anchor" aria-hidden="true" href="#1">
+
+
+您可以使用这个功能来标注某个项目各项任务的完成情况。
+> Tip:
+>> 在GitHub的**issue**中使用该语法是可以实时点击复选框来勾选或解除勾选的，而无需修改issue原文。
+
+## 块引用
+<a id="user-content-1" href="#1">
+### 常用于引用文本
+#### 文本摘自《深入理解计算机系统》P27
+　令人吃惊的是，在哪种字节顺序是合适的这个问题上，人们表现得非常情绪化。实际上术语“little endian”（小端）和“big endian”（大端）出自Jonathan Swift的《格利佛游记》一书，其中交战的两个派别无法就应该从哪一端打开一个半熟的鸡蛋达成一致。因此，争论沦为关于社会政治的争论。只要选择了一种规则并且始终如一的坚持，其实对于哪种字节排序的选择都是任意的。
+> **“端”（endian）的起源**  
+以下是Jonathan Swift在1726年关于大小端之争历史的描述：  
+“……下面我要告诉你的是，Lilliput和Blefuscu这两大强国在过去36个月里一直在苦战。战争开始是由于以下的原因：我们大家都认为，吃鸡蛋前，原始的方法是打破鸡蛋较大的一端，可是当今的皇帝的祖父小时候吃鸡蛋，一次按古法打鸡蛋时碰巧将一个手指弄破了，因此他的父亲，当时的皇帝，就下了一道敕令，命令全体臣民吃鸡蛋时打破较小的一端，违令者重罚。”
+
+### 块引用有多级结构
+#### 语法
+```
+> 数据结构
+>> 树
+>>> 二叉树
+>>>> 平衡二叉树
+>>>>> 满二叉树
+```
+#### 效果
+> 数据结构
+>> 树
+>>> 二叉树
+>>>> 平衡二叉树
+>>>>> 满二叉树
+
+代码高亮
+----------
+
+### 语法
+在三个反引号后面加上编程语言的名字，另起一行开始写代码，最后一行再加上三个反引号。
+
+### 效果
+```Java
+public static void main(String[]args){} //Java
+```
+```c
+int main(int argc, char *argv[]) //C
+```
+```Bash
+echo "hello GitHub" #Bash
+```
+```javascript
+document.getElementById("myH1").innerHTML="Welcome to my Homepage"; //javascipt
+```
+```cpp
+string &operator+(const string& A,const string& B) //cpp
+```
+表格
+--------
+
+表头1  | 表头2|
+--------- | --------|
+表格单元  | 表格单元 |
+表格单元  | 表格单元 |
+
+| 表头1  | 表头2|
+| ---------- | -----------|
+| 表格单元   | 表格单元   |
+| 表格单元   | 表格单元   |
+
+### 对齐
+表格可以指定对齐方式
+
+| 左对齐 | 居中  | 右对齐 |
+| :------------ |:---------------:| -----:|
+| col 3 is      | some wordy text | $1600 |
+| col 2 is      | centered        |   $12 |
+| zebra stripes | are neat        |    $1 |
+
+### 混合其他语法
+表格单元中的内容可以和其他大多数GFM语法配合使用，如：  
+#### 使用普通文本的删除线，斜体等效果
+
+| 名字 | 描述 |
+| ------------- | ----------- |
+| Help      | ~~Display the~~ help window.|
+| Close     | _Closes_ a window     |
+
+#### 表格中嵌入图片（链接）
+其实前面介绍图片显示、图片链接的时候为了清晰就是放在在表格中显示的。
+
+| 图片 | 描述 |
+| ---- | ---- |
+|![baidu][baidu-logo] | 百度|
+
+表情
+----------
+Github的Markdown语法支持添加emoji表情，输入不同的符号码（两个冒号包围的字符）可以显示出不同的表情。
+
+比如`:blush:`，可以显示:blush:。
+
+具体每一个表情的符号码，可以查询GitHub的官方网页[http://www.emoji-cheat-sheet.com](http://www.emoji-cheat-sheet.com)。
+
+但是这个网页每次都打开**奇慢**。。所以我整理到了本repo中，大家可以直接在此查看[emoji](./emoji.md)。
+
+diff语法
+---------
+版本控制的系统中都少不了diff的功能，即展示一个文件内容的增加与删除。
+GFM中可以显示的展示diff效果。使用绿色表示新增，红色表示删除。
+#### 语法
+其语法与代码高亮类似，只是在三个反引号后面写diff，
+并且其内容中，可以用 `+ `开头表示新增，`- `开头表示删除。
+另外还有有 `!`和`#`的语法。
+
+#### 效果
+
+```diff
++ 人闲桂花落，
+- 夜静春山空。
+! 月出惊山鸟，
+# 时鸣春涧中。
+```
+
+--------------------------------
+[csdn]:http://blog.csdn.net/guodongxiaren "我的博客"
+[zhihu]:https://www.zhihu.com/people/jellywong "我的知乎，欢迎关注"
+[weibo]:http://weibo.com/linpiaochen
+[baidu-logo]:http://www.baidu.com/img/bdlogo.gif "百度logo"
+[weibo-logo]:/img/weibo.png "点击图片进入我的微博"
+[csdn-logo]:/img/csdn.png "我的CSDN博客"
+[code-past]:https://img-blog.csdnimg.cn/201908060004034.png
+© 2020 GitHub, Inc.
+Terms
+Privacy
+Security
+Status
+Help
+Contact GitHub
+Pricing
+API
+Training
+Blog
+About
