@@ -19,7 +19,7 @@
 
 东湾地区.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 11:07 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/25/n12059803.md#1" target="_blank">加国魁省政府拟推群体免疫 专家观点不一</a><br></h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/25/n12059803.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/20200424_Montreal_Trudeau_airport-150x120.jpg" align ="left"></a>4月24日，在加拿大魁北克省政府的中共病毒疫情（武汉肺炎、新冠病毒、COVID-19））例行发布会上，魁北克省长勒戈（Fran?ois Legault）再次向魁北克人解释逐步开放产生群体免疫的策略。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 10:57 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12059456.md#1" target="_blank">【独家】朝阳区防疫文件泄露 北京危险了</a><br></h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12059456.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/2003172256521528-150x120.jpg" align ="left"></a>北京是中共高官家族的聚集地，也是中共肺炎（武汉肺炎）疫情期间管控最严格的地区。不过，北京朝阳区最近突变为全国唯一高风险地区，大纪元今次独家披露的朝阳区内部文件，也表明北京危险了。
+<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12059456.md#1" target="_blank">【独家】朝阳区防疫文件泄北京疫情危急</a><br></h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/24/n12059456.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/2003172256521528-150x120.jpg" align ="left"></a>北京是中共高官家族的聚集地，也是中共肺炎（武汉肺炎）疫情期间管控最严格的地区。不过，北京朝阳区最近突变为全国唯一高风险地区，大纪元今次独家披露的朝阳区内部文件，也表明北京危险了。
 
 4月20日，北京市朝阳区被中共定义为高风险等级，也是全国唯一的疫情高风险地区。中共称是因为朝阳区爆发聚集性疫情。
 朝阳区隔离三千人 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 10:56 AM			</td></tr>
@@ -903,6 +903,8 @@ SideCar doughnuts 建立于2012年，其拥有各种不同口味的甜甜圈为�
 <tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053392.md#1" target="_blank">【直播】4·22美国疫情发布会 确诊逾84.6万</a><br></h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053392.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/download-91-150x120.jpg" align ="left"></a>美国政府于周三（4月22日）召开每日疫情新闻发布会，新唐人、大纪元将联合对此进行直播（中文同声翻译），并同时在新唐人电视频道和大纪元、新唐人网络频道播出。敬请收看。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:38 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053302.md#1" target="_blank">三月大婴儿趴睡死亡 马伊琍斥：专家是刽子手</a><br></h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053302.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/10/VCG111168212553_meitu_1-150x120.jpg" align ="left"></a>近日，大陆一起“女婴趴睡”的非正常死亡事件牵动人心：广东汕头的一名新手妈妈因轻信专家的某睡眠引导理论，坚持训练自己三个月大的女儿“趴睡”，最后窒息死亡。身为两个女儿妈妈的女星马伊琍，4月22日忍不住在微博痛斥：“这些指导‘专家’就是刽子手！”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:37 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053405.md#1" target="_blank">中共为港府高层换“药渣” 彻底打造伪政府</a><br></h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053405.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/DSC_5717-150x120.jpg" align ="left"></a>4月22日在中共国务院公布任命五局长后，特首林郑月娥中午正式宣布香港特区政府的高层官员人事变动，当中牵涉四名局长，包括公务员事务局局长罗智光、财经事务及库务局局长刘怡翔、民政事务局局长刘江华以及创新及科技局局长杨伟雄离任，而原任政制及内地事务局局长聂德权平调做公务员事务局局长。评论指，新班底上任，将把特区政府变成更狠的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:21 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/23/n12054461.md#1" target="_blank">武汉肺炎康复者故事? 传递重要信息</a><br></h3>2020年2月28日，美国第一例武汉肺炎死亡案例出现在华盛顿州大西雅图地区的一个老年护理中心——柯克兰生命关爱中心（Life Care Center of Kirkland ）。早期，美国感染病例和死亡病例都是随着这个护理中心案例的增长而攀升，这个名不见经传的护理中心，一夜之间便在美国家喻户晓了。根据美国疾控中心的数据.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 1:14 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/25/n12060046.md#1" target="_blank">第二学期采取网络教学 但仍开放九所公校</a><br></h3>首都行政区（ACT）政府表示，虽然第二学期公立学校将以网络教学为主，但会安排9所学校为需要继续到校学习的学生开放。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 1:11 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/25/n12060040.md#1" target="_blank">瘟疫冲击堪培拉房市 今年预计下跌10%</a><br></h3>澳大利亚联邦银行（CBA）的研究显示，受中共病毒（武汉肺炎）的影响，首都行政区（ACT）的失业率有所上升，预计今年房价将下跌10%。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 1:04 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/25/n12060029.md#1" target="_blank">疫情阴影下 澳人以独特方式纪念澳纽军团日</a><br></h3>由于中共病毒（武汉肺炎）疫情危机，澳洲人无法再像往年一样以传统的集会和游行的方式举行澳纽军团日（Anzac Day）纪念活动，但澳洲各地的民众没有忘记那些为国捐躯的将士和保卫家园的军人，周六黎明时分在各自的家中、门外的车道上，点着蜡烛缅怀纪念。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 12:55 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/25/n12060022.md#1" target="_blank">过多人群涌入 悉尼东区三海滩再度关闭</a><br></h3>由于大批人群涌入悉尼东区海滩，安全的社交距离规定难以得到遵守，兰德威克（Randwick）市政府周五再度关闭了开放没几日的库吉（Coogee）、马鲁布拉（Maroubra）和克洛维利（Clovelly）海滩。周六，澳纽军团日，三个海滩只在早晨开放了3个小时供人们锻练后重新关闭。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 12:49 PM			</td></tr>
@@ -1251,20 +1253,4 @@ Sea-Tac国际机场的气象站今年经历了有史以来第二个最干燥的4
 有管理能力者为佳。
 
 请短信交流，请电：909-569-2158 曹先生......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:24 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053578.md#1" target="_blank">江南法律事务所</a><br></h3>
-
-江南法律事务所电话：626-592-5782
-  
-地址：2 E. Valley Blvd., #230, Alhambra, CA 91801......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:19 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053568.md#1" target="_blank">移民好消息 经济担保</a><br></h3>
-
-移民好消息，经济担保。我们有众多报税好，收入高的好公民为您亲属做移民担保，可迅速来美国。
-
-请电：714-726-0806......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:16 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053535.md#1" target="_blank">屋顶维修 浴室翻新 地板油漆</a><br></h3>   
-
-屋顶维修，浴室翻新，地板油漆。
-
-请电：626-248-0460......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:12 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/vss282/djy/blob/master/gb/20/4/22/n12053554.md#1" target="_blank">纽研发病毒检测和疫苗世界领先</a><br></h3>自“中共病毒”（Covid-19）在全球曼延以来，由于已知测试方法存在不少问题，各国纷纷投入大量资源研究开发病毒样品的检测方法及研发药物和疫苗，以更准确地了解当地疫情真实情况，减少社区感染，保证政府实施的控制疫情措施的安全有效。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月23日 5:11 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/vss282/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/vss282/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vss282/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/vss282/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
