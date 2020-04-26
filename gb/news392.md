@@ -37,7 +37,7 @@
 养晦韬光忍时弱，飞扬跋扈强势毒。
 生来就是祸邻崽，直到忍极怒众除。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月27日 3:32 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062892.md#1" target="_blank">真如：认清中共的病毒本性</a><br></h3>国际社会对中共的观感是谎言欺骗、嗜权如命、不守国际规则，令人十分厌恶鄙夷。然而这些只是表象，中共实则是人类社会的致命病毒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月27日 3:20 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062827.md#1" target="_blank">中共病毒为祸全球  中国民主党发起讨共檄文</a><br></h3>公元二〇一九年十月，新冠病毒首发于武汉。此疫者，其性酷类萨斯，然传染更广，戕害更烈。初，医生李文亮等八人于网络示警，中共为营造盛世景观，视人命为草芥，竟遣警察训诫吹哨者八君子，使央视指鹿为马，诬陷忠良造谣祸众。李君竟遭缄口，终殒命于此疫矣。后继者方彬、陈秋实诸君被绑架消声。悲夫，直言者获罪，谄媚者高升，斯人而生斯国也.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月27日 2:42 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062827.md#1" target="_blank">中共病毒为祸全球  中国民主党发讨共檄文</a><br></h3>公元二〇一九年十月，新冠病毒首发于武汉。此疫者，其性酷类萨斯，然传染更广，戕害更烈。初，医生李文亮等八人于网络示警，中共为营造盛世景观，视人命为草芥，竟遣警察训诫吹哨者八君子，使央视指鹿为马，诬陷忠良造谣祸众。李君竟遭缄口，终殒命于此疫矣。后继者方彬、陈秋实诸君被绑架消声。悲夫，直言者获罪，谄媚者高升，斯人而生斯国也.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月27日 2:42 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ujzmly261/djy/blob/master/gb/20/4/26/n12062782.md#1" target="_blank">林泉：诗三首</a><br></h3>红朝数字谎中生，利乘弊除俏摩登。
 百倍胀消勿惊吓，抽浆注水例常风。
 裸官唯假拒实话，百姓疑真免问声。
