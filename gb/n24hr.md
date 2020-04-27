@@ -834,7 +834,4 @@
 
 该委员会由阿拉巴马州商界领袖和立法机构成员组成，他们在报告中提出的建议主要针对艾维在4月3日.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 10:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/25/n12059804.md#1" target="_blank">卑诗再有3家共享车公司获批</a><br></h3>总部位于维多利亚岛的走运公司将与卑诗省出租车协会合作，向会员公司提供其应用程序的技术支持以换取租赁等款项的支付。该公司预计在低陆平原地区将拥有100-150辆出租车和80名独立驾驶员的规模。Metro Burnaby Ride（MetroRides）和Hich Ride Sharing两家公司仅获得在低陆平原地区的运营.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 10:52 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/uaq264/djy/blob/master/gb/20/4/25/n12059808.md#1" target="_blank">乔州中共病毒感染超过18,000例</a><br></h3>乔州公共卫生部称，截至上周日中午，超过18,000的乔州人检测中共病毒呈阳性反应，已有687人死亡和3,464例住院治疗。中共病毒死亡人数占乔州病例的3.75％。从上周六中午发布的数字来看，上星期日一天新增病例632例，44例住院和14例死亡。
-
-根据美国健康指标与评估研究所（IHME）上周五发布的最新预测数据，乔.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 10:50 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/uaq264/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/uaq264/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uaq264/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/uaq264/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
