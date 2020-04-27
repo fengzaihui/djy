@@ -27,7 +27,15 @@
 <tr><td><h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060406.md#1" target="_blank">四·二五铸就道德丰碑</a><br></h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060406.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/2000-12-9-425P-street3-2-600x400-1-150x120.jpg" align ="left"></a>1999年4月25日，万名中国法轮功学员为了维护对“真善忍”的信仰到中南海上访，人数众多却出奇地安静，没有口号，没有标语，没有喧哗，他们平和而自律。法轮功学员所表现出来的崇高道德操守，令世界瞩目。然而中共却诬陷“四·二五”是围攻中南海，是为打压找借口，掀起了疯狂迫害，逆行倒施，对抗“真善忍”这普世的价值，公然摧毁人的道.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 5:23 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060355.md#1" target="_blank">石铭：中共已成为“过街老鼠，人人喊打”</a><br></h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060355.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/000_1Q82KY-600x400-150x120.jpg" align ="left"></a>据媒体报导，4月21日周二，美国密苏里州控告中共掩盖疫情，要求中共对疫情的全球蔓延负责、进行赔偿。目前，密苏里州是美国第一个控告中共的州。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 4:51 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060280.md#1" target="_blank">四·二五精神：黑暗时代的和平理性之光</a><br></h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060280.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/04/1904271215252188-150x120.jpg" align ="left"></a>最近，守在抗疫一线的一位湖北医生因“不当言论”被其所在的鄂东医疗集团纪委给予记过处分，并被免去集团管理质量部主任及市中心医院副院长的职务。据悉，这位医生针对戴口罩、居家管理、封城、入院病人排查中CT检测、中药治疗等问题发表个人观点，被戴上“诋毁国家防疫政策”的帽子。武汉派出所对八名医生训诫表示道歉之后，仍然对说真话的医.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 4:23 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060232.md#1" target="_blank">李正宽：拿下孙力军 习近平能否真正走出危局</a><br></h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/25/n12060232.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/6ba1fa4749047afa0d3edbbe49f527ce-150x120.png" align ="left"></a>2020年4月19日，中纪委突然宣布，公安部副部长孙力军因“涉嫌严重违纪违法”正接受调查。虽然孙力军只是副部级官员，但不少分析一致认为，孙力军有很大实权并属于“倒习”的江派人马，因此，抓捕孙力军可以与抓捕前政治局常委、政法委书记周永康相提并论。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月25日 3:39 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/27/n12063842.md#1" target="_blank">云鹤天：惯用伎俩</a><br></h3>邪党打压成右派
+一顶黑色帽子戴
+有朝一日平了反
+感恩戴德党关怀
+
+邪党逼你下了岗
+生活窘迫缺食粮
+过年送来一袋米
+热泪盈眶感谢党......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月27日 2:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/27/n12063210.md#1" target="_blank">袁斌：限航回不了国，中国留学生微博大吐槽</a><br></h3>为控制境外输入病例，中共当局于3月28日实行限航。从次日起，中国各航空公司至国外航线只可保留一条，每周仅限一班，而且入座率不得超过75%。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月27日 8:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/edsp2886/djy/blob/master/gb/20/4/26/n12063146.md#1" target="_blank">汤志敏：天灭中共——写在4.25</a><br></h3>天降大疫众生醒
 灭恶扶善大道行
