@@ -838,43 +838,6 @@ YouTube强调，此举是预见到错误信.........<br><img align="bottom" src=
 <tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071561.md#1" target="_blank">中共病毒疫情下旧金山犯罪减少 财产劫匪反增</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071561.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/SFPD-line-150x120.jpg" align ="left"></a>尽管在中共病毒（武汉肺炎，COVID-19）疫情下，旧金山的犯罪率整体上有所下降，但入室抢劫等财产案件有上升趋势。并且仍有劫匪做案猖獗，旧金山警察局局长威廉·斯科特（William Scott）周三（4月29日）称，劫匪暴力抢劫4名老妪“简直无法接受”，并请公众帮助锁定劫匪。
 
 斯科特在29日的疫情简报中表示，在过.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:53 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071542.md#1" target="_blank">马州维州公布经济重启计划</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071542.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1209365714-150x120.jpg" align ="left"></a>美国各州纷纷制定了经济重开计划，马里兰州和维吉尼亚州也分别公布了三阶段的复苏计划。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:44 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/29/n12070218.md#1" target="_blank">台中研院：病毒变异有6大类型 致死率恐越高</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/29/n12070218.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1201637127-150x120.jpg" align ="left"></a>中共病毒（武汉肺炎）蔓延全球遭殃，台湾中研院分析全球近2千株病毒株基因序列，初步研究发现变异有六大类型，并认为病毒变异程度愈大，恐会提高病人死亡率。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071506.md#1" target="_blank">美最大购物中心运营商本周将开放部分商场</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071506.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/San-Francisco-Premium-Outlets-150x120.jpg" align ="left"></a>根据CNBC获得的一份内部备忘录显示，全美最大的商业运营公司-西蒙地产集团（Simon Property Group）将在5月1日至5月4日期间计划在10个州重新开放49家购物中心。
-
-西蒙地产集团表示，重新开放的州包括阿拉斯加州、阿肯色州、佐治亚州、印第安纳州、密苏里州、俄克拉荷马州、南卡罗来纳州、田纳西州和德克.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:38 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12070824.md#1" target="_blank">池上添亮点  振兴部落文化健康园区落成</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12070824.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/abb1d686eaa64514fe5b4a3967dcbe58-150x120.jpg" align ="left"></a>台东池上乡振兴部落文化健康园区29日落成启用，园区功能多元，包括文健站医疗区、室内活动区、户外活动区、传统文化农作区、共享厨房及体适能活动区。部落长辈未来可以在文健站医疗区量血压体重，到传统文化农作区浇水除草，或到体适能活动区伸展筋骨、到室内活动区上课，是全国第一个结合部落文化特色而打造的友善照护环境。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:35 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071515.md#1" target="_blank">【新泽西疫情4.29】州立公园5月2日重新开放 罗大高管减薪应对财务困难</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071515.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1209513727-1-150x120.jpg" align ="left"></a>
-
-4月29日疫情简报
-
-
-
-4/29/2020
-新增病例
-确诊病例总数
-新增病亡
-病亡总数
-
-
-新泽西州
-2,481
-116,264
-329
-6,770
-
-
-
-周三（4月29日）州长墨菲在疫情简报会上报告了更新数字。过去的一天，新泽西新增确诊病例2,481个，新增死亡329人.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:34 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071500.md#1" target="_blank">【新西兰疫情4.30】新增3例12天个位数增长 3级下违规多</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071500.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/0-38-150x120.jpg" align ="left"></a>新西兰政府周四（4月30日）发布的疫情统计......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:18 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071491.md#1" target="_blank">受中共病毒疫情冲击 Lyft裁员17% 近千人</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071491.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/08/Tu1_shutterstock_1419224978-150x120.jpg" align ="left"></a>周三（4月29日），总部位于旧金山的网约车公司来福车（Lyft）向美国证券交易委员会提交的文件中表示，由于中共病毒（武汉肺炎，COVID-19）导致乘客的需求量持续下降，该公司将裁掉982个工作岗位。在此基础上，还有288人将暂时休假，对许多剩余员工进行减薪。
-
-“现在很明显，COVID-19（中共病毒）危机将对经.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:17 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071461.md#1" target="_blank">疫情期间外出 中医教你如何防疫</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071461.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/IMG_20200416_110543-150x120.jpg" align ="left"></a>中共病毒（武汉肺炎、新冠肺炎）疫情肆虐，加州政府要求居民待在家中避疫，除必要的外出工作与购物，尽量减少外出、保持社交距离。但若真需要出门，民众除了戴口罩、手套，还可以如何保护自己呢？吕旻霏中医提供外出保护自己健康的小方法。
-
-
-
-吕医生建议民众单独外出采购，尽量不要带孩子一同购物；购物次数也应减少到一至两周一次.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077676.md#1" target="_blank">刚卸任两天 张旅集团前董事长坠桥身亡</a><br></h3>5月1日，张家界旅游集团股份有限公司（以下简称张旅集团）前董事长、湖南省张家界市广播电视大学校长戴名清坠桥身亡。
 
 澎湃新闻引述知情人称，事发前几天，戴名清才从张旅集团调至张家界广播电视大学任校长，同样为正处级实职，“目前没有消息显示纪委找他谈过话或进行调查。”
@@ -1269,15 +1232,4 @@ I-976号提案是在去年由蒂姆.........<br><img align="bottom" src="https:/
 4月30日上午，塔州州长盖特维恩（Peter Gutwein）说： “在这个非常艰难的时刻，我向她的挚爱、家人和朋友致以最深刻的同情。”
 
 此外盖特维恩表示，一份针对塔州西北部.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 10:32 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071558.md#1" target="_blank">马里兰州失业金网站崩溃 州长道歉补救</a><br></h3>马里兰州劳工部上周五（4月24日）推出了一个新的失业金网站——一站式灯塔（BEACON One Step），便于居民申请失业补贴，在上线7分钟后，网站由于流量过大崩溃。虽然在一小时内得到修复，但是之后几天又出现多次崩溃。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:48 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071464.md#1" target="_blank">Woolworths又摆乌龙 杂粮面包包装拼写出错</a><br></h3>近日，一位眼尖的顾客发现Woolworths超市最受欢迎的一款产品——杂粮面包的包装上出现了拼写错误。
-
-这位名叫梅利莎（Melissa）的顾客在脸书上分享了她的这一发现，贴出了一张Woolworths这款自有品牌杂粮面包的图片，并说大多数人可能都没注意到包装上的这个拼写错误。
-
-“不知你是否留意到了这个拼写错.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:31 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071492.md#1" target="_blank">【宾州疫情4．28】费城已过疫情高峰 新增病例降速仍慢</a><br></h3>据宾州卫生部4月28日（周二）统计数据显示，当日新增1,214例，中共病毒（武汉肺炎、新冠肺炎）确诊总数至43,264例，其中2,519例是医疗人员。
-
-新增119例死亡，总死亡人数1,716人。死亡总数中1,089人（63%）来自老人院。全州67个郡中的41个郡的452家老人院有确诊中共病毒患者。
-
-目前医疗.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:16 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/nmgwo2798/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/nmgwo2798/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgwo2798/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/nmgwo2798/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
