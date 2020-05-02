@@ -835,9 +835,6 @@ YouTube强调，此举是预见到错误信.........<br><img align="bottom" src=
 
 据《圣荷西水星报》（San Jose Mercury News）报导，新规定同时适用于阿拉米达（Alameda）、康特拉科斯塔（Contra.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 10:09 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071511.md#1" target="_blank">民进党：中共或藉疫情推极权主义 台湾要防范</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071511.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/07/f4777c5b127397fb325abe04c66bea7a-150x120.jpg" align ="left"></a>民进党4月29日召开中常会，党主席卓荣泰表示，中共可能藉由此次武汉肺炎（中共病毒）的危机，建立“全方位数位极权主义”，台湾首当其冲。台湾要增加“民主的抗体”，防范极权政权威胁。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 10:05 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071561.md#1" target="_blank">中共病毒疫情下旧金山犯罪减少 财产劫匪反增</a><br></h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/4/30/n12071561.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/SFPD-line-150x120.jpg" align ="left"></a>尽管在中共病毒（武汉肺炎，COVID-19）疫情下，旧金山的犯罪率整体上有所下降，但入室抢劫等财产案件有上升趋势。并且仍有劫匪做案猖獗，旧金山警察局局长威廉·斯科特（William Scott）周三（4月29日）称，劫匪暴力抢劫4名老妪“简直无法接受”，并请公众帮助锁定劫匪。
-
-斯科特在29日的疫情简报中表示，在过.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年04月30日 9:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/nmgwo2798/djy/blob/master/gb/20/5/2/n12077676.md#1" target="_blank">刚卸任两天 张旅集团前董事长坠桥身亡</a><br></h3>5月1日，张家界旅游集团股份有限公司（以下简称张旅集团）前董事长、湖南省张家界市广播电视大学校长戴名清坠桥身亡。
 
 澎湃新闻引述知情人称，事发前几天，戴名清才从张旅集团调至张家界广播电视大学任校长，同样为正处级实职，“目前没有消息显示纪委找他谈过话或进行调查。”
