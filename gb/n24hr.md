@@ -550,12 +550,6 @@
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/1/n12076905.md#1" target="_blank">【瘟疫与中共】纽约“中国日”推手隔离观察</a><br></h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/1/n12076905.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/IMG_20191017_121916-150x120.jpg" align ="left"></a>美国纽约州参议院设立“中国日”的议案作者赵靖桉，4月30日，出现发烧、头晕、干咳、呼吸急促、剧烈头痛、肌肉无力和疼痛等疑似中共病毒（武汉肺炎）病症。不过，其竞选团队于5月1日下午宣布，其病毒检测结果呈阴性。目前他在家隔离观察，几天后会再次测试以检查安全性。
 
 赵靖桉（Kenneth Chiu）正在为竞选纽约第25选.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:44 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12077244.md#1" target="_blank">地铁停驶消毒 可改搭免费通宵公车</a><br></h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12077244.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/651e5ba86e31a8d3f2f4985c1af07a34-150x120.jpg" align ="left"></a>大都会运输署（MTA）主席兼首席执行官帕特里克?弗耶（Patrick Foye）1日承诺，在关闭地铁进行消毒作业的期间，将有免费公车通宵服务。
-
-弗耶表示，公车将凌晨1点到5点免费，并且只从后门上车。“我们将提供强而有力的夜间公车服务，必要的公共汽车服务。”
-
-届时，公车的开车频率将与停运的地铁线路相同。此外.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:29 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12076984.md#1" target="_blank">【一线采访】五一各地防疫限制市民出行</a><br></h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12076984.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/Screen-Shot-2020-05-02-at-12.12.07-pm-150x120.png" align ="left"></a>5.1日首个疫情下的小长假，各地限制师生外出，甚至取消假日，旅游景点低价房仍问津者不多，有民众表示很多人不信官方公布的疫情数字，选择在家不出门。多地爆中共继续造假掩盖疫情真相。而疫情下生存不易，部分哈市民众五一摆地摊谋活路，也有在京的武汉人，因不堪疫情下自己的来回被自费隔离的遭遇跳楼自杀。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:21 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/4/n12082043.md#1" target="_blank">疫情与贸易战冲击 资诚：企业到越南趋势不变</a><br></h3>美中贸易战让制造业移往越南，受中共肺炎（武汉肺炎）让厂房的租约协商和合约签属遭到延期，资诚会计师事务所4日说，越南工业区需求仍强劲，价格并未下修，等越南开放入境后，许多厂商已完成评估作业即将前往越设厂。国际不动产业者认为，疫情使得全球供应链产生变化，首季业绩确实受到疫情影响，但制造业从中国转移到东南亚的趋势仍将继续。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月04日 8:21 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/4/n12081908.md#1" target="_blank">委托书绑约垄断求通路？ 金管会：已要求加强查核</a><br></h3>民进党立委吴秉叡4日在立法院财委会表示，现行4大股东会委托书征求通路掌握九成以上市场，可能让有心人抢夺上市柜公司经营权，透过预先绑约垄断征求通路，形成不公平现象，使公司治理出现问题。金管会主委顾立雄表示，他会去了解这方面问题，且要求集保公司加强查核这些通路的内控情况。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月04日 8:16 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/4/n12081906.md#1" target="_blank">钱柜恶火烧出法律漏洞 民众党团拟提案直接处罚</a><br></h3>钱柜台北林森店恶火夺6命，主因是业者关闭五大消防设备，但其中洒水系统与电梯增设工程无关，台湾民众党立院党团4日召开记者会呼吁，钱柜董事长练台生出面致歉并说明真相；而台北市政府也确有失职。民众党也提议修正《消防法》，在“限期改善”前增加直接处罚。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月04日 8:13 PM			</td></tr>
@@ -718,20 +712,4 @@
 据纽约邮报报导，在有14个帐篷、共68张病床的中央公园野战医院里，周四（30日）只有18位病患。该医院代表梅丽莎·尼斯特罗姆（Melissa Nystrom）说：“撒.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12077412.md#1" target="_blank">首都旅游业调整策略 重点开拓国内市场</a><br></h3>鉴于疫情对堪培拉旅游业的冲击和影响，首都行政区政府考虑调整旅游策略，在安全社交距离限制结束后的一定时期内将重点以吸引国内游客为主。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:38 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/3/n12079171.md#1" target="_blank">英语校委会吁请魁省府将返校日延后到9月</a><br></h3>5月1日，魁北克省英语学校委员会协会（QESBA）向魁省教育部长提交了一份由9个英语学校委员会联署、要求学校延后到9月份才复课的请求。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:34 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12077231.md#1" target="_blank">纽约州亚裔人口失业申领激增6900%</a><br></h3>在过去十年的大部分时间，亚裔工人的失业率最低，家庭收入中位数也是美国任何种族或族裔群体中最低的。但在过去的四周中，约有147,000名亚裔工人提出了首次失业申请，而去年同期仅为2,100名，同比增长6,900％。这是迄今为止，相较其他种族或族裔群体经历的最大百分比增长。
-
-据CNN报导，纽约白人工人的失业申领量增加.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:30 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12077239.md#1" target="_blank">纽约连四天新增住院降至1千人以下 库默：仍过高</a><br></h3>纽约州长库默（Andrew Cuomo）1日表示，COVID-19（中共病毒）的单日新增住院人数已经连续四天持平在900多例左右，虽然相较高峰期下降许多，但该数据仍然过高。此外，30日新增289人染疫不治，这是自3月底以来，首次单日死亡人数降至300人以下。
-
-
-
-
-
-截至4月30日数据，全州住院总人数降至.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:30 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12077229.md#1" target="_blank">纽约州新设5处得来速检测点 正式启用</a><br></h3>纽约州新设5个“得来速”新冠状病毒（中共病毒）检测点正式开放，方便人们开车前来，快速检测。民众可以致电(888)-364-3065或至网站“covid19screening.health.ny.gov”预约。
-
-新增5处“得来速”检测点地址如下：
-
-（1）尼亚加拉郡（Niagara County）：?Niaga.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:27 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12077079.md#1" target="_blank">急诊按时就诊率下降 堪培拉医院仍需改善</a><br></h3>首都行政区（ACT）公共卫生服务最新数据显示，堪培拉医院（Canberra Hospital）今年第一季度急诊病人按时就诊率仅19%，低于上一季度的21%。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月02日 12:27 PM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/elbl2947/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/elbl2947/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elbl2947/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/elbl2947/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
