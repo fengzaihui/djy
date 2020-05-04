@@ -24,6 +24,7 @@
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12078559.md#1" target="_blank">周晓辉：“美国应以待苏联方式对待中共”有说道</a><br></h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12078559.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/1408121628182639-600x400-150x120.jpg" align ="left"></a>5月1日，美国前驻联合国代表黑利接受了福克斯新闻节目主持人英格拉汉姆（Laura Ingraham）的采访。其中，英格拉汉姆问了这样一个问题：“事情发展到现在，我们还有什么理由不像对待前苏联那样对待中共国？当年我们的贸易额和教育交流很少，我们曾在所有关键领域与其脱钩。我们为什么不能对中共国采取同样的方式？”
 
 黑利.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月03日 5:52 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/4/n12080597.md#1" target="_blank">中国上市公司—美国资本市场的“病毒”</a><br></h3>在疫情局势十分严峻的当下，世界各国都因感染了中共病毒而开始重新审视和思考他们与中国的关系。作为全球最大的两大经济体——美国和中国，其紧密的经济关系也侧面的说明了一个不争的事实：那就是我们面对的不仅仅是来自于P4实验室的生化病毒（Coronavirus），而且是一个已经在美国本土肆虐无度的“中共病毒”，它是正以金融的触手.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月04日 10:32 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/4/n12081163.md#1" target="_blank">祝君安：谁将拯斯民于水火？</a><br></h3>贸战似近改革春，乍见珠碎漫肺瘟；
 延安血风阵阵腥，枫桥群斗隐隐闻；
 百国联军刀出鞘，一党独醉局益棼；
@@ -44,9 +45,5 @@
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12078204.md#1" target="_blank">王友群：中共创始人李达文革中被整死</a><br></h3>参加中共第一次全国代表大会的15人，除5人病逝外，大都结局很惨：共产国际代表马林、尼克尔斯基被枪杀；李汉俊、陈潭秋、邓恩铭、陈公博被枪杀；周佛海死于狱中；刘静仁被公交撞倒后不治身亡；何叔衡跳崖身亡；李达在文革中被整死。
 李达请毛泽东救命后惨死
 1966年5月16日，毛泽东发动的文化大革命爆发。3个月后，1966年8.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月03日 10:19 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/20/5/2/n12078564.md#1" target="_blank">云鹤天：新版《共产党宣言》</a><br></h3>中共病毒红幽灵
-武肺全球大流行
-人类空前大劫难
-劫后面临大清算......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月03日 5:31 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/elbl2947/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/elbl2947/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/elbl2947/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/elbl2947/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/elbl2947/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/elbl2947/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
