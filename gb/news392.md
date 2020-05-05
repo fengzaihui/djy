@@ -4,7 +4,7 @@
 
 不久前，中共迫害法轮功的最高打手——公安部副部长、公安部国内保卫局局长、公安部610办公室主任孙力军被抓捕。这一事件使第21个“世界法轮大法日”有了不同以往的特别意味。它意味着对中共迫害法轮功的元凶江泽民的大清算进入倒计时。
 
-1999年5月13日，法轮功创始人.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月05日 12:24 PM			</td></tr>
+1999年5月13日，法轮功创始人.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月05日 12:57 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12083120.md#1" target="_blank">袁斌：一位大陆95后为何拒绝洗脑短片《后浪》</a><br></h3><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12083120.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/50ae0f57c27367fb4c8d34450d0e4553_w-600x338-600x338-150x120.jpg" align ="left"></a>每年的五四青年节，中共的宣传机器都不会忘记给大陆青年洗脑，为此可以说煞费苦心！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月05日 9:43 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082838.md#1" target="_blank">颜纯钩：台湾的美丽与温情</a><br></h3><a href="https://github.com/eyk232/djy/blob/master/gb/20/5/4/n12082838.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/20200414PHO0171l-600x400-150x120.jpg" align ="left"></a>看台湾新闻，有一件事很感动我。
 
