@@ -905,6 +905,7 @@ T.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/
 <tr><td><h3><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/4/n12083110.md#1" target="_blank">第二波热浪来袭 南加周四最炎热</a><br></h3><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/4/n12083110.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/gettyimages-1211475747-594x594-150x120.jpg" align ="left"></a>南加本周迎来第二波热浪，人们会发现周一（5月４日）午后沿海地区已达华氏70余度，山谷地区达80-90余度，预计周四天气最炎热；到时洛杉矶市中心的气温有可能接近100度。
 
 国家气象局在奥克斯纳德的气象学家斯威特（David Sweet）说，南加上空有个暖空气高压带，而东北方又有点离岸气流的推动，会抑制住能降温的海风.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月05日 7:43 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/4/n12082651.md#1" target="_blank">【新闻看点】战狼蠢动 川普蓬佩奥再提惩罚追责</a><br></h3><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/4/n12082651.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/Unknown-600x400-1-150x120.jpg" align ="left"></a>从最初在中国武汉发现疫情到现在，已经5个月了，目前世界上已经初步形成了新的八国联军向中共追责索赔。为了推卸责任和摆脱被追责，中共用了各种方法，最近又推出了一个动画片来歪曲事实。美国再提惩罚追责。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月05日 7:40 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/spd2854/djy/blob/master/gb/20/5/7/n12089637.md#1" target="_blank">抢购潮蜚声在外 澳洲人囤货首选非厕纸</a><br></h3>澳洲统计局最新数据显示，消费者在3月囤货潮中囤积最多的是罐头浓汤和即冲汤料，而不是最受关注的厕纸。
 
 3月零售数据显示，随着澳洲消费者在家囤货为居家隔离做准备，当月消费额增加8.5%。不易变质的货物销售增加39%，易腐货物销售增加22%。
