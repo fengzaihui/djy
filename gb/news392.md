@@ -36,8 +36,24 @@
 “国际锐评”是中国国际广播电台新闻中心的微信公众号，由中宣部国际新闻评论员组成，是央媒新媒体中主打国际传播的栏目。其从4月27日至5月3日连续推出的文章标题是.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 1:26 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12090877.md#1" target="_blank">张林：中共是打了鸡血的苏联！</a><br></h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12090877.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/1308190146041758-150x120.jpg" align ="left"></a>自从川普担任总统以来，福克斯电视台的收视率急遽升高，早已成为美国首屈一指的电视台。而自从中共病毒肆虐全球以来，福克斯电视台对中共的罪恶进行了大量揭露。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 12:46 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12089755.md#1" target="_blank">石铭：迫害法轮功的江泽民集团正在快速解体</a><br></h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12089755.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/1-234-600x400-150x120.jpg" align ="left"></a>近一段时间海外媒体不断传出中共内部的人事变动，许多江派人马落马、下台或面临危局，由于其中多数都曾经主导或参与迫害法轮功，给人的印象是迫害法轮功的江氏集团正在快速解体。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月07日 5:35 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12089848.md#1" target="_blank">禾乃：我不爱国，我爱人</a><br></h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12089848.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/04/1602131902112603-600x400-150x120.jpg" align ="left"></a>本文原是写给小朋友看的，内容粗浅，但是所讲解的观念，多少可以增强对中共洗脑的抗体，进而产生“爱国癌免疫力”。我们要反洗脑。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月07日 5:04 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12089756.md#1" target="_blank">程晓容：大瘟疫提示各国 与中共打交道无双赢</a><br></h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12089756.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/download-19-150x120.jpg" align ="left"></a>中共在应对疫情的过程中，演出了内外五部曲，凸显“狼性”。5月6日，美国国务卿蓬佩奥表示，中共与自由世界没有共同民主价值观，与共产极权打交道没有双赢。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月07日 4:03 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/9/n12094474.md#1" target="_blank">赵文汕：“正能量”综合症</a><br></h3>那天，遇到这样一个年轻病人。
+
+我告诉他，通过检查，发现他有胃炎。
+
+他眼神复杂地盯着我看了会儿，仿佛倒是我得了什么不可思议的病，然后忽然激动起来，开口对我说道：
+
+“医生，你内心为什么这么阴暗呢！看问题怎么从来只看负面，看不到好的，光明的一面呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月09日 9:36 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/9/n12094492.md#1" target="_blank">祝君安：渔家傲·粉红怨</a><br></h3>神州春来妖氛戾
+红巢鸱枭无去意
+四面楚歌动鼓鼙
+甩锅鄙
+浮华橱窗小区闭
+
+洋酒一杯万里飞
+盲然归来游子悔
+厂矿萧萧漫瘟鬼
+亲杳去
+寸草难报三春晖......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月09日 9:34 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/8/n12091860.md#1" target="_blank">【网海拾贝】中共的法西斯逻辑：不许有反对者</a><br></h3>今天中共驻港中联办称“除非将黑衣暴徒全部清除，否则香港永远不会平静”。这就是中共法西斯逻辑：消灭反对者！不允许有反对者！中共不允许不同意见者存在，正是那么多香港人走上街头的原因。香港人不愿意失去本已拥有的民主和自由。——@LifetimeUSCN......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 10:05 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/gfjmf2315/djy/blob/master/gb/20/5/7/n12091056.md#1" target="_blank">吐为快：体制之恶</a><br></h3>一介书生反民运，时来运转获蟾亲
 推崇专制攫权力，臭味相投君臣倾
