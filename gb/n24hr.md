@@ -670,15 +670,7 @@ DMV发布消息，目前只向那些必须亲自到DMV办事的人开放，包�
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12091980.md#1" target="_blank">强雷暴风袭击田纳西  纳城遭史上最严重断电</a><br></h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12091980.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/TennDamage_3-150x120.jpg" align ="left"></a>美国国家气象局（NWS）办公室表示，上周六晚上在堪萨斯州爆发了强烈雷暴风，随后在周日早晨穿越密苏里州南部和肯塔基州西部，周日下午到达纳什维尔地区。在田纳西州中部的每个郡都造成了广泛的损害，无数的树木、电线和建筑物遭到破坏。
 
 根据美国国家海洋与大气管理局（NOAA）的国家强风暴实验室（NSSL）的说法，这种强雷暴风.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 10:45 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12091931.md#1" target="_blank">【新泽西疫情5.7】美国殇日前有望开放海滩</a><br></h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12091931.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-1211234485-small-150x120.jpg" align ="left"></a>州长墨菲在周四（5月7日）宣布，这个周末将派出新泽西国民警卫队的120名军人到老人院去协助工作。州劳工厅长报告说，新泽西的失业人数截至5月2日已超过百万，新州已发放20亿美元失业救济金。墨菲还表示，在阵亡将士纪念日前新泽西海滩有望开放。
-5月7日疫情简报
-
-
-
-5/7/2020
-新增病例
-确诊病例总数
-.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 10:35 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096932.md#1" target="_blank">流亡港人写家书：原谅我不能给你完整的母亲节</a><br></h3>香港“反送中”抗争者义务律师黄国桐在台开设的餐厅“保护伞”，于脸书上贴出流亡港人的母亲节家书：有人为无法留在母亲身边致歉，也有人向支持者致谢，期许抗争能坚持下去。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 6:38 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096938.md#1" target="_blank">无新增共肺确诊 陈时中：连28个本土0献给全天下母亲</a><br></h3>中央流行疫情指挥中心10日表示，国内无新增中共肺炎(武汉肺炎)病例，截至目前累计通报440例确诊，其中，境外移入349境外移入，本土病例55例及36例敦睦舰队。确诊个案中6人死亡，366人解除隔离，其余持续住院隔离中。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 6:27 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096941.md#1" target="_blank">纾困惹民怨 陈菊：若有不足立即改正</a><br></h3>对于行政院长苏贞昌数次为纾困引发民怨道歉，总统府秘书长陈菊10日表示，政策没办法百分之百让人民满意，“请大家多多谅解。”中间若有不足地方，就立即改正，程序上尽量便民。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 6:10 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096914.md#1" target="_blank">广东交警队长儿子肇事逃逸一年多仍不被起诉</a><br></h3>近日网传广东省广宁县交警队长之子梁某勇驾车肇事逃逸，今天广宁县当局发通报指去年发生此事后梁某勇与受害者家属达成和解。所以不起诉。然而，受害者5月3日死亡。网民对官方的和解说不买账，并说肇事逃逸触犯刑法，不能不追究责任。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 6:10 PM			</td></tr>
@@ -978,5 +970,4 @@ https://emaskep.trade.gov.tw
 请把这张图传出去。大家告诉大家。
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 11:03 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12092000.md#1" target="_blank">亚特兰大台湾教会向前缐医?人员致敬</a><br></h3>自从三月中旬因为新冠病毒-COVID-19（武汉肺炎) 疫情肆虐，亚特兰大台湾长老教会因应防御疫情扩展，遵守保护自己也保护社区的防疫措施，由传统聚会改为网路礼拜: 经由脸书（https://www.Facebook.com/atpc.ga/videos/)在周日早上10:30 am直播由金成雨牧师(Rev. Sam K.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 10:58 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/8/n12091958.md#1" target="_blank">阿拉巴马研发药物试图抑制中共病毒</a><br></h3>位于亨茨维尔的哈德逊阿尔法生物技术研究所的科学家们，目前正在研发一种基于COVID-19抗体的药物来治疗新冠肺炎。研究所所长理查德·迈尔斯（Richard Myers）博士说：“我们正在研究一种潜在的治疗方法，争取找到一种能注射的抗体，使病毒失去活性，来治疗患者。”“这一方法非常令人兴奋，它已在其它传染病治疗中起了作用.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 10:39 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/tnue256/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/tnue256/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/tnue256/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/tnue256/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
