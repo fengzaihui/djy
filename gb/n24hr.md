@@ -8,7 +8,7 @@
 美CDC主任将自我隔离两个星期
 美国人开始慢慢恢复外出用餐
 欧盟拟放宽限制 推动部分夏季旅游业务
-辉瑞拟大规模生产实验性C.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 8:36 AM	</td></tr>
+辉瑞拟大规模生产实验性C.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 9:20 AM	</td></tr>
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096274.md#1" target="_blank">【新西兰疫情5.10】</a><br></h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096274.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/0-9-150x120.jpg" align ="left"></a>新西兰政府周五（5月10日）发布的疫情统计......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 9:10 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095247.md#1" target="_blank">房地产 仍然是澳洲创造财富的最佳行业</a><br></h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/9/n12095247.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/IMG_1406-150x120.jpg" align ="left"></a>尽管最近技术行业上升迅速，但房地产仍然是澳洲几十年来财富积累最大的行业。
 
@@ -745,7 +745,6 @@ DMV发布消息，目前只向那些必须亲自到DMV办事的人开放，包�
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/7/n12090957.md#1" target="_blank">张菁：外交部和央视战狼升级的目的</a><br></h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/7/n12090957.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/2019-08-26-16406-GettyImages-961387648-600x400-1-150x120.jpg" align ="left"></a>近日中共央视《新闻联播》播出权威媒体的评论，通过黄金时段的新闻节目对美国开始了新一轮公开“骂战”，其引用的评论主要来自“国际锐评”和人民日报“钟声”文章。
 
 “国际锐评”是中国国际广播电台新闻中心的微信公众号，由中宣部国际新闻评论员组成，是央媒新媒体中主打国际传播的栏目。其从4月27日至5月3日连续推出的文章标题是.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 1:26 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/7/n12090821.md#1" target="_blank">特斯拉上海工厂 受疫情冲击 五一后暂停工</a><br></h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/7/n12090821.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/11/0e77f543a705a0143357b00ff2acd8b2-150x120.jpg" align ="left"></a>大陆五一假期过后，有消息说特斯拉（Tesla）上海工厂自5月1日休假后，未在6日如期开工。在此次疫情中，特斯拉也与众多跨国企业一样，受到冲击。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月08日 1:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/tnue256/djy/blob/master/gb/20/5/10/n12096259.md#1" target="_blank">【大温快报】5月9日：卑诗新诊15死2-学校尝试运作</a><br></h3>《大温快报》旨在为大温华人提供快速准确的新闻，以及播报我们身边发生的新鲜事，以便更好地服务于读者。同时，我们也会不断更新新闻，欢迎读者给我们爆料，请将你的文字、图片或视频发给我们，我们的爆料邮箱是：fanny.qiu9999@gmail.com。
 卑诗最新疫情
 今天是周六，我们看看省府最新公布的卑诗疫情数据。省卫生.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月10日 9:06 AM			</td></tr>
