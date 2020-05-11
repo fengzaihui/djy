@@ -29,9 +29,18 @@
 
 1963年10月，我出生在湖北省仙桃市一个贫穷农民家庭。5.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月09日 8:19 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/v2609/djy/blob/master/gb/20/5/8/n12094060.md#1" target="_blank">周晓辉：将病毒与珍珠港和911并列 川普要出重手</a><br></h3><a href="https://github.com/v2609/djy/blob/master/gb/20/5/8/n12094060.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-1211401258-600x400-1-150x120.jpg" align ="left"></a>当地时间5月6日，美国总统川普（特朗普）在白宫椭圆形办公室说了这样一番话：“我们国家遭受了有史以来最严重的袭击(attack)，这是美国历史上遭受的最严重的攻击。这比珍珠港突袭更糟糕，比‘911’世界贸易中心恐怖袭击更惨重。我们从来没有经历过这样的攻击，而它根本就不应该发生。它本应该在源头就被控制住，本可以被控制在中国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月09日 4:35 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/v2609/djy/blob/master/gb/20/5/8/n12093960.md#1" target="_blank">颜丹：从口罩厂倒闭看“中国制造”的处境</a><br></h3><a href="https://github.com/v2609/djy/blob/master/gb/20/5/8/n12093960.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/n95-mask_1627741090-600x400-150x120.jpg" align ="left"></a>最近，中国大陆传来消息，说生产口罩的工厂开始出现倒闭潮。这个消息很让人震惊，尤其是在“很多国家都面临口罩、防护服、呼吸机等防疫物资缺口”的当下。
+<tr><td><h3><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097759.md#1" target="_blank">金浴凤：葬共吟</a><br></h3>
 
-一个多月前，中共当局深知这些国家都“希望得到中国援助或从中国购买”，于是就派战狼发言人耿爽隔空喊话：“如果有人说‘中国制造有毒’，那么请说这种话的人，不要戴中国制造的口.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月09日 3:39 AM			</td></tr>
+共产共党谎满天，民生民哀有谁怜
+运动整风七十年，腥风血雨扑人面
+朝中红奴染疫苦，怨声载道血泪涟
+飘洋航海去祖国，忍看邪党祸人间
+政府强令厂复工，不管民命与亲朋
+无情肺炎第二波，又将多少人遭凶
+泛滥世界还甩锅，朝中妖共太龌龊
+明年花开又花落，不道人去也楼空
+为非作歹近百载，伤心病狂竟活摘
+作威作.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月11日 8:04 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12097746.md#1" target="_blank">【网海拾贝】与共产党政权没有真正的双赢</a><br></h3>北京在疫情中的行为让各国开始认清现实，中共与自由世界没有共同的民主价值观。美国国务卿蓬佩奥说得好：“与一个共产党政权没有真正的双赢，除非你得到川普总统说过的公平条件和在第一阶段贸易协议中做到的对等。” ——@DongFang_USA......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月11日 6:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/v2609/djy/blob/master/gb/20/5/10/n12096790.md#1" target="_blank">祝君安：天仙子?此恨绵绵无绝期</a><br></h3>肺炎暂歇问责烘，
 粉红哭罢五毛瞢，
