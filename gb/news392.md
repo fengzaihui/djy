@@ -29,16 +29,27 @@
 <tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12100215.md#1" target="_blank">袁斌：央视报疫情致美20%儿童吃不饱 华人斥笑话</a><br></h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12100215.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/20160826_us-money-600x400-150x120.jpg" align ="left"></a>最近一直使劲黑美国的中共央视日前逮到了一条黑美国的大新闻。
 
 什么新闻？“美国智库报告：经济衰退致美国近五分之一儿童吃不饱”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月12日 9:16 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12100518.md#1" target="_blank">爆料：北京癌症患者 因疫情政策而被耽误治疗</a><br></h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12100518.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/death-report-150x120.jpg" align ="left"></a>一位来自北京的女士小雨爆料称，自己的父亲在北京患癌，因为新冠（中共病毒）疫情政策而被耽误治疗，最后匆匆去世。
-
-2020年1月19日，我父亲因为记忆力严重衰退去北京天坛医院就诊，经核磁共振成像（MRI）检查，医生初步诊断为多发性颅内淋巴瘤。当时北京天坛医院的专家给出建议是每日输液激素和消水肿的药物进行维持，尽快住院.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月12日 8:25 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12100156.md#1" target="_blank">书僮：试错</a><br></h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12100156.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/P6091926-1-600x400-150x120.jpg" align ="left"></a>5月8日，纽约时报发表题为《全球走向重新开放，生活在“试错”中继续》的文章，指出“世界正进入一个高风险的实验期，城市和国家成了露天实验室，研究如何在新冠病毒肆虐下最安全有效地重新开放。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月12日 3:50 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12104851.md#1" target="_blank">郑纯清：儿子活埋母亲特案的警示</a><br></h3>活埋亲母儿亲手，
+红山寨狼忤逆兽。
+呜呼哀哉人悲叹，
+可想此事何来由？
+悲剧发生延安北，
+领导一切难脱勾。
+特案特显啥特色？
+红毒基因身心透。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 5:04 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12104828.md#1" target="_blank">关乐：极端天气感言</a><br></h3>哄骗死人不偿命，
+此乃魔咒神不应，
+一夜闪电十四万，
+地动山摇万物惊。
+武汉捂死人多少，
+似巡楚天查冤灵。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 4:52 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12104810.md#1" target="_blank">李春草：战狼</a><br></h3>獠牙外露眼含恨，绵羊面前弄精神；
+酒饱饭足黄昏后，时向虎山嗥几声。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 4:44 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12104795.md#1" target="_blank">吐为快：两会前的党国心</a><br></h3>影戏一岁一相逢，今年特别烦贵躬；
 世局骤变惊妖梦，追责巨浪动魔宫；
 真相曝光电话外，前途缥缈恍惚中；
 山珍无味淡淡景，回首有路悠悠钟。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 4:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/13/n12104161.md#1" target="_blank">【网海拾贝】中共病毒爆发的政治启示</a><br></h3>张雪忠在《武汉疫情爆发的政治启示》一文中写道，“到了今天这种局面，如果我们还只是嘲笑湖北那几个愚蠢而无耻的官员，还只是要求用别的官员去替换他们，那我们的一切苦难和不幸就都是白受了”、“当前这个集权型、统制型和逆淘汰的政体，才是一切灾祸的根源。”然而，中国当局如今已经用抓捕行动对张雪忠的改革谏言做出了回应。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 11:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/12/n12100661.md#1" target="_blank">【网海拾贝】中共故意隐瞒疫情是维稳本能</a><br></h3>中共故意隐瞒疫情大多是出于“维稳”的本能。比如，湖北、武汉1月分别召开两会，期间“盖牌”疫情通报长达12天；中共从上到下第一时间封堵李文亮等医生的疫情讯息。但是，这些故意隐瞒疫情的行为造成了武汉疫情的失控和病毒全球传播。2003年，SARS初起广东，也是因为中共想保广东二会所以掩盖疫情，后来则为了保中国新年、中共二会、.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月12日 10:49 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/20/5/11/n12099233.md#1" target="_blank">【名家专栏】中共病毒为何危及中共帝国梦</a><br></h3>中共领导层在病毒问题上撒了谎，否认了病毒的爆发、失控，让病毒传播到全世界。中共的算计是：每一个其它国家都必须遭受医疗和经济后果，这样中国的帝国计划才不会受到严重挫折。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月12日 6:48 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/z2544/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/z2544/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/z2544/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/z2544/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/z2544/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/z2544/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
