@@ -24,6 +24,7 @@
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12105178.md#1" target="_blank">陈思敏：法轮功学员广传真相 帮助世界看清中共</a><br></h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12105178.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2014/02/1402102220032320-150x120.jpg" align ="left"></a>今年2020年，是法轮功（亦称法轮大法）洪传世界28年，也是法轮功学员秉持“真、善、忍”精神反迫害21年，反迫害的主轴“讲真相”，就是告诉世人认清中共的邪恶本质。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 10:16 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12104130.md#1" target="_blank">程晓容：汶川地震和武汉瘟疫 我们看懂了什么</a><br></h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12104130.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-81204250-150x120.jpg" align ="left"></a>5月12日，在当年倒塌的都江堰聚源中学遗址外，一百多名死难学生家长聚集悼念。他们被大批公安包围、监控；同一天，在武汉，杨敏为染疫去世的女儿维权，被当局软禁。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 6:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12104875.md#1" target="_blank">【瘟疫与中共】吉林舒兰疫情直击公安局绝非偶然</a><br></h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12104875.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/c627e56b5b6cb8cec064a78507073bbf-600x400-1-150x120.png" align ="left"></a>貌似疫情回落的中国大陆，近日多地又出现确诊者，其中增长比较快的一个地区是吉林省舒兰市，现已被认定为疫情高风险地区，该地有60万在籍人口。根据大陆媒体报导，截至5月12日，31个省区市及兵团新增6例本土病例，均在吉林，都是此前病例的密切接触者。目前，舒兰疫情传染链共有22名确诊患者，21例在吉林，1例在辽宁沈阳。此外，吉.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 5:30 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/15/n12110766.md#1" target="_blank">钟原：中共隐瞒武汉肺炎疫情大事记（四）</a><br></h3>一场瘟疫浩劫，让武汉人、湖北人、中国人遭难，也让全世界遭难。中共隐瞒疫情，致使多少生灵涂炭！越来越多的人看清了事实。中共还在继续隐瞒，但更多的事实不断公开，媒体、各国机构、勇敢的爆料人，正在揭示这场史无前例的人祸。这里仅整理记录了部分已知的真相，并将继续补充新的真相，要把这惨烈的真相，传递给每一个人，传递给子孙后代。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月15日 11:53 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/15/n12110410.md#1" target="_blank">吐为快：美国，快推倒这堵墙</a><br></h3>网络红墙真相蒙，挡住自由民主风
 赵国廿年猫蟾梦，仁义销尽国魂空
 谎言洗脑残五毛，呆婊迷惑坠粉红
@@ -44,21 +45,5 @@
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/14/n12107005.md#1" target="_blank">【有奖征文】歧视是嚼过的口香糖 黏在鞋底：蹭掉它！</a><br></h3>目前，COVID-19 疫情高涨的时刻，华裔族群中声称遭歧视的声浪也高涨起来。 社会上出现的一些对华裔族群的过分言论和个别的肢体碰撞事件，即便处于青萍之末，都被冠之歧视言论或行为。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 9:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12106225.md#1" target="_blank">“让江泽民有生之年还我河山”的公开信（2）</a><br></h3>护疆功臣卞宝书家族，近年持续要求中国政府捍卫国土主权的情况。本案再次提请中国政府领导人，依据《宪法》和国际法规定，让“江泽民有生之年还我河山”的重大意义。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 4:16 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12104927.md#1" target="_blank">廖祖笙：请习近平帮助我家离开疫区</a><br></h3>习近平先生，自你主管党天下以来，我家就被居心叵测、变态至极的政法系，一再强行置于饿饭的境地。宫殿是辉煌的，国家是荒废的。为此我声声血、字字泪，前后已陆续给你写了上百次的公开信，到现在仍是于事无补，愁肠百结。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 7:23 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/20/5/13/n12104879.md#1" target="_blank">伍新：纽约疫患比例数字的警示</a><br></h3>封恐漏封手紧忙，
-防不胜防菌穿墙。
-纽约疫患六成六，
-闭门听喝街未逛。
-州长震惊可反思，
-莫非举措有荒唐？
-若一“惊”字给挡住，
-恐怕遗憾会拖长。
-中共模式穷赌堵，
-有意无意作业仿。
-中共病毒太诡异，
-万能科学溜边傍。
-疫情版图赛千言，
-武汉肺炎划一杠。
-距离中共远与近，
-恰似尺度可度量。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月13日 5:15 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/j2612/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/j2612/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/j2612/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/j2612/djy/blob/master/gb/news392.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/j2612/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/j2612/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
