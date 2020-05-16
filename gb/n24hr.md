@@ -5,16 +5,16 @@
 CREB的首席经济学家卢里（Ann-Marie Lurie）表示，中共病毒（?COVID-19）和能源行业现状合力导致销售量较3月进一步下降。需求下降速度快于供应。市场仍在买方一方，继续压低价格。
 
 所.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 12:19 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113626.md#1" target="_blank">【最新疫情5·16】美农业部将分送30亿元食物</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113626.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-1225069235-150x120.jpg" align ="left"></a>5月16日全球中共病毒（武汉肺炎）疫情最新情况：
+<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113626.md#1" target="_blank">【最新疫情5·16】川普或恢复世卫部分赞助</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113626.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-1225069235-150x120.jpg" align ="left"></a>5月16日全球中共病毒（武汉肺炎）疫情最新情况：
 
 中共肺炎全球疫情及美国疫情大数据请点击这里。
 要点：
+川普或恢复世卫部分赞助 金额与中方相同 
 美众院通过3兆元纾困案 将送交参院
 美国农业部启动计划 将分送30亿元食品 
 加拿大航空将裁员多达60％
 西班牙放宽对近70％人口的限制 
-北达科他州宣布重新开放大型场馆的指南
-美国CDC主任：料.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 12:18 PM			</td></tr>
+北达科他州宣布.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 12:18 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113801.md#1" target="_blank">前纽约市健康局长：疫情与城市人口密度无关</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113801.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/b61391d142acc9c14b1cde75df62e25e-150x120.jpg" align ="left"></a>5月15日，纽约市前健康局长，现任哈佛大学FXB健康与人权中心主任巴赛特（Mary Bassett）医生在《纽约时报》上发表文章，阐述了一个观点，即这次的中共病毒（新冠病毒）爆发程度与死亡率与城市人口密度无关。
 
 首先，巴赛特分析了纽约市内的统计数据。她说，纽约市曼哈顿是人口密集度最高的一个区，但是却不是疫情震中区.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 12:12 PM			</td></tr>
@@ -832,16 +832,6 @@ Uber App上推出了新的安全功能，司机在接单前必须填写一份上
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106589.md#1" target="_blank">九字真言救同学命 在美女生：恭贺李大师华诞</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106589.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/1605282308502483-150x120.jpg" align ="left"></a>“我哈佛的一个同学得了新冠肺炎，医生说他60%的肺坏死，已经没救了，我让他念‘法轮大法好’、‘真善忍好’，他得救了，现在已经出院了。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 5:19 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106633.md#1" target="_blank">寻找病毒抗体 加国进行首次血清学检测</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106633.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-1224681930-150x120.jpg" align ="left"></a>加拿大卫生部已经批??准了一项测试，可以检测人体血液中针对中共病毒（COVID-19）的抗体，这使加拿大实验室在了解该疾病的免疫力方面迈出了重要的一步。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 5:13 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106114.md#1" target="_blank">李靖宇：封口瞒疫欺骗甩锅 世界各国追责中共</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106114.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/court_03-2-600x400-150x120.jpg" align ="left"></a>中共病毒（武汉肺炎）肆虐全球，截止5月11日，全世界187个国家遭受感染，确诊总人数达到418万137人。死亡28万3,851人，死亡率6.79%，且因统计含中共、伊朗等专制政权，此数字受到严重低估。而美国确诊感染的人数已经高达136万7,638人，死亡高达8万787人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 5:01 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106574.md#1" target="_blank">美华裔舞协与加台联捐口罩 助美以美医院防疫</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106574.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/6b33a05b83e20ac12763ba58865b4f34-150x120.jpg" align ="left"></a>中共病毒（又称武汉肺炎，COVID-19）疫情蔓延全球，为感谢从事救助工作的第一线医疗人员，美国华裔舞蹈协会（America Chinese Dance Association ）5月12日捐出4,000个医疗口罩予美以美医院，在防疫上尽一份心力。
-
-
-
-
-
-
-
-会长袁璐表示，在疫情蔓延时就思考为社会服.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 4:49 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106565.md#1" target="_blank">【内幕】环时打脸刘鹤 党内分歧公开化</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106565.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/150320194219685-600x400-150x120.jpg" align ="left"></a>近日，中共喉舌《环球时报》放出“废止中美贸易协议”之说的言论，与刘鹤的立场唱反调，引舆论关注。而且在《环时》的报导中，公开透露中共内部存在分歧。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 4:41 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113771.md#1" target="_blank">廖祖笙：党已亡在了政法委</a><br></h3>习近平先生，党国“维稳”经费时常高于国防开支，这在昏天暗地、怨声载道的大江南北，一向都是有目共睹，人所共知。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 12:29 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113893.md#1" target="_blank">每日三退声明精选（2020/05/15）</a><br></h3>小时候我在无知的情况下加入了队和团组织，高中后我一直有机会入党，工作时领导还经常劝我入党，可是成年的我有了自己的认识，我没有看到共产党的好，周围的人入党全部是为了自己的利益、工作、仕途，没有人真正因为信仰共产主义而入党，入党的人总是要按照组织要求做许多虚假的事情，做许多表面的工作，这和我的良知是相违背的，人如果活成这样.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 12:18 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113866.md#1" target="_blank">首都将委托专业机构调解疫情期间租房纠纷</a><br></h3>首都行政区政府将投资委托专门的调解机构，以解决日益增多的租房纠纷问题。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 11:49 AM			</td></tr>
