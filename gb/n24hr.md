@@ -78,8 +78,8 @@ CREB的首席经济学家卢里（Ann-Marie Lurie）表示，中共病毒（?COV
 川普或恢复世卫部分资助
 美众院通过3兆元纾困案 将送交参院
 美国农业部启动计划 将分送30亿元食品 
-加拿大航空将裁员多达60%
-西班牙放宽对近70%人口的限制 
+加拿大航空将裁员多达60％
+西班牙放宽对近70％人口的限制 
 北达科他州宣布重新开放大型场馆的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 12:18 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113801.md#1" target="_blank">前纽约市健康局长：疫情与城市人口密度无关</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12113801.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/b61391d142acc9c14b1cde75df62e25e-150x120.jpg" align ="left"></a>5月15日，纽约市前健康局长，现任哈佛大学FXB健康与人权中心主任巴赛特（Mary Bassett）医生在《纽约时报》上发表文章，阐述了一个观点，即这次的中共病毒（新冠病毒）爆发程度与死亡率与城市人口密度无关。
 
@@ -868,8 +868,11 @@ Uber App上推出了新的安全功能，司机在接单前必须填写一份上
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106900.md#1" target="_blank">旧金山湾区牙医诊所准备6月重新开业</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106900.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2017/11/6eae04c560a8e82460e07b7a7fe3afae-150x120.jpg" align ="left"></a>自3月加州颁布“居家防疫”令以来，除了紧急手术之外，旧金山湾区的牙医诊所一直处于关闭状态，上周，加州公共卫生部发布了恢复牙科护理的指南，对牙科及其工作者如何在疫情期间复工问题，做出了全面的指示。旧金山湾区的牙医们正在加紧准备在6月初重新开放。
 
 根据对牙科护理的指南，牙科属于“接触病毒的非常高危类别”，指南中表示.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 7:21 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12114027.md#1" target="_blank">女大学生张家界翼装飞行 拍摄节目时失踪</a><br></h3>5月15日，北京一名女大学生在河北张家界景区，为拍摄节目进行翼装飞行时失踪，目前，搜救仍在进行中。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 3:00 PM			</td></tr>
-<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12114108.md#1" target="_blank">首都行政区为非政府卫生机构拨款170万</a><br></h3>首都行政区（ACT）上周宣布拨款170万澳元支持非政府卫生医疗机构，共有40多家机构获得了资金支持。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 2:58 PM			</td></tr>
+<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12105005.md#1" target="_blank">【纽约疫情5.13】4地区达开放指标 周五重启</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12105005.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-1224430196-1-150x120.jpg" align ="left"></a>纽约州长安德鲁·库默（Andrew M. Cuomo）周三表示，该州北部地区（The North Country）已经达到重新开放的七项标准，最快在周五逐步开放建筑业、制造业、路边零售业，以及农业、林业和渔业。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 7:07 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106733.md#1" target="_blank">川普延长行政令 继续封杀华为中兴等中企</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106733.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/07/15b5f45841f13fbe_ttl7dayuxP_004-TP-150x120.jpg" align ="left"></a>美国总统川普（特朗普）周三（5月13日）把去年5月签署的行政命令延长一年，该行政令宣布国家紧急状态，禁止美国企业使用对国家安全构成风险的外国企业所生产的电信设备。此举剑指华为、中兴通讯等中国企业。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 6:54 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106273.md#1" target="_blank">【大温快报】5月13日：卑诗新诊16死1-卑诗紧急令延至5月底-室外游泳池不开</a><br></h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106273.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/RestartPlan2-150x120.jpg" align ="left"></a>《大温快报》旨在为大温华人提供快速准确的新闻，以及播报我们身边发生的新鲜事，以便更好地服务于读者。同时，我们也会不断更新新闻，欢迎读者给我们爆料，请将你的文字、图片或视频发给我们，我们的爆料邮箱是：fanny.qiu9999@gmail.com。
+卑诗最新疫情
+今天是周三，我们看看省府最新公布的卑诗疫情数据。省卫生.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 6:51 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12114099.md#1" target="_blank">受疫情封锁令影响?昆州严重犯罪率大幅下降</a><br></h3>在病毒冲击下，昆士兰一些犯罪行为如毒品、计算机欺诈、和家庭暴力等犯案率大幅增长；然而其它更严重的犯罪案率却相对地大幅下降五成。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 2:43 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12114090.md#1" target="_blank">首都行政区将立新法保护老弱残免受虐待</a><br></h3>首都行政区（ACT）将立新法保护残疾人和60岁以上的老年人。心理虐待、经济虐待等非身体上的伤害将同样是犯罪行为。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 2:33 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/16/n12114016.md#1" target="_blank">桃园八大还不能解封  郑文灿：让新住民度难关</a><br></h3>台湾肺炎疫情趋缓，澎湖率先宣布有条件开放八大行业营业，桃园市长郑文灿表示，会跟中央保持一致，只要能够达标，全国一致，桃园市也会实施。针对尚未领有国民身份证的新住民家庭，市府也将协助以共同生活户的形式协助专案申请，让新住民家庭也能度过难关。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月16日 2:01 PM			</td></tr>
@@ -1421,4 +1424,7 @@ SEPTA正在安装新的隔离板，以避免.........<br><img align="bottom" src
 教育部表示，将联系曾与该名确诊患者密切接触过的学校员工和学生，并让他们自我隔离。学生和员工都被告知周四留在家中。
 
 教育部在一份声明中说：“在任何时.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 8:38 AM			</td></tr>
+<tr><td><h3><a href="https://github.com/fvo2996/djy/blob/master/gb/20/5/13/n12106896.md#1" target="_blank">旧金山湾区索诺马县放宽了公园和沿海地区居民的部分限制</a><br></h3>周二（5月12日），旧金山湾区索诺马县卫生官员，发布了一项修正令，从周三（5月13日）起，该县将放宽对公园和沿海地区部分的限制，人们可以驾车前往公园，并允许在公园内使用停车场和洗手间。
+
+自3月下旬实施“居家防疫”令以来，公园和部分海滩的停车场被关闭，上个月的时候，县公共卫生官员桑达里·马斯（Sundari Mas.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 7:10 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fvo2996/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/fvo2996/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fvo2996/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/fvo2996/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
