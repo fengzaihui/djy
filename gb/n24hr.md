@@ -1381,13 +1381,4 @@ SEPTA正在安装新的隔离板，以避免.........<br><img align="bottom" src
 <tr><td><h3><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/14/n12107234.md#1" target="_blank">新西兰紧急状态结束 国家将进入过渡期</a><br></h3>随着新西兰进入 2 级警报，国家面对疫情的紧急状态似乎已经结束，正在步入过渡期。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 11:00 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/14/n12107222.md#1" target="_blank">纽总理与副总理对移民政策持不同立场</a><br></h3>新西兰副总理声称在肺炎疫情大流行和封锁期间挣扎的移民劳工可以“ 回家 ”，但总理并不认同这个观点。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 10:56 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/14/n12107168.md#1" target="_blank">廖祖笙：这“国”，一直以来是疫区！</a><br></h3>习近平先生，自你主管党天下以来，我家就被居心叵测、变态至极的政法系，一再强行置于饿饭的境地。宫殿是辉煌的，国家是荒废的。为此我声声血、字字泪，前后已陆续给你写了上百次的公开信，到现在仍是于事无补，愁肠百结。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 10:47 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/14/n12107134.md#1" target="_blank">新西兰科学家：中共病毒可在废水中测出</a><br></h3>新西兰的科学家率先开发了一种废水采样系统来检测和跟踪中共肺炎病毒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 10:16 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/13/n12105603.md#1" target="_blank">遭中共威胁农产品 澳贸长：会谈判但不会停止调查</a><br></h3>澳洲主要农产品近期不断遭到中共当局禁止进口与关税威胁，此举不免让外界联想到，北京当局是在报复澳洲展开调查疫情一事。贸易部长伯明罕（Simon Birmingham）随即与中国商务部长钟山展开紧急对话，但伯明罕仍表示，澳洲当局还是会持续推动病毒的调查工作。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 10:15 AM			</td></tr>
-<tr><td><h3><a href="https://github.com/carc2844/djy/blob/master/gb/20/5/14/n12107077.md#1" target="_blank">吴新：保姆“执死鸡”作业乃抄袭</a><br></h3>保姆“执死鸡”，虐老催死期。
-应聘先约定，薪酬按月计。
-月薪日可挣，一月能十笔。
-老人一害死，拿钱另门去。
-百日母夜叉，索命成手艺。
-所谓弱势群，保姆当算一。
-开此谋财路，作业乃抄袭。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年05月14日 10:11 AM			</td></tr>
 </table><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/carc2844/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/carc2844/djy/blob/master/gb/n24hr.md#1"><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/carc2844/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/carc2844/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</p>
