@@ -160,6 +160,8 @@
 <p><a href="https://github.com/rsllp275/djy/blob/master/gb/nf1320400.md#1">中共的间谍危机</a></p>
 <p><a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/rq.md?fldfrsllp275#1">浏览器企业请进</a></p>
 </details>
-
+<p><strong><a href="https://github.com/rsllp275/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>
+<img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/rsllp275/www/blob/master/README.md?x%231" title="分享本平台"></img>
+</div>
 </h3>
 
