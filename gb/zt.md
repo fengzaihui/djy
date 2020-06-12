@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <h1>大纪元同步目录</h1>
-<h1></h1>
+<img src="https://raw.githubusercontent.com/rsllp275/www/master/t/lh600.jpg"><br>
 <h3>
 <p><details open><summary><a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/nf1351518.md#1">大纪元动态首页</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><a target="_blank" href="https://github.com/rsllp275/djy/blob/master/gb/nscrw413.md#1">新闻排行</a></p>
