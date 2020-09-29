@@ -903,12 +903,4 @@ Airbnb的全国经理惠尔唐（Susan .........<br><img align="bottom" src="htt
 狗血喷头诬耶稣。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月27日 11:45 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/27/n12433533.md#1" target="_blank">常忍：中共献丑国际 凸显霸道专横</a><br></h3>二零二零年九月二十三日，联合国人权理事会第45届会议在日内瓦举行，一桩中共女代表拍桌耍赖的事件，贻笑国际，视频在网上热传。当日发言者为“联合国观察组织”（UN Watch）的执行长Hillel Neuer，影片中该女多次拍桌子干扰Hillel Neuer揭露了新疆“再教育营”真相，最初大会主席出面阻止，英国代表也附和主.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月27日 11:31 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/27/n12433528.md#1" target="_blank">每日三退声明精选（2020/09/26）</a><br></h3>过去土匪躱深山，如今土匪满地行，杀人劫舍无人管，残杀好人心更狠 !......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月27日 11:26 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/27/n12433518.md#1" target="_blank">理悟：摘桃——还原抗战真相</a><br></h3>不会裁桃会摘桃，
-满筐满篓不害臊。
-桃子好吃人皆知，
-栽桃辛苦谁知道？
-国难当头驱倭寇，
-英勇抗战热血抛。
-中流抵柱是哪个？
-蒋公不愧头一号。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月27日 11:07 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/vylahl3695/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/vylahl3695/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vylahl3695/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/vylahl3695/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
