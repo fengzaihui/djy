@@ -28,6 +28,7 @@
 据陆媒报导，美国哥伦比亚特区联邦地区法院“宣布暂停实施将TikTok从美国移动应用商店下架的行政令”。理由是“该禁令影响‘言论自由’、对企业造成不可弥补的损害”。尽管川普总统上升到“维护国家安全、保护美国国民”的高.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月30日 2:28 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439784.md#1" target="_blank">张林：法拉盛华人集会游行 压倒中共邪气</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439784.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/6888068b022e2fc7812ed9a34ee162e7-600x400-150x120.jpg" align ="left"></a>9月27日上午，法拉盛爆发了一场挺川普、挺香港、反中共的集会游行。这场活动从上午9:30在图书馆门前场地开始布置标语、横幅，到下午1点钟才在北方大道缅街口结束，持续了3个半小时。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月30日 12:29 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439774.md#1" target="_blank">【有冇搞错】韩战70年 美国没败</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439774.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/WhatsApp-Image-2020-09-29-at-6.07.00-AM-150x120.jpeg" align ="left"></a>今年是韩战70年，中共宣传战胜美帝。还原历史，若从战略目标上看，美国没有败，但那场战争，却决定了后来70年东亚的历史。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月29日 11:59 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435086.md#1" target="_blank">【名家专栏】杜撰新闻与美国气候“恶化”</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435086.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/GettyImages-1228515446-150x120.jpg" align ="left"></a>在过去的几周里，成千上万的被杜撰出来的所谓“新闻”声称，人为造成的气候变化是致使美国西部干旱，热浪和野火更频繁、更严重的原因。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月29日 11:55 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439011.md#1" target="_blank">横河：蓬佩奥威州议会讲话开辟制共新战线</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439011.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/5bfd62530b72bb08f611f07a858ea840-600x400-1-150x120.png" align ="left"></a>
 
 （主持人：杨光 / 嘉宾：横河）美国务卿彭佩奥在威州参议院演讲，提及中共芝加哥、旧金山和纽约总领馆干涉美国地方政治的案例，在联邦全面反击中共层面上又开始地方政府的反击战。中共的统战系统是如何越过联邦政府钻地方政府空子的，哪些正在受到美国政府关注。纽约藏裔警察是怎样成为中共代理人的。
@@ -50,22 +51,5 @@ https://www.........<br><img align="bottom" src="https://www.epochtimes.com/asse
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439218.md#1" target="_blank">洪达：中国人民不能再做墙头草</a><br></h3>二零二零年九月二十七日，美国国务卿蓬佩奥（Mike Pompeo）受访提到了中共在全球的扩张，并阐述了美国结束对华“绥靖”、开始对抗中共的整体布局，包括建立全球联盟反击中共。“我们已经取得真正的进展，从非洲到东南亚再到南美，这些国家现在认识到了中共对他们的自由和主权所构成的威胁”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月29日 5:59 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439193.md#1" target="_blank">观雨堂主：为“资本主义”正名</a><br></h3>上世记80年代临近尾声的时候，随着苏东共产政权轰然倒塌。曾经在欧洲徘徊的马克思幽灵，终于广遭唾弃与驱散。但在东亚大陆，尽管CCP作恶多端罄竹难书，依然直至2020年在世界范围的投放传播毒疫，才令全世界真正惊醒。而今在东亚大陆，为什么仇视普世价值的倾向依然存在？或者说，为什么马克思的幽灵尚未遭彻底唾弃？其中一个重要原因就.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月29日 5:40 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439162.md#1" target="_blank">颜纯钩：恩将仇报是中共本性</a><br></h3>中共与美国交恶，已去到不可挽回的地步。平心静气考察中美数十年来的关系，美国人并没有对不起中共，反而在中共最困难的时候伸出援手。邓小平当年访美，要求美国接收中国留学生，美国即刻同意，之后数十年维持最高的中国学生收生率，政府与民间给中国学生最多奖学金。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月29日 5:17 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12437525.md#1" target="_blank">关乐：重庆会谈（又称“重庆谈判”）</a><br></h3>视频联合国大会，庆祝七十五周岁。
-
-川习公开撕破脸，中美首脑隔空怼。
-
-瞒大疫情无可忍，川普总统追问罪。
-
-有人比作珍珠港，死亡已超好多倍。
-
-自认神选当义工，好心被当驴肝肺。
-
-党魁理亏硬努嘴，不能谁拳大听谁。
-
-假恶斗党唯物论，终极目的毁人类。
-
-继此衣钵太可悲，邪灵附体鬼傀儡。
-
-.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月29日 5:39 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/qhmibe3080/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/qhmibe3080/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qhmibe3080/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/qhmibe3080/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
