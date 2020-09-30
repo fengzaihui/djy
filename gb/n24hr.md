@@ -812,6 +812,15 @@ https://youtu.be/hUv92PWWcWI
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435315.md#1" target="_blank">牙周病  影响范围涵盖青壮、中、老年族群</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435315.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/61cc718d9ad15d1ffb608dde051012f9-150x120.jpg" align ="left"></a>牙周病或称牙周炎 (Periodontitis)，泛指牙齿周围组织的发炎破坏性疾病，是国人极为常见的口腔疾病，主要影响范围涵盖了青壮年、中年与老年族群。台北荣民总医院桃园分院长卢星华说明，接受完整的专业牙周病疗程，加上患者平日良好的自我口腔维护，避免抽烟，控制好血糖等身体状况，并养成至少每半年牙科定期检查的习惯，是战胜.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 11:52 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/27/n12434558.md#1" target="_blank">真相破迷 “等着退党”的中国民众</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/27/n12434558.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/C3-150x120.jpg" align ="left"></a>“有的人一说就退，感觉对方就在等着你一样。”广东一位男士不仅自己退了党，还介绍其他人来听真相和退党。这位男士还对她说，“大家一起来反党。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 11:50 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/27/n12434776.md#1" target="_blank">美前议员：西方宗教界对宗教迫害不要沉默</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/27/n12434776.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/c4-150x120.jpg" align ="left"></a>美国前国会议员弗兰克.沃尔夫（Frank Wolf）呼吁，西方宗教社区不要对世界范围内发生的宗教迫害保持沉默。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 11:46 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/27/n12434868.md#1" target="_blank">抗共大事记：欧盟公开选择美国 放弃中共(9/21-9/27)</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/27/n12434868.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/12/000_1BP28L-150x120.jpg" align ="left"></a>过去一周（美国时间9月21日至27日），在联合国大会上，欧盟理事会主席米歇尔公开指，在大国的竞争中，欧盟站在美国一边，而不是中国（中共）；另外多个国家也指责中共，其中美国总统川普要求中共对这场大瘟疫负责。
+
+同时，美国开始全方位地反击中共，包括抓捕中共安插到纽约警局的线人，调查中共的两大统治组织，不断在南海、东海军.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 11:39 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435201.md#1" target="_blank">【翻墙必看】业内指中共自制芯片是天方夜谭</a><br></h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435201.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2004/02/402205228868-150x120.jpg" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
+
+1.分析：为何中共难以自制芯片设备？
+在美国对华为芯片禁令生效之后，中共声称要自制光刻机，却被指是又一场砸钱的“大跃进”。近日有文章针对中国（中共）为何无法制造用于生产高端芯片的EUV光刻机，进行分析，该文在网络引发热议。
+
+2.川普拜登首场辩论周二登场 聚焦六大议题.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 11:31 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441982.md#1" target="_blank">堪培拉10月底首次开通直飞阳光海岸</a><br></h3>10月23日，堪培拉机场将首次提供直飞阳光海岸的服务，每周两班，航空公司为澳洲联盟航空（Alliance Airlines）。阳光海岸是新航班的经停站，终点站是凯恩斯。
 
 每年往返于堪培拉和阳光海岸之间的客流量约有5万。一直以来，堪培拉及附近居民都需要先去悉尼，然后从悉尼搭飞机去阳光海岸。新航班开通后，堪培拉至阳光.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月30日 7:07 PM			</td></tr>
@@ -1063,4 +1072,14 @@ Thinkific是由西海岸公司投资商瑞侬?文谦(Rhino Ventures)投资开发
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435466.md#1" target="_blank">桃居家检疫者1/3在桃园区 郑文灿29日慰劳</a><br></h3>桃园市居家检疫至9月23日止，已累积32,352人，解除30,183人，目前尚有2,169人正在居家检疫，13区中以桃园区最多，累计10,920人，目前尚在居检关怀中的，仍有780人。由26名里干事分摊第一线关怀作业，平均每里干事要服务420名居家检疫者，连续关怀14天，期间个案可能会有就医、移动、手机门号异动或其它生.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 12:24 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435506.md#1" target="_blank">四岁男童自卡铁皮桶 多人救援合力助脱困</a><br></h3>据七号台新闻网报导，23日，墨尔本4岁男孩Alessio Caruso出于好奇，爬进了盛装Chupa Chup棒棒糖的大铁皮罐里。Caruso跪在罐底，两脚抵住铁罐内壁的一侧，而两膝抵在内壁另一侧上，就这样被死死卡在了罐子里怎么也出不来。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 12:22 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435485.md#1" target="_blank">自闭症少年晨跑离奇失踪 尸体离家一公里处被发现</a><br></h3>据澳洲新闻网报导，患有自闭症的14岁维州少年William Wall热爱健身，22日早上6点45分，他离开位于Launching Place镇的家出门跑步。他告诉家人自己打算跑15分钟，但却再也没回来。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 12:17 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12435354.md#1" target="_blank">陆客：末世民风（六）</a><br></h3>照照那伙鬼迷窍
+骂我祖宗砸我庙
+欺我师长乱我校
+当面装人背后鬼
+言而无信唱高调
+
+一道天镜悬空照
+中国中共两条道
+休扮中华欺世人
+你是西洋鬼迷窍......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年09月28日 11:34 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/qhmibe3080/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/qhmibe3080/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qhmibe3080/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/qhmibe3080/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
