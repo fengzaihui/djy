@@ -669,6 +669,9 @@ ADU政策颁布实施3年多以来，加建改建ADU能够增加租金收入，�
 <tr><td width="742"><h3><a href="https://github.com/bafyob305/djy/blob/master/gb/20/9/25/n12428731.md#1" target="_blank">【内幕】中共基层政权成扫黑重点对象</a><br></h3><a href="https://github.com/bafyob305/djy/blob/master/gb/20/9/25/n12428731.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2008/05/805021759321944-150x120.jpg" align ="left"></a>贿选或选举舞弊，在绝大多数民众从未见过选票的中国社会，似乎是个很遥远的话题。然而大纪元获得的内部文件揭示出，中共基层政权存在严重的贿选和腐败现象。
 
 大纪元近期获得了中共内蒙自治区赤峰市的部分文件，文件揭示出，中共基层政权糜烂不堪，不但拉票贿选、贪污扶贫款，还鱼肉乡里，涉黑涉恶，本身就是“扫黑除恶”的重点打击对象.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 10:55 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/1/n12443641.md#1" target="_blank">南加州华人齐祝李洪志大师中秋快乐</a><br></h3><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/1/n12443641.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/7-20-150x120.jpg" align ="left"></a>中秋佳节将至，南加社区侨民及了解法轮功真相的华人们藉大纪元媒体集团，向法轮功创始人李洪志先生表达中秋祝福，感谢他洪传“真、善、忍”理念，使无数人的道德回升、身体健康。
+
+六四雕塑家陈维明藉中秋佳节祝李洪志大师身体好，能继续带领法轮功学员弘扬法轮大法。也希望有一天，所有在海外的法轮功华人学员，可以回到中国，在自己出生.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 10:50 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/3/n12449706.md#1" target="_blank">新州拟推行赌博卡 禁止使用现金赌博</a><br></h3>新州政府计划进行有史以来最大的赌博政策改革，全州所有赌博机需使用州政府发出的赌博卡，不再使用现金。这意味着赌博的人必须先登记注册这张卡，并事先将钱转入卡内，方可使用。隐私管理专员将负责该卡的设计和监督。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 4:28 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/3/n12449609.md#1" target="_blank">海外青年华语文研习班视讯教学第3-6梯次开始招生</a><br></h3>中华民国侨务委员会为提升海外青年华语文能力及增进对传统中华文化及台湾多元文化之认识，并推动海内外青年交流，促进赴台就学之机会，多年来持续办理“海外青年华语文研习班”活动。
 
