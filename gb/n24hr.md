@@ -4,7 +4,6 @@
 
 
 本届金曲奖表演嘉宾卡司除了有金曲歌王林俊杰、唱将梁静茹、田馥甄，还有歌手瘦子、王若琳、9m88搭配?ZI。另还有“原客台”舞台，由舒米恩、罗文裕、罗时丰、葛西瓦、杨.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 1:14 PM	</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449715.md#1" target="_blank">澳人有望本财年即获减税优惠</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449715.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1213613087-150x120.jpg" align ="left"></a>澳洲财长弗莱登伯格（Josh Frydenberg）正在计划将个人减税政策回溯至已于7月1日开始的本财政年度执行，以让民众手中可支配现金立即增加，帮助提振经济。周二晚公布的财政预算一揽子政策中将会包括这一信息。在这个减税计划下，年薪超过12万的工薪族，每年减税最多可达2565澳元；年薪超过5万者，可减税最多1080澳元.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 5:06 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449674.md#1" target="_blank">组图：川普离开白宫 乘直升机前往医院</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449674.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1228854348-150x120.jpg" align ="left"></a>10月1日，美国总统川普（特朗普）在推特上发文表示，他与夫人梅拉尼亚的中共病毒（武汉肺炎）检测呈现阳性。10月2日，川普搭上总统专用直升机，前往沃尔特?里德国家军事医学中心（Walter Reed National Military Medical Center）进行治疗。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 4:56 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449699.md#1" target="_blank">白宫报告：川普五大战略振兴了美国制造业</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449699.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/49742482671_65f21e9c64_o-600x400-150x120.jpg" align ="left"></a>白宫贸易与制造政策办公室周五（10月2日）发布了一份长达27页的报告。该报告指出，在过去四年中，川普政府利用五项战略，全面落实复兴“美国制造”的目标，并大大加强了美国的国防工业基础。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 4:20 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449654.md#1" target="_blank">新州逐步放宽疫情限制 悉尼恢复春季赛马</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449654.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1278199365-150x120.jpg" align ="left"></a>随着新州疫情逐步稳定，疫情限制措施也在逐步放宽。春季赛马在周六也重回悉尼兰德威克赛马场（Randwick Racecourse）。观众需提前预定门票，并遵守有关疫情防控规定。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 4:18 PM			</td></tr>
@@ -38,12 +37,12 @@
 
 中共肺炎全球疫情及美国疫情大数据请点击这里。
 要点：
-牛津教授：川普的实验疗法 已在数百名患者上试验成功
 不只川普 多国第一家庭曾染疫
 彭斯检测呈阴性 下周辩论将照常进行
 至少三名白宫记者确诊 多人自我隔离等待检查
 墨西哥周五记录有400多人死亡
-参.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 1:26 PM			</td></tr>
+参议员汤姆·提里斯（Thom Tillis）确诊
+数月.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 1:26 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449211.md#1" target="_blank">恢复种族平权16号提案 非裔团体亦反对</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449211.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/tu1-Rejecting-illegal-drug-injection-centers-in-Sacramento-I-03192019-150x120.jpg" align ="left"></a>目前已知的，对加州恢复种族平权的16号提案（Prop.16）相关的2个民调，均显示反对者占优：PPIC于9月4日至9月13日期间民调显示，反对提案的占47%，支持者仅占31%；9月23日释出的Berkeley IGS Poll所做的民调，反对者占41%、支持者占33%。
 
 16号提案官方登记的反对方代表、平等公义协.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 1:07 PM			</td></tr>
@@ -690,6 +689,11 @@ ADU政策颁布实施3年多以来，加建改建ADU能够增加租金收入，�
 
 正如外界预测的那样，在与拜登.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 9:31 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/1/n12443411.md#1" target="_blank">加拿大安省各级政府取消升中共红旗活动</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/1/n12443411.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2011/09/1109080038351117-150x120.jpg" align ="left"></a>安省议会取消计划在10月1日前举行的中共红旗升旗活动。此升旗活动一直受到批评，尤其是在中共当局扣押两名加拿大人长达1年9个月的时候。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 9:29 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/1/n12443417.md#1" target="_blank">关闭近7月 加州迪士尼宣布将裁员2.8万人</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/1/n12443417.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/IMG_3135-e1601517289113.jpg" align ="left"></a>9月29日（周二），在重新开放遥遥无期的情况下，位于橙县安纳罕市的迪士尼公园宣布将裁员2.8万人；而在佛罗里达的迪士尼公园已经有限制地开放了整个夏天。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 9:19 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/9/30/n12442921.md#1" target="_blank">钟原：李克强讲话中关于台湾的微妙变化</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/9/30/n12442921.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/CCP-Leader-10.1-event-20201001-1-150x120.jpg" align ="left"></a>10月1日到了，内外交困的中共高层当然还要努力作秀一番，9月30日先到天安门广场的纪念碑献花，然后是招待会。这些场面并无看点，倒是李克强讲话中关于台湾的提法有了一些微妙变化。
+
+李克强在招待会上的讲话，关于台湾实际只有一句话，称坚持“对台工作大政方针”，并重提“九二共识”，特别是讲到了“推进两岸关系和平发展”。
+.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 9:09 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449706.md#1" target="_blank">新州拟推行赌博卡 禁止使用现金赌博</a><br></h3>新州政府计划进行有史以来最大的赌博政策改革，全州所有赌博机需使用州政府发出的赌博卡，不再使用现金。这意味着赌博的人必须先登记注册这张卡，并事先将钱转入卡内，方可使用。隐私管理专员将负责该卡的设计和监督。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 4:28 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449609.md#1" target="_blank">海外青年华语文研习班视讯教学第3-6梯次开始招生</a><br></h3>中华民国侨务委员会为提升海外青年华语文能力及增进对传统中华文化及台湾多元文化之认识，并推动海内外青年交流，促进赴台就学之机会，多年来持续办理“海外青年华语文研习班”活动。
 
