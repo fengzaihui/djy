@@ -708,11 +708,6 @@ ADU政策颁布实施3年多以来，加建改建ADU能够增加租金收入，�
 
 美甲店和大型室内购物中心都将在未来10天中获准以25%的容量重开，但是所有购物中心的美食广场以及公共区域仍.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 7:55 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/9/25/n12429391.md#1" target="_blank">奥妙莫名中秋节神迹  搭起仙凡之桥</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/9/25/n12429391.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/351676a8feec74530af3b3e4be3587f4-150x120.png" align ="left"></a>种种中秋节神迹：嫦娥奔月、唐玄宗游月宫、月中落桂子还有杭州观潮发生的奇事，穿越凡界和神界搭起一道桥，留给人遐想，留给人悟道和穿越迷障的追寻。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 7:53 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/9/30/n12443276.md#1" target="_blank">卡城西南6个社区 启动按需公交服务</a><br></h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/9/30/n12443276.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/ondemand-12passenger-150x120.jpg" align ="left"></a>从10月13日开始，卡尔加里西南部的6个社区将开启按需公交服务。
-
-居住在弓道（Bow Trail）南部和萨尔塞道（Sarcee Trail）西部地区的人可以通过应用程序或致电卡城公交公司（Calgary Transit）预订公交车。
-
-卡尔加里公交车公司的阿曼达·布拉德利（Amanda Bradley）说：“.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月01日 7:32 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/3/n12449609.md#1" target="_blank">海外青年华语文研习班视讯教学第3-6梯次开始招生</a><br></h3>中华民国侨务委员会为提升海外青年华语文能力及增进对传统中华文化及台湾多元文化之认识，并推动海内外青年交流，促进赴台就学之机会，多年来持续办理“海外青年华语文研习班”活动。
 
 2020年因中共病毒（武汉肺炎、COVID-19）疫情影响，为维护参加学员之身体健康，取消赴台研习，改采“远距视讯教学”方式办理。凡年满12足.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 2:55 PM			</td></tr>
