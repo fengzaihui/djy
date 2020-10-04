@@ -53,18 +53,17 @@
 你对我坏 我还把真相让你知
 半夜十二点，拿铁凳子压于洋脚的那个恶警进来了，用约束带把于洋捆到椅子上，把于洋的手也铐在椅子上。他让几个协警监视着，不让于洋睡觉。于洋就给他们讲法轮功真相一直下半夜2点多，他们都睡觉去了。只剩一个不太接受法轮功的协警，还在跟于洋聊着，他说法轮功好坏与.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月04日 11:00 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/10/4/n12452053.md#1" target="_blank">奶奶修法轮功 四岁孙子受株连被禁入幼儿园</a><br></h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/10/4/n12452053.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/image-800x450-150x120.jpg" align ="left"></a>2020年9月6日幼儿园开学这天，原在这里任教的陶腊怀老师的孙子，由爸爸、妈妈牵着，高高兴兴的来到片区幼儿园——湖北省麻城市幼儿园，按照幼儿园的通知来到小（七）班。可想不到的是，园长余丽禁止四岁的幼儿入园。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月04日 10:10 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/9/27/n12434643.md#1" target="_blank">【最新疫情10.4】川普乘车离开医院</a><br></h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/9/27/n12434643.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/2f320036057986e0b9458d3935bdce1e-150x120.png" align ="left"></a>10月3日全球中共病毒（武汉肺炎）疫情最新情况：
+<tr><td width="742"><h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/9/27/n12434643.md#1" target="_blank">【最新疫情10.4】川普到医院外向支持者招手</a><br></h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/9/27/n12434643.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/2f320036057986e0b9458d3935bdce1e-150x120.png" align ="left"></a>10月3日全球中共病毒（武汉肺炎）疫情最新情况：
 
 中共肺炎全球疫情及美国疫情大数据请点击这里。
 要点：
-川普乘车离开医院
+川普到医院外向支持者招手
 川普发推：准备好投票
 白宫医疗团队发布川普病情进展 最快周一出院
 川普推特发视频感谢支持者
 白宫发布川普在医院工作照片
 川普私人助理测试阳性
-川普确诊后 蓬佩奥缩短亚洲行程
-.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月04日 10:05 PM			</td></tr>
+川普确诊后 蓬佩奥缩短亚洲.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月04日 10:05 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/9/23/n12424912.md#1" target="_blank">快速看懂财报玄机 3实例教你留住钱财</a><br></h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/9/23/n12424912.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2015/09/1509161508222483-150x120.jpg" align ="left"></a>为什么很多公司看似生意很好，却面临倒闭命运？为什么企业有很多现金，却还是必须跟银行借钱？财务管理的确是一门学问，但是报表里的资产、负债、股东权益等专有名词是不是让你晕头转向？建议你不妨参阅此篇文章，了解一下“高手才懂的关键知识”！让你短期内达到财务自救不靠人，真正看懂“财务报表”的暗藏玄机。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月04日 9:51 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/10/4/n12452191.md#1" target="_blank">国际秩序面临重整 立委：台湾定要站对位置</a><br></h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/10/4/n12452191.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/3b70386e23cc53c9a127291f67883e20-150x120.jpeg" align ="left"></a>中共病毒（武汉肺炎）蔓延全球，这场世纪浩劫不仅为国际地缘政治带来冲击，也引发全球产业供应链的重组浪潮。民进党立委王定宇表示，当前国际政治、供应链都面临重整，骑墙模糊的策略已不再适用，“台湾一定要站对位置”，必须跟着自由民主阵线走，民主安全与经济融景才能保障。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月04日 9:49 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/10/4/n12452177.md#1" target="_blank">3家药厂出包 台食药署列严重违反GMP药商</a><br></h3><a href="https://github.com/sbzgrg371/djy/blob/master/gb/20/10/4/n12452177.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/0509_10-150x120.jpg" align ="left"></a>台湾食药署近日公告“严重违反GMP药商”，包含上个月需下架回收多样药品的杏辉公司和世达公司，及因原料药无菌模拟充填试验结果造假的博谦生技公司。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月04日 9:43 PM			</td></tr>
