@@ -492,6 +492,13 @@ David来自中国大陆北方城市，他说自己从幼儿园开始，再到小
 <tr><td width="742"><h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/2/n12448470.md#1" target="_blank">中共芯片业乱象：“四大天王”成企业高管？</a><br></h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/2/n12448470.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/GettyImages-1142487738-150x120.jpg" align ="left"></a>中共大撒钱发展半导体产业，在大陆各地新建芯片厂，但频频爆出丑闻。继武汉弘芯资金链断裂之后，最近有一家芯片企业被曝出“高管乌龙”，而这家企业与武汉弘芯存在着千丝万缕的关联。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 4:08 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/2/n12448669.md#1" target="_blank">促中共释放十二港人 英人权活动家罗杰斯携黄雨伞参与港人十一国殇日活动</a><br></h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/2/n12448669.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/c4caddaa4925e11ff1b4257ff09cf6b2-150x120.jpeg" align ="left"></a>一直将香港看成自由社会抗击极权主义战斗前沿的人权活动家本尼迪克特罗杰斯（Benedict Rogers），于昨日（10月1日）中秋节暨国殇日之际，携带黄色雨伞前往曼城参与了一场支持港人抗争的活动。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 4:02 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/2/n12446411.md#1" target="_blank">【最新疫情10.2】川普发推感谢各界关心支持</a><br></h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/2/n12446411.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/trump-150x120.jpg" align ="left"></a>亚马逊（Amazon）周四发布了有关中共病毒在其整个员工中传播的全面数据。首次披露今年有近20,000名员工（占总数的1.44％）感染了该病毒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月03日 3:38 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/5/n12453335.md#1" target="_blank">新州连续10天无社区传染 周一仅确诊1例</a><br></h3>周一（10月5日），新州仅确诊一个来自隔离酒店的中共病毒（武汉肺炎）感染病例。这意味着新州已经连续10天没有出现社区感染。
+
+但过去24小时内新州中共病毒检测仅有4,789人次。与上周日8,305人次的检测相比有很大下降。
+
+卫生部门表示，理想情况下，新州每天至少应该有8,000人接受检测。
+
+新州卫生厅的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 11:09 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/5/n12453308.md#1" target="_blank">冷锋来袭 悉尼气温?24小时内将降10度</a><br></h3>周一（10月5日），悉尼的最高温度超过30摄氏度，但如此高温天气，维持不了太久，受冷锋影响，周二气温将骤降10度，跌至大约20度。
 
 周一，悉尼市的最高气温为31度，彭里斯（Penrith）和利物浦（Liverpool）的最高温达到33度。但从周二开始，本周余下数日的天气将受较为凉爽、潮湿天气的影响，气温都将为20.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 11:02 AM			</td></tr>
