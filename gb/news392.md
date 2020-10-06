@@ -26,8 +26,12 @@
 
 他指出，“几十年来，中共的侵略性和非法行为，使美国人损失了数百万个工作岗位，数十亿美元的知识产权价值以及学术机构的独立性”；此外，“中共做了强制拘押民众、活摘器官、把民众.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 3:51 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/5/n12454032.md#1" target="_blank">田云：全球抗共声势涨 与中共切割事不宜迟</a><br></h3><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/5/n12454032.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/DSCF0824-600x400-1-150x120.jpg" align ="left"></a>连日来，党媒渲染“十一”的“喜庆”，然而，红旗与红歌难掩事实：中共陷入前所未有的大困局。当下，国内和国际形势都指向一件事：中共正在加速灭亡。这对中共党员以及“跟党走”的数千万人产生最直接的影响。
+
+听新闻：
+
+（听更多新闻请至“听纪元”平台）
 美国领军 全球抗共
-10月2日，美国公民及移民服务局（USCIS）发布政策通告，明文禁止共产党员及相关人员在美国获得永久.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 11:35 PM			</td></tr>
+10月2日，美国公民及移民服务局（USCIS.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 11:35 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/4/n12452900.md#1" target="_blank">龙驹：中共如被认定犯罪集团 将面临什么？</a><br></h3><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/4/n12452900.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/7f01ab3f4403c2fcbda717d477c1ae15-150x120.jpg" align ="left"></a>在中共攫取政权71周年之际，美国丢出一个重磅法案，要求认定中共是跨国性有组织犯罪集团！一旦被认定，美国和相关同盟国家就将面临一个拥有核武器的、世界上最大的犯罪集团，抵制或者消灭这个犯罪集团似乎并非易事，不过，美国正在按剧本一步步逼近中共。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 5:00 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/5/n12453027.md#1" target="_blank">钟原：习近平看见医院门口支持川普的华人吗？</a><br></h3><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/5/n12453027.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1228894805-150x120.jpg" align ="left"></a>川普住进里德军医院后，美国各地民众自发前来表示支持，大纪元进行了现场直播，采访了各族裔的人，也采访了来自纽约的华人。现场看到有人带着睡袋，对面还支起了凉棚，应该有人在此过夜，现场也有大批媒体。
 
