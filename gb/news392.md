@@ -7,7 +7,11 @@
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12456580.md#1" target="_blank">横河：国殇日海外抗共新联盟</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12456580.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/unnamed-1-150x120.jpg" align ="left"></a>十一国殇日，海外抗共活动规模空前，中共是如何通过内外四面树敌建立起海外抗共新联盟的，中共是如何用五星旗取代中华民国国旗而达到控制华人社区的，从旧金山开始的推动降五星旗有何意义。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 2:38 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12456048.md#1" target="_blank">杨威：川普展示强人精神 成功演绎竞选活动</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12456048.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1278689183-150x120.jpg" align ="left"></a>守候在里德医院门口的支持者们和媒体，亲眼见证了精神矍铄的川普离开医院的瞬间。医生团队提前举行了新闻发布会，公布了川普康复的细节和健康指标。
 
-当川普乘坐直升机返回白宫时，媒体再次见证，一个健康的川普真的回来了。川普团队迅速制作，并在川普推特上发布了两个视频，一个记录了川普在白宫亲身讲述如何战胜病毒的经过，另一个配乐.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 1:52 PM			</td></tr>
+听新闻：
+
+（听更多新闻请至“听纪元”平台）
+
+当川普乘坐直升机返回白宫时，媒体再次见证，一个健康的川普真的回来了。川普团队迅速制作，并在川普推特上发布了两个视频，一.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 1:52 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12456242.md#1" target="_blank">【瘟疫与中共】川普染疫警示人心</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12456242.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1228855104-150x120.jpg" align ="left"></a>美国大选进入倒计时，川普总统夫妇爆出感染中共病毒（COVID-19），消息一出震惊世界。在各国领袖纷纷表示慰问、人们为川普夫妇祈祷之际，唯独中共的五毛和小粉红在诅咒谩骂。这引起了人们更深一层的思考。
 
 中国问题研究学者、时政评论员凌晓辉表示，中共病毒击中川普夫妇，中共罪责难逃。他认为川普染疫也是在警示人们，提醒人们.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 12:34 PM			</td></tr>
