@@ -2,6 +2,7 @@
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459155.md#1" target="_blank">KEY、N与郑珍云退伍 公开军装照感谢粉丝等待</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459155.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/201007054922100707-320x200.jpg" align ="left"></a>（大纪元记者曾薇心编译报导）同样在去年3月4日入伍的韩国人气男团SHINee成员Key（金起范）、VIXX队长N（车学沇）以及2AM成员郑珍云，今日（7日）也在同一天迎来了兵役期结束，正式退伍。三人各自透过不同管道，向等待他们退伍的粉丝表达感谢。
  
 KEY今日于个人官方IG上传了自己身穿军装、双手捧着祝贺他退伍的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 7:26 PM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459404.md#1" target="_blank">Eftpos商户费上涨 企业刷卡交易成本增加</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459404.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-89646861-1-150x120.jpg" align ="left"></a>处理全新西兰75%电子卡交易的Paymark已将每月电子转账终端的使用费，即Eftpos商户费从每月14纽元涨到每月18纽元，上涨超过28%。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 7:49 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459418.md#1" target="_blank">涉嫌严重逃税 德国足协遭大搜查</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459418.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1139899084-150x120.jpg" align ="left"></a>因怀疑德国足协蓄意谎报在国际比赛中的外围广告收入，造成几百万欧元的逃税行为，德国检察院对德国足协展开大搜查，主要对象是六名前任及现任负责人，但警方未公布具体人名。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 7:38 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459390.md#1" target="_blank">2020台南看焰火 停车接驳顺畅走</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459390.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/a8047ab5f1e64eb24494c8eaaf464548-150x120.jpg" align ="left"></a>今年国庆焰火将在台南渔光岛施放，为服务使用双铁运输的民众，南市府将准备140部免费接驳车，分别从高铁台南站、台铁台南火车站以2～4分钟发一班车的方式接驳至恋爱广场主会场附近，最为便利。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 7:37 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459362.md#1" target="_blank">元培携手观光业者 期突破疫情冲击寻找新契机</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459362.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/ddb8ceefb19357b19debb8af5040a712-150x120.jpeg" align ="left"></a>疫情冲击加上边境管制，在无法出国的情况下，国内旅游及“伪出国”成为国人最夯的选择。元培医事科技大学7日举办观光休闲产学联盟发表会，以“COVID-19后疫休闲旅游新思维”为主题，携手休闲产业、旅宿产业及相关产业发展之协、学会，共同发表结盟之声明，期望能在后疫情时期寻找国内观光休闲产业营运新契机。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 7:15 PM			</td></tr>
@@ -805,12 +806,16 @@ CDC再次更新指南 病毒可通过空气传播
 
 此前，维州政府已宣布小学生和参加维州高.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 11:55 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/3/n12449543.md#1" target="_blank">在家煮“栗子巧克力奶茶” 乳糖不耐也可以喝！</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/3/n12449543.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/caafa91f98d83eb1209b0f5b6f479810-150x120.jpg" align ="left"></a>秋天是栗子盛产的季节，圆滚滚的栗子在小石头内翻炒，或是在炭火上烧烤得啪哒作响，这都是很多人的美味记忆。这一道手作栗子奶茶，让我们在奶茶香中感受淡淡的甜栗味，品尝出金秋的迷人气息。假如你不能喝牛奶，那么这次准备的杏仁栗子奶茶也很适合你！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 11:53 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/5/n12453338.md#1" target="_blank">【翻墙必看】华人挺川普 分析：习体会尴尬</a><br></h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/5/n12453338.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/6ba1fa4749047afa0d3edbbe49f527ce-150x120.png" align ="left"></a>大纪元每天为读者梳理翻墙必看的文章：
-
-1.张慧东：川普染疫成中共最大梦魇
-美国总统川普和第一夫人不幸确诊新冠（中共病毒、武汉肺炎），美国民众和国际社会各界对川普的康复成为关注的中心，同时强化了人们对武汉肺炎疫情的关注，对中共而言，最大的梦魇就是由此美国及世界各国可能会推动对中共的疫情追责。
-
-2.王赫：习近.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月05日 11:45 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459437.md#1" target="_blank">千瑞：退出中共须从灵魂深处开始</a><br></h3>退出中共不只是一句口号：
+退出中共是灵魂的一次洗礼，
+退出中共，须从灵魂开始——
+自灵魂深处，决裂中共，退出中共！
+共产思潮喊着建人间天堂的口号，
+对人类灵魂进行了野蛮的蹂躏摧残。
+共产主义打着解放全人类的大旗，
+引诱着人类走进了魔鬼设定的梦魇。
+人，最大的迷失是灵魂的迷失。
+人，最惨的堕落是灵魂的堕.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 7:49 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459056.md#1" target="_blank">甘肃两县禁止公务员下班后饮酒 网民热议</a><br></h3>大陆多个省市早前公布禁酒令，限制公务员饮酒。甘肃省庆阳市庆城县、环县则发最严禁酒令，要求公务员下班也不能饮酒。网民对此议论纷纷。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 7:22 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459360.md#1" target="_blank">堪京主要政党各许新承诺 方案各异投资相当</a><br></h3>10月3日，首都行政区（ACT）工党、自由党和绿党宣布了各自的场馆建设或维修计划，虽然具体方案不相同，但投入资金都超过2千万澳元。
 
