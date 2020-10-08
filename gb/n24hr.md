@@ -786,27 +786,9 @@ KEY今日于个人官方IG上传了自己身穿军装、双手捧着祝贺他退
 
 内蒙古优然牧业有限责任公司将以5.13.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:47 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12454834.md#1" target="_blank">【重播】川普乘飞机回白宫 川粉高呼挺川普</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12454834.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1278687698-150x120.jpg" align ="left"></a>周一（5日）下午15:00，川普总统的医生康利（Sean Conley）博士举行新闻发布会。新唐人、大纪元联合对此进行直播（中文同声翻译）。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:46 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/3/n12450596.md#1" target="_blank">【最新疫情10.5】川普已经回到白宫</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/3/n12450596.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/000_8RH24B-150x120.jpg" align ="left"></a>10月5日全球中共病毒（武汉肺炎）疫情最新情况：
+<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/8/n12461584.md#1" target="_blank">法轮功学员车队传播真相 民众签名支持</a><br></h3>十月三日，西雅图部分法轮功学员举行了真相车队巡游和横幅展示及征签活动，向当地民众传递真相，得到当地民众的支持和积极响应。
 
-中共肺炎全球疫情及美国疫情大数据请点击这里。
-要点：
-川普总统回到白宫
-川普打算参加下一场总统大选辩论
-医生：总统可以安全返回白宫
-川普发推：今晚6:30出院
-CDC再次更新指南 病毒可通过空气传播
-伊万卡与库什纳今天早上测试阴性
-白宫新闻秘书测试.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:40 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455743.md#1" target="_blank">下周末开始 悉尼岩石区将开放户外餐饮</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455743.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/20201006-Chi-Jin-The-Rocks-1216079647-150x120.jpg" align ="left"></a>从下周末起，悉尼港热门旅游点岩石（The Rocks）区将开放户外用餐，20个餐饮场所将能在户外接待顾客。这是新州政府在防疫期间促进商家繁荣计划的一部分。
-
-从10月16日开始，悉尼的标志性旅游点之一岩石区将被允许扩展更多的公共室外空间，成为新州政府“户外工作组”实施试点改革的第一个受益的地区。届时，悉尼人将可以那.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:33 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455713.md#1" target="_blank">疫情至数千园艺岗位空缺 新西兰人能填补吗？</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455713.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-132949452-1-150x120.jpg" align ="left"></a>由于边境因中共病毒疫情已关闭数月，大量注册季节性雇主(Registered Seasonal Employers，简称RSE)计划招收的工人被拒之门外，新西兰的园艺业正在面临数千个工作岗位空缺的问题。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:32 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455485.md#1" target="_blank">王友群：无数人为川普祈祷 川普定能再创奇迹</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455485.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/000_8RH24B-600x400-1-150x120.jpg" align ="left"></a>10月5日晚7点左右，美国总统川普已经离开医院，返回白宫，并录制一段视频，在推特上发布。他说：“我站在最前线。我在带领大家。没有一个领导者会做我做的。我知道，有风险，有危险；但是，没关系。现在我感觉比以前更好，也许我获得免疫了？我不知道。但不要让它（病毒）主宰您的生活。”
-
-10月2日凌晨0点54分，川普在推特上宣.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:23 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455808.md#1" target="_blank">英超爆大冷 卫冕冠军被灌七球 埃弗顿登顶</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455808.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/20201006-Chi-Jin-Adrian-1228895939-150x120.jpg" align ="left"></a>上周末，英超联赛第4轮，卫冕冠军利物浦客场爆冷2：7惨败给了阿斯顿维拉；热刺则在客场6：1大胜曼联；曼城在客场被“升班马”利兹联1：1逼平，传控数据全面落后；切尔西主场4：0大胜水晶宫；阿森纳在主场2：1战胜了谢菲尔德联；埃弗顿主场4：2大胜布莱顿后，取得开局四连胜，登上积分榜首位。
-卫冕冠军爆大冷被灌七球
-利物浦.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:22 AM			</td></tr>
+法轮功学员的车队在车顶安装了各种标语牌，例如：“远离中共、远离病毒”、“停止迫害法轮功”、“中共撒谎、人民死亡”、“法轮大法洪传一百多个国家”、“中共是最邪恶的病毒”、“中共不等于中国”、“制.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月08日 3:40 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/8/n12461528.md#1" target="_blank">【翻墙必看】中共军机扰台被驱离</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
 1 .?中共军机被驱离罕见喊话 专家：欲把台海内海化
