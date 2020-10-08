@@ -806,11 +806,12 @@ CDC再次更新指南 病毒可通过空气传播
 卫冕冠军爆大冷被灌七球
 利物浦.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:22 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455635.md#1" target="_blank">杨建利：我申请入籍美国的故事</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455635.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/tu8_DSC1841-600x400-150x120.jpg" align ="left"></a>我申请入籍美国被拒的事情最近几天在网络上热炒，引起朋友的关切也引发了许多极不靠谱的猜测。恰巧前天美国公民及移民服务局（USCIS）发布了禁止共产党员移民美国的政策指南，其援引的法律与我申请入籍美国的案子有关，正好借这个机会讲讲我的经历，回答网上的疑问和朋友的关切。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:19 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455404.md#1" target="_blank">沈舟：中共真敢趁川普染病开战吗？</a><br></h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455404.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/50399612617_b94e5e0270_o-600x400-1-150x120.jpg" align ="left"></a>之前有美国退休军官提醒，中共可能趁美国大选之际，对台湾动武，从军事角度来说，好像是一个相对好的时机。川普中招入院后，可能性似乎更大了。
+<tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/8/n12461528.md#1" target="_blank">【翻墙必看】中共军机扰台被驱离</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
-中共军队喉舌也在凑热闹。10月5日，还在长假期间，中共军网却连续发出5篇军事报导，4篇关于火箭军，1篇关于海军陆战队。其中一篇火箭军的新闻图片上写着：我们时刻准备着。
+1 .?中共军机被驱离罕见喊话 专家：欲把台海内海化
+中共军机今年扰台次数达1700余架次，其中越过海峡中线区49架次，创30年来最高。10月7日，中共军机再次闯入台湾防空识别区，但被驱离时，中方回应时罕见称“台湾地区”。专家指，中共企图把台海“内海化”。
 
-中共.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月06日 7:02 AM			</td></tr>
+2. 【远.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月08日 2:56 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/8/n12461577.md#1" target="_blank">华州放宽更多活动限制</a><br></h3>周二（10月6日），华州州长杰伊·英斯利（Jay Inslee）宣布放宽对更多商业和社会活动的限制，包括餐馆、 电影院和运动休闲活动等。
 
 已经进入第二和第三阶段的郡，酒吧的酒水供应时间可以延长到晚上11点；每张餐桌的就餐人数上限分别提高到6人（第二阶段）和8人（第三阶段）；并且取消了一张餐桌只允许一家人用餐的限制.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月08日 2:46 PM			</td></tr>
