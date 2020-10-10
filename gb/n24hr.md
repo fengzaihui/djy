@@ -651,6 +651,19 @@
 
 这14个对中国持负面看法的国家及被访者比例依次为：日本（86%）、瑞典（85%）、澳洲（81%）、丹麦（75%）、韩国（75%）、英国（74%）、美国（73%）、加拿大（73%）、荷兰.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月08日 12:26 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/7/n12459977.md#1" target="_blank">癌症是糖类病？避开“黄金3恶”不让癌上身</a><br></h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/7/n12459977.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/shutterstock_636204392-150x120.jpg" align ="left"></a>在日本，约两人中有一人可能罹患癌症，三人中有一人可能死于癌症。癌症也属于“糖类病”。其中被称为“糖类病”的是生活习惯病型的癌症，包括因饮食生活、肥胖、抽烟、喝酒等背景造成的肺癌、大肠癌、乳癌、胰脏癌、肾脏癌、食道癌、子宫颈癌、胆囊癌等。高血糖会加强氧化逆境......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月08日 12:18 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/7/n12459873.md#1" target="_blank">【有冇搞错】面对九大威胁 美国将对中共更强硬</a><br></h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/7/n12459873.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/WhatsApp-Image-2020-10-07-at-7.27.04-AM-150x120.jpeg" align ="left"></a>美国土安全部报告，提出来自中共九大威胁。报告针对社会公众，目标是为下届总统更强硬对中共政策做舆论铺垫和准备。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 11:59 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/6/n12458257.md#1" target="_blank">【最新疫情10.7】川普重返椭圆形办公室</a><br></h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/6/n12458257.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/GettyImages-1228460140-600x400-1-1-150x120.jpg" align ="left"></a>10月7日全球中共病毒（武汉肺炎）疫情最新情况：
+
+中共肺炎全球疫情及美国疫情大数据请点击这里。
+要点：
+川普总统重返椭圆形办公室
+美司法部长巴尔测试阴性
+联合国难民事务高级专员染疫
+医生：川普体内测试抗体 感觉“很棒！”
+美国高级军事人员仍在隔离中
+白宫为川普返回椭圆形办公室做准备
+白宫幕僚长：川.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 11:57 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/7/n12459607.md#1" target="_blank">世界十大稀有花之一 散发巧克力香的红绒花</a><br></h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/7/n12459607.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/Chocolate-Cosmos-Flowers-1200x686-150x120.jpg" align ="left"></a>对喜爱巧克力的民众而言，或许可在自家花圃种上一种名叫“巧克力波斯菊”的花朵。它所散发出的诱人巧克力香，以及大片红褐色、丝绒般的花瓣，在嗅觉和视觉上都是一番享受。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月07日 11:55 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12465873.md#1" target="_blank">圣文森特医院护士发现传染期在工作</a><br></h3>一名在悉尼圣文森特医院（St Vincent's Hospital）工作的护士确诊感染了中共病毒（武汉肺炎）。这名护士是临时工，本周三（7日）在圣文森特医院值班。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月10日 7:37 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12465871.md#1" target="_blank">驻奥克兰台北办事处制作国庆影片 线上庆祝双十</a><br></h3>驻奥克兰台北经济文化办事处办事处因应新西兰当地防疫措施，今年停办国庆酒会，改制作国庆影片线上庆祝双十，多位国会议员及地方政要亲自录制祝贺影片。纽国政要一致肯定台湾防疫成功，成为各国学习称羡对象。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月10日 7:30 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12465861.md#1" target="_blank">侨委会华语文研习班开始报名</a><br></h3>2020 年侨委会华语文研习班第3至第6梯次-远距视讯教学，开始报名。名额有限，意者请速!!!（免费）。(1)活动期间:本研习班共分4梯次办理，各梯办理期间如下（台湾时间）：
