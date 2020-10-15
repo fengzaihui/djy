@@ -14,7 +14,7 @@
 <tr><td width="742"><h3><a href="https://github.com/lidcsl3968/djy/blob/master/gb/20/10/14/n12476073.md#1" target="_blank">钟原：习仲勋特区寻出路 习近平已无路</a><br></h3><a href="https://github.com/lidcsl3968/djy/blob/master/gb/20/10/14/n12476073.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229058108-150x120.jpg" align ="left"></a>10月14日，在深圳特区40周年庆典上，习近平发表了自相矛盾的讲话。他一方面称坚持改革开放，另一方面又要内循环；一方面称坚持港澳“一国两制”，另一方面又要建设深港澳社会主义；一方面自称顶层设计，另一方面又要继续摸石头过河……
 
 42年前，习近平的父亲习仲勋，在广东当政，他看到中共的社会主义已经走到了尽头，于是想藉香.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月15日 8:43 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/lidcsl3968/djy/blob/master/gb/20/10/14/n12476168.md#1" target="_blank">王友群：习近平“南巡”可推进“改革开放”？</a><br></h3><a href="https://github.com/lidcsl3968/djy/blob/master/gb/20/10/14/n12476168.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/80f597d84ae0b1cc7d0b0a8efd318635-600x400-1-150x120.png" align ="left"></a>10月12日，中共五中全会召开前夕，习近平开始了他上台以来的第三次“南巡”。10月14日，习在深圳特区成立40周年大会上发表讲话，称中共将“在更高起点上推进改革开放”。
+<tr><td width="742"><h3><a href="https://github.com/lidcsl3968/djy/blob/master/gb/20/10/14/n12476168.md#1" target="_blank">王友群：习近平“南巡”可推进“改革开放”吗</a><br></h3><a href="https://github.com/lidcsl3968/djy/blob/master/gb/20/10/14/n12476168.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/80f597d84ae0b1cc7d0b0a8efd318635-600x400-1-150x120.png" align ="left"></a>10月12日，中共五中全会召开前夕，习近平开始了他上台以来的第三次“南巡”。10月14日，习在深圳特区成立40周年大会上发表讲话，称中共将“在更高起点上推进改革开放”。
 
 习此次“南巡”果真能推进中共的“改革开放”吗？我认为，根本不可能。
 
