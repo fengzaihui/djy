@@ -464,9 +464,6 @@ Deloitte将关闭英国4个办事处
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/15/n12478813.md#1" target="_blank">大华府房屋市场9月创下新高纪录</a><br></h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/15/n12478813.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-460917440-150x120.jpg" align ="left"></a>华盛顿地区的住房市场竞争异常激烈：卖家获得的报价创下历史新高，上个月价格达到9月份的高位。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 1:13 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12480565.md#1" target="_blank">约会网站立功 丧偶孤独水獭成功找到新伴侣</a><br></h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12480565.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/Harris-otter-love-4-1200x810-150x120.jpg" align ="left"></a>在英国康沃尔海豹保护区有一只名叫哈里斯（Harris）的水獭，因为失去了相伴四年的伴侣，它变得郁郁寡欢。保护区的工作人员为孤独的哈里斯创建了一个专属于它自己的约会网站，成功帮助它找到了新的伴侣。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 1:13 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481414.md#1" target="_blank">详解英国政府新的保护就业项目</a><br></h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481414.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1228976337-150x120.jpg" align ="left"></a>英国政府公布新的防疫措施后，为了帮助受到新的措施影响的商家，政府推出了新的保护就业的项目，政府将和商家共同承担雇员的薪水。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:52 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481199.md#1" target="_blank">深圳市“指导”市民储备应急物资 引猜测</a><br></h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481199.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1074004154-150x120.jpg" align ="left"></a>深圳市应急管理局10月14日发通知，称“指导市民应对灾害”，同时发布《深圳市家庭应急物资储备建议清单》，引发关注。14日正值深圳特区大会召开之日，另外两天前习近平在广东潮汕对当地士兵喊话。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:27 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481355.md#1" target="_blank">蓬佩奥要求美教育机构年底前关闭孔子学院</a><br></h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481355.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/1806110826482525-150x120.jpg" align ="left"></a>美国国务卿蓬佩奥周四（10月15日）表示，他正在要求美国高中、大学和K-12教育机构在年底前关闭孔子学院。蓬佩奥说，孔子学院实则是中共的宣传组织，它在美国的运作使得中共影响力能够在美国校园内实际存在。它必须被关掉。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:25 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481341.md#1" target="_blank">闯入川普镜头点赞 前选美冠军意外成网红</a><br></h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481341.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229095022-150x120.jpg" align ="left"></a>周四（10月15日）川普总统参加NBC在迈阿密举办的市民大会时，一位坐在总统后面的女子几次被摄像机录入，跟川普“同时出镜”，她对川普的发言频频点头，还竖起大拇指点赞，这个视频在社交媒体上广为流传。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:13 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/18/n12485254.md#1" target="_blank">阿市中央商务区消费增加 人流升至疫后最高水平</a><br></h3>阿德莱德中央商务区的消费正在增加，商界领袖对商业活动稳步恢复表示欢迎。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月19日 7:54 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/18/n12485191.md#1" target="_blank">南澳部分建筑商已停签新合同</a><br></h3>联邦住房刺激计划的推动力巨大，建筑行业面对激增的需求应接不暇。一些南澳的建筑商已经停止与客户签订合同，原因是担心缺乏足够的技术工人来确保质量。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月19日 7:12 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/18/n12485195.md#1" target="_blank">近日特赦的新闻！</a><br></h3>笔者的文章常常解释办理移民不单要留意移民法还要注意政策方向。三年前笔者其中一篇文章介绍有关特赦逾期人士的可能性，内容是；1976年和1980年政府推出大赦非法移民行动，在1976年度只有8,000逾期人士提出永居申请，令政府感到惊奇。因为根据统计非法移民比申请人多出不少，原因是当时很多非法移民对政府的大赦行为有所怀疑.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月19日 7:10 AM			</td></tr>
@@ -578,9 +575,7 @@ Deloitte将关闭英国4个办事处
 169,308
 9
 8,.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月18日 12:44 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/18/n12483897.md#1" target="_blank">减灾烧荒失控 悉尼曼丽区200人紧急撤离</a><br></h3>周六下午，悉尼曼丽（Manley）北角（North Head）地区进行的减灾烧荒行动失控，导致大约200人被紧急疏散。
-
-据每日电讯报报导，烧荒的火苗在东北强风的推进下突破了封锁线，向南蔓延到了悉尼景点隔离站（Quarantine Station）和Q Station酒店，导致人们开始紧急撤离，包括一个婚礼现场的所.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月18日 12:43 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/18/n12483897.md#1" target="_blank">减灾烧荒失控 悉尼曼丽区200人紧急撤离</a><br></h3>周六下午，悉尼曼丽（Manley）北角（North Head）地区进行的减灾烧荒行动失控，导致大约200人被紧急疏散。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月18日 12:43 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/15/n12479252.md#1" target="_blank">瘟疫导致公立学校学生减少</a><br></h3>由于家长对学校的网上上课感到无聊和不满，大批父母说，他们准备把孩子从公立学校中退出来，采用家庭教育或送私立学校。
 
 根据WHYY电台向费城地区的数十所公立学校负责人的调查，收集到了来自41个地区学校的回复。数据表明，今年秋天绝大多数学生重新进入了传统的公立学校，但幼儿园的学生大幅减少。
@@ -702,25 +697,4 @@ Deloitte将关闭英国4个办事处
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481489.md#1" target="_blank">新英格兰一周新闻简讯（10/16/2020）</a><br></h3>马桶漏水 Natick房主付1.5万水费......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 1:35 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481482.md#1" target="_blank">【新英格兰社区公告栏】（10/16/2020）</a><br></h3>亚美电影节(10/21-25)......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 1:33 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481438.md#1" target="_blank">趣味英语 ：The elephant in the room 房间里的大象</a><br></h3>房间里有一头大象，你不可能看不见，因为即使是一头小像，出生的时候体重也有100公斤。那么你怎么可能看不见？所以，如果你不提房间里的大象，那就是在装作不知道。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:54 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481384.md#1" target="_blank">五律：远游</a><br></h3>深山洗新雨， 天气正中秋。 枫叶红光映， 松枝翠影遒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:25 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/15/n12478762.md#1" target="_blank">七律：独处</a><br></h3> 窗外晨曦照柳塘，秋波如镜映秋光。 慢摇皓首吟兰淡，轻拂茶烟品茗香。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:12 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kdoobq3732/djy/blob/master/gb/20/10/16/n12481383.md#1" target="_blank">二行诗 三帖</a><br></h3>
-＊往事
-
-岁月停下脚步
-过往云烟飞掠而来
- 
-
-＊向日葵
-
-清晨来临
-它总是第一个获得阳光拥吻
- 
-
-＊寄居蟹
-
-波浪如舌喋喋不休
-寄居蟹抱怨房屋一间哪足够@
-
-责任编辑：林芳宇......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月17日 12:12 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/kdoobq3732/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/kdoobq3732/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kdoobq3732/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/kdoobq3732/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
