@@ -38,16 +38,9 @@
 江泽民、曾庆红、孟建柱出手了？
 在10月14日拜登“硬盘门”由《纽约邮报》曝光前，美国有自媒体爆料说，江泽民、曾庆红、孟建柱出手了，将三个硬盘交给了美国总统川普和美国司法部，硬.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月20日 11:54 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/wjprhd3339/djy/blob/master/gb/20/10/20/n12487896.md#1" target="_blank">【网海拾贝】中共的拜登总统梦碎了</a><br></h3><a href="https://github.com/wjprhd3339/djy/blob/master/gb/20/10/20/n12487896.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229157781-150x120.jpg" align ="left"></a>专家最新预测选举人票：川普 333；拜登198。完胜拜登！17日，福克斯电视台获得亨特邮件相关当事人之一证实，《纽约邮报》披露的有关亨特、拜登与中国华信的交易的信件是真实的。川普总统：亨特·拜登的电脑对整个拜登家族是个灾难，特别对他父亲乔。现在，所有信息都是真的，这是一个被证实的事实，无法被否认。这让“50%或10%”.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月20日 10:23 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/wjprhd3339/djy/blob/master/gb/20/10/22/n12493391.md#1" target="_blank">乾坤子：武歌</a><br></h3>直尔矛兮立尔戈
-彼无道兮害中国
-烽火依兮故垒烁
-牧野往兮前有辙
-民生天启兮本无忧
-妖丑逆天兮招祸尤
-以骗立国兮曰共产
-残民以逞兮旗血流
-迫害正信兮趋邪路
-一意孤行兮祸自求......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 2:48 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/wjprhd3339/djy/blob/master/gb/20/10/20/n12487855.md#1" target="_blank">袁斌：钟南山就是“终南捷径”的正宗传人</a><br></h3><a href="https://github.com/wjprhd3339/djy/blob/master/gb/20/10/20/n12487855.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/03/GettyImages-1194991809-150x120.jpg" align ="left"></a>说起钟南山，在今天的中国可谓妇孺皆知。
+
+一开始，许多人以为他是一个有担当有良知的名医，后来又以为他是一个敢言敢医的中医，再后来，才知道他原来是一个带货且会忽悠的演员！无怪乎有网友称其为“带货一哥”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月20日 9:58 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/wjprhd3339/djy/blob/master/gb/20/10/21/n12491130.md#1" target="_blank">清芷：从你死我活到家庭和睦之路</a><br></h3>古人云：家和万事兴。父之笃，兄弟睦，夫妻和，家之肥也。从古至今，家庭和睦，都是一个家兴旺发达的根本。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月21日 5:06 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/wjprhd3339/djy/blob/master/gb/20/10/21/n12491121.md#1" target="_blank">李春草：摸着石头过河</a><br></h3>红楼暮气添百愁，朝中无人摸石渡；
 更无鹍鹏扶摇起，惟有鸱鸮嗜腐肉；
