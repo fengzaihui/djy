@@ -793,6 +793,13 @@ CDC推出手机监视程序 观察疫苗接种者健康
 
 究竟是什么广告内容“损害国家尊严或利益，泄露国家秘密”了呢？公告中却并无详细说明。陆媒报导称官方后解释为.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月21日 3:36 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/hwgctr307/djy/blob/master/gb/20/10/19/n12485326.md#1" target="_blank">加拿大学者：中共战略野心和对全球威胁（二）</a><br></h3><a href="https://github.com/hwgctr307/djy/blob/master/gb/20/10/19/n12485326.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/04/MichealCole-150x120.jpg" align ="left"></a>近日，加拿大智库MLI（Macdonald-Laurier Institute）中国问题专家寇谧将（J. Michael Cole）撰文阐述，习近平时代中共的战略野心和对全球秩序的威胁。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月21日 3:32 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/hwgctr307/djy/blob/master/gb/20/10/23/n12495829.md#1" target="_blank">圣地亚哥联合学区公布重开计划</a><br></h3>加州圣地亚哥市的圣地亚哥联合学区近日对学区进一步重新开放的细节进行了更新，拟定了校园重开的四个阶段及每阶段各年级学生的返校安排。
+
+圣地亚哥联合学区（San Diego Unified School District）自10月13日进入第一阶段校园重开，允许小学教师返回校园，为有需求的学生提供面对面授课，但要求必须.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 11:30 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/hwgctr307/djy/blob/master/gb/20/10/23/n12495773.md#1" target="_blank">西悉尼将安大型电池 新州用户或受益逾亿元</a><br></h3>随着可再生能源在电力市场所占份额的增长，为稳定电网和增强供电，政府正与工业界合作，将在西悉尼安装一个由特斯拉公司（Tesla）制造、价值6200万澳元的大型锂离子电池。该电池可能会为新州电力用户带来1.35亿元的好处。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 11:28 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/hwgctr307/djy/blob/master/gb/20/10/23/n12495842.md#1" target="_blank">达拉斯地区六城市获评首次购房最佳地</a><br></h3>2020年的一大亮点是房地产市场。由于利率处于历史低位水平，人们也在考虑购买新房。对于许多人来说，这也是他们人生首次购房。
+
+位于纽约的个人理财咨询技术公司SmartAsset最近发布了2020年最适合首次购房者的城市，达拉斯-沃斯堡地区有6个城市进入了全美前40城市名单。该排名是SmartAsset根据全美185.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 11:24 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/hwgctr307/djy/blob/master/gb/20/10/23/n12495815.md#1" target="_blank">弗里斯科获评全美增长最快城市第六名</a><br></h3>达拉斯北郊的弗里斯科（Frisco）市一直保持着前进的步伐。一项最新排名将其评为全美增长最快的城市第六名。
 
 该排名是由WalletHub个人理财网站于10月12日发布的。它调查了美国515个城市的7年增长数据，比较了各城市的17个指标，包括人口增长，经济增长和就业增长等。
