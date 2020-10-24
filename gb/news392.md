@@ -32,9 +32,15 @@ AGM-84H是一款空射型对地攻击导弹增程.........<br><img align="bottom
 
 此次习南巡前，面对两大压力：一是国外的压力，中美关系恶化到建交41年最严重的程度；二是国内的压力，不少人怀念邓小平开启的“改革.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 8:57 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12495101.md#1" target="_blank">十问青岛：如何在五天完成千万核酸检测</a><br></h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12495101.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229036964-150x120.jpg" align ="left"></a>新冠病毒（中共病毒）检测是关系到每个人生命健康的大事。任何一份实验室报告都可能关系到一个人是否确诊或漏诊、关系到与他接触到的人们生命安全的大事，丝毫含糊不得的。如果本来含病毒的应该检测为阳性的标本、由于误检、误报等等原因，被报告为阴性，造成“病毒携带者”继续走动和传播病毒，检测单位都要承担一定责任的。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 8:15 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12495040.md#1" target="_blank">觅真：重阳节话老人们的悲惨遭遇</a><br></h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12495040.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/2020-1-21-mh-persecution-aged-f-150x120.jpg" align ="left"></a>中共迫害法轮功已经二十一年，魔难中的法轮功学员及家人们也含泪度过了二十一个重阳节，在此笔者仅举几个明慧网近期报道的法轮功学员老人们的悲惨遭遇，看看在中共极权下老人们所经历的千古奇冤！
+<tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/24/n12498837.md#1" target="_blank">郑法途：叹“一尊”</a><br></h3>遥视元老习仲勋，近看新魁习近平。
+求生虽有尘缘系，保党岂能天意成。
+子承父荫上高位，情系龙袍坐帝京。
+一副好牌成烂牌，只因初心伴邪灵。
 
-案例1：河北省唐山市丰润区三十多名法轮功学员于二零二零年六月十八日突然遭公安局及辖区各派出所非法抓捕，68岁的法轮功学员韩玉芹当天.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 7:51 AM			</td></tr>
+美中正邪战事频，十方抗共烈火焚。
+战狼外交陷孤岛，独裁内政困深坑。
+四面楚歌报天谴，五个“绝不”露惊魂。
+莫非执意与神赌，要做红魔陪葬人？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月24日 6:39 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/24/n12498829.md#1" target="_blank">伍新：美国大选末场辩论疫情问题的启示</a><br></h3>大选末辩疫问题，
 责任惜尚欠明晰。
 拜登要川普全负，
