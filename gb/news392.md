@@ -31,7 +31,7 @@ AGM-84H是一款空射型对地攻击导弹增程.........<br><img align="bottom
 10月12日，习现身广东，开始他上台以来的第三次南巡。
 
 此次习南巡前，面对两大压力：一是国外的压力，中美关系恶化到建交41年最严重的程度；二是国内的压力，不少人怀念邓小平开启的“改革.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 8:57 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12495101.md#1" target="_blank">十问青岛：如何在五天完成千万核酸检测</a><br></h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12495101.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229036964-150x120.jpg" align ="left"></a>新冠病毒（中共病毒）检测是关系到每个人生命健康的大事。任何一份实验室报告都可能关系到一个人是否确诊或漏诊、关系到与他接触到的人们生命安全的大事，丝毫含糊不得的。如果本来含病毒的应该检测为阳性的标本、由于误检、误报等等原因，被报告为阴性，造成“病毒携带者”继续走动和传播病毒，检测单位都要承担一定责任的。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 8:15 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/24/n12498930.md#1" target="_blank">陆言：一段被中共掩盖的卸磨杀驴的悲惨历史</a><br></h3>在历史上，中共卸磨杀驴的事例数不过来，人们耳熟能详的也有许多了。典型的事例至少包括：中共为了自己的生存和壮大曾两次和国民党合作，都以其暗中破坏以图独享政权而终止；......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月24日 7:30 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/24/n12498837.md#1" target="_blank">郑法途：叹“一尊”</a><br></h3>遥视元老习仲勋，近看新魁习近平。
 求生虽有尘缘系，保党岂能天意成。
 子承父荫上高位，情系龙袍坐帝京。
