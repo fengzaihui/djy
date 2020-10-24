@@ -36,7 +36,14 @@ AGM-84H是一款空射型对地攻击导弹增程.........<br><img align="bottom
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494985.md#1" target="_blank">张慧东：川普连任在望 升级对抗中共</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494985.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/TrumpBiden-1200x720-150x120.jpg" align ="left"></a>距离美国总统大选不到两周之际，民主党总统候选人乔·拜登（Joe Biden）与他儿子亨特（Hunter Biden）卷入“电邮门”腐败丑闻风暴，虽然美国左派媒体选择不报导方式来冷处理，但是，10月21日，《华尔街日报》发表社论，拜登有义务说明他儿子兜售影响力以及个人财务往来的问题，以及他自己与中国可能存在的金钱交易问题.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 4:24 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494904.md#1" target="_blank">觅真：在中国为什么做好人这样难？!</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494904.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/05/1905181951021973-150x120.jpg" align ="left"></a>近日明慧网报道了这样一条消息，河南省禹州市公安局工业园区派出所民警查卓琳，2020年8月19日收到了禹州市公安局的一份《辞退公务员通知书》，原因是查卓琳坚持修炼法轮功、按照“真、善、忍”做好人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 3:11 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494668.md#1" target="_blank">任世豪：四千万人染疫的启示</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494668.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/78768a72236dd4c2a4af793695ccfa14-600x400-150x120.png" align ="left"></a>今年以来，“武汉肺炎”（中共病毒，COVID-19）肆虐全球，已逾四千一百万人感染确诊，造成一百一十万人死亡。目前疫情仍然持续蔓延，不仅重创经济，基本生活也受到影响，短期内似无趋缓的迹象。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 2:38 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494715.md#1" target="_blank">【有冇搞错】中共为何力挺拜登？</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494715.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/WhatsApp-Image-2020-10-22-at-8.17.29-AM-150x120.jpeg" align ="left"></a>拜登对中共的态度，过去几十年一直在变，却和他家族与中共商业关系密切相关。中共各大媒体力挺拜登，不自觉透露的其中奥妙。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 11:59 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/24/n12498772.md#1" target="_blank">吴新：一剑似为东风欠</a><br></h3>绵阳老井冒汽烟，
+地震预兆有经验。
+中共砖家忙辟谣，
+只是天象砸不烂。
+一周后忽震连连，
+引人联想古预言。
+王至民间地水热，
+兆示动乱生兵变。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月24日 3:39 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/24/n12498721.md#1" target="_blank">郑纯清：听惯了的贼船艄公号子</a><br></h3>“装你口袋绝不掏”，
 农业部长打包票。
 语气似壮言似豪，
