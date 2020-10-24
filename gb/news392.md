@@ -35,7 +35,14 @@ AGM-84H是一款空射型对地攻击导弹增程.........<br><img align="bottom
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12495040.md#1" target="_blank">觅真：重阳节话老人们的悲惨遭遇</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12495040.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/2020-1-21-mh-persecution-aged-f-150x120.jpg" align ="left"></a>中共迫害法轮功已经二十一年，魔难中的法轮功学员及家人们也含泪度过了二十一个重阳节，在此笔者仅举几个明慧网近期报道的法轮功学员老人们的悲惨遭遇，看看在中共极权下老人们所经历的千古奇冤！
 
 案例1：河北省唐山市丰润区三十多名法轮功学员于二零二零年六月十八日突然遭公安局及辖区各派出所非法抓捕，68岁的法轮功学员韩玉芹当天.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 7:51 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/21/n12491616.md#1" target="_blank">【名家专栏】捍卫美国利益 川普阐明选举意义</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/21/n12491616.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/Trump_MI-1229134270-150x120.jpg" align ="left"></a>唐纳德?川普比我能想到的任何一位总统都更加清楚什么是文化战争——本质上讲就是马克思主义对美国生活制度的攻击。他了解这次袭击的实质和严重性，他无所畏惧、直言不讳地描述它。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 5:01 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/24/n12498829.md#1" target="_blank">伍新：美国大选末场辩论疫情问题的启示</a><br></h3>大选末辩疫问题，
+责任惜尚欠明晰。
+拜登要川普全负，
+川点中共病毒主。
+谁知疫情何内情，
+无症状又怎辨清？
+防治拜登靠科学，
+医学现却没好辙。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月24日 4:45 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/24/n12498772.md#1" target="_blank">吴新：一剑似为东风欠</a><br></h3>绵阳老井冒汽烟，
 地震预兆有经验。
 中共砖家忙辟谣，
