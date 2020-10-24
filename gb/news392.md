@@ -36,22 +36,7 @@ AGM-84H是一款空射型对地攻击导弹增程.........<br><img align="bottom
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494904.md#1" target="_blank">觅真：在中国为什么做好人这样难？!</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494904.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/05/1905181951021973-150x120.jpg" align ="left"></a>近日明慧网报道了这样一条消息，河南省禹州市公安局工业园区派出所民警查卓琳，2020年8月19日收到了禹州市公安局的一份《辞退公务员通知书》，原因是查卓琳坚持修炼法轮功、按照“真、善、忍”做好人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 3:11 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494668.md#1" target="_blank">任世豪：四千万人染疫的启示</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494668.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/78768a72236dd4c2a4af793695ccfa14-600x400-150x120.png" align ="left"></a>今年以来，“武汉肺炎”（中共病毒，COVID-19）肆虐全球，已逾四千一百万人感染确诊，造成一百一十万人死亡。目前疫情仍然持续蔓延，不仅重创经济，基本生活也受到影响，短期内似无趋缓的迹象。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 2:38 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494715.md#1" target="_blank">【有冇搞错】中共为何力挺拜登？</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494715.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/WhatsApp-Image-2020-10-22-at-8.17.29-AM-150x120.jpeg" align ="left"></a>拜登对中共的态度，过去几十年一直在变，却和他家族与中共商业关系密切相关。中共各大媒体力挺拜登，不自觉透露的其中奥妙。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 11:59 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/24/n12498721.md#1" target="_blank">郑纯清：听惯了的贼船艄公号子</a><br></h3>“装你口袋绝不掏”，
-农业部长打包票。
-语气似壮言似豪，
-地道匪话盗腔调。
-如若贼船艄公号，
-吼惯叫惯当歌嚎。
-何者才会入这道，
-汽非自证老掏包？
-欺人无力拒绝掏，
-也因刚刚掏空了。
-言此等人往里撂，
-洗脑同时打麻药。
-然而非真不可拒，
-逼骗迫使人弯腰。
-天灭中共真相传，
-良知唤醒帐追讨.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月24日 2:27 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494477.md#1" target="_blank">石铭：不能容忍活摘器官的罪恶继续存在！</a><br></h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/22/n12494477.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2016/10/161025211139976-150x120.jpg" align ="left"></a>美国助理国务卿德斯特罗10月16号召开记者会，呼吁共同制止现代的奴隶制。有记者提问有关法轮功的议题，他表示美方对中共活摘器官已经展开实际调查。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 10:07 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/24/n12498310.md#1" target="_blank">唐付民：“中国模式”罪恶逻辑</a><br></h3>马列共产社会主义以消灭“资本主义、私有经济”为主张，以“资本产生剥削”为理论根据。这个理论根据存在严重的逻辑缺陷，它只去揭示（夸大）资本的“剥削性”却严重忽视资本的“创造性”！由于资本是人类最先进的“生产力工具”，因此，任何推行马列共产社会主义的国家和地区都会导致贫困！中国在毛泽东死亡后，中美两国（两种制度）充分的“经.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月24日 10:38 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/23/n12497755.md#1" target="_blank">王赫：毛泽东为什么非要“抗美援朝”？</a><br></h3>5天之内，习近平两度出台，大张旗鼓，高调纪念“抗美援朝”，海内外为之侧目，因为都了然习的意图：一是“保党”，坚守中共史观、歪曲历史、打鸡血，紧抱着中共编造的最后一个神话——“共军战无不胜”；二是“抗美”，对美国死磕，中美新冷战硬接招。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月24日 8:12 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nerawb3388/djy/blob/master/gb/20/10/23/n12495696.md#1" target="_blank">袁斌：为何大陆年轻一代很多人如此堕落？</a><br></h3>日前有网友在海外品葱网站上提问：“为什么现在的00后如此堕落？”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月23日 11:11 AM			</td></tr>
