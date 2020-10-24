@@ -1000,15 +1000,4 @@ Invest Ottawa原先的渥太华L5连接和自动车测试基地，已更名为X.
 <tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12493494.md#1" target="_blank">绿民调6成认为要亲美 台外交部：尊重、不涉入</a><br></h3>民进党21日发布民调显示，6成民众认为要亲美，而总统蔡英文也认为，近期她自己也有这个感受。对此，外交部发言人欧江安表示尊重、不涉入。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 4:51 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12493536.md#1" target="_blank">农业与旅游业敦促政府迎回背包客</a><br></h3>农业和旅游业敦促政府向背包客开放国门，欢迎他们来澳洲打工度假旅游。他们建议政府用疫情风险分级系统来实现这一计划。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 4:00 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12493393.md#1" target="_blank">下水道测出病毒 新州巴市赛车或引发新疫情</a><br></h3>新州卫生部门在巴瑟斯特（Bathurst）市的下水道中检测出了引发疫情流行的中共病毒。当局警告，凡是上周末出席过该市举行的“巴瑟斯特1000”赛车比赛的人，一旦出现症状，要尽快进行检测。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 3:10 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12493184.md#1" target="_blank">山西高院审判委专职委员主动投案被调查</a><br></h3>上个月刚刚任中共山西省高级法院审判委员会专职委员的陈明华，主动投案被调查。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 2:49 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cemvup3479/djy/blob/master/gb/20/10/22/n12493391.md#1" target="_blank">乾坤子：武歌</a><br></h3>直尔矛兮立尔戈
-彼无道兮害中国
-烽火依兮故垒烁
-牧野往兮前有辙
-民生天启兮本无忧
-妖丑逆天兮招祸尤
-以骗立国兮曰共产
-残民以逞兮旗血流
-迫害正信兮趋邪路
-一意孤行兮祸自求......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月22日 2:48 PM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/cemvup3479/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/cemvup3479/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cemvup3479/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/cemvup3479/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
