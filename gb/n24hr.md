@@ -775,9 +775,31 @@ Woolworths销售的新奇玩具是一个迷你超市结账台，里面有47个�
 
 当日，为响应全球30余城市声援十二港人的活动，新香港文化协会和卡城香港之友于下午2点.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 8:51 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/25/n12500504.md#1" target="_blank">用完就丢  专家曝中共4模式利用台学者</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/25/n12500504.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/05/669d40b27d84f9e5909aa6795cd8f772-150x120.jpg" align ="left"></a>施正屏、蔡金树等2人被台谍的案件，突显两岸学术交流背后的危险性，但中共近年又不断通过千人计划等模式，对台湾展开教育渗透、人才拉拢，让风险难以控制。专家说，中共待台湾学者通常会采取4种模式，如果学者没有利用价值，除了被当作台谍样板外，也可能被中共要求回台湾进行内应，或是到海外进行情报搜集，“中共利用民主缝隙渗透台湾，这是.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 8:47 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12501578.md#1" target="_blank">南澳工会吁今年节礼日按公假日加班计</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12501578.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/rundle-mall-1-150x120.jpeg" align ="left"></a>紧随圣诞节之后的节礼日如果正逢周末，那接着的周一就自动转换为公共假日。但代表零售和快餐业工人的工会，希望在这种情况下将周末的加班工资定为公共假日的标准。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 8:41 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/25/n12501032.md#1" target="_blank">红二代罗宇去世 朋友哀悼惋惜</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/25/n12501032.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/Screen-Shot-2020-10-26-at-5.03.02-am-150x120.png" align ="left"></a>10月25日，大陆知名媒体人高瑜在社交媒体上发出消息，红二代罗宇在纽约当地时间22日晚9点半过世，享年76岁。罗宇的去世让很多人感到惋惜，他没有等到中共专制暴政灭亡、大陆百姓过上自由民主生活的那天。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 8:39 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12501548.md#1" target="_blank">隋志：战狼张牙舞爪 狰狞恫吓可憎</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12501548.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/1c62605b7aa479d541a90c346ce1fb9a-150x120.jpg" align ="left"></a>二零二零年十月二十一日，印度Zee News电视台旗下的WION国际频道专访中华民国外交部长吴钊燮而遭中共警告不得再犯，引起印度各界哗然，痛批中共妄图对别国的新闻报导下指导棋。印媒新闻主播Palki Sharma与@WIONews面对中共的“战狼”行径，毫不退缩，坚持新闻自由，值得喝采。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 8:36 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/28/n12507822.md#1" target="_blank">陆客：末世民风（七）</a><br></h3>一、韭菜歌
+
+中国韭菜多
+韭菜唱首歌
+被剪一茬又一茬
+心累没法说
+
+中国韭菜多
+韭菜唱首歌
+被坑一回又一回
+泪往肚里垂
+
+苦也不敢说
+小鬼旗上坐
+镰刀锤子没人味
+还逼你唱赞歌
+
+韭菜虽然弱
+心也会难过
+韭菜也有老和小
+日子也要过！
+韭菜也想乐呵呵
+韭菜好想站着活
+韭菜心疼小.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 4:32 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/28/n12507653.md#1" target="_blank">乌鲁木齐前副市长丑闻多 疫情期间聚众吃喝</a><br></h3>新疆乌鲁木齐市政府前党组成员、副市长李伟自爆，从参加工作开始就“追求经济利益最大化”，为了获得更大权力而加入中共，并一路腐败，一路升官。在今年中共病毒疫情期间违聚众吃喝。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 4:32 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/28/n12507804.md#1" target="_blank">金浴凤：真相揭盖之时（三章）</a><br></h3>（一）
 冷战疫情不胜愁，美国大选又添忧；
 拜登父子电邮门，夜半惊魂到红楼。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 4:23 PM			</td></tr>
@@ -1022,7 +1044,4 @@ Reno 餐馆请人，北内华达州雷诺，征熟手炒锅，油锅打杂，讲
 据澳洲新闻有限公司网站报导，联邦证券（CommSec）的这份报告分析了八个关键指标，就像澳洲储备银行（RBA）决定利率一样，用十年平均值来判断事务的“正常”状态。
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 9:48 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12501616.md#1" target="_blank">南澳今年对美出口额下降 创新产品逆势增长</a><br></h3>虽然今年南澳对美国的出口已降至10亿澳元以下，但一些创新类的南澳产品销售量却在增加。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 9:00 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/25/n12501517.md#1" target="_blank">自周三起 维州次发达地区进一步解封</a><br></h3>从周三（10月28日）开始，维州次发达地区将进一步放宽限制，届时健身房将开放，人们可以参加户外音乐会，学校可以举行毕业典礼。
-
-据澳洲广播公司报导，新的解封措施将于周二午夜11点59分开始生效。目前仍存在疫情的大谢珀顿（Greater Shepparton）地区也将解封。维州次发达地区目前有2宗活跃病例，都在谢珀顿.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月26日 8:38 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/nrfgfl3710/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nrfgfl3710/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/nrfgfl3710/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
