@@ -20,9 +20,11 @@
 <tr><td width="742"><h3><a href="https://github.com/ycrtcl336/djy/blob/master/gb/20/10/27/n12505594.md#1" target="_blank">田云：纽约时报攻击大纪元 遭中英语网友反呛</a><br></h3><a href="https://github.com/ycrtcl336/djy/blob/master/gb/20/10/27/n12505594.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/EET-screenshot-02-150x120.png" align ="left"></a>“原来是纽约时报啊，我还以为是环球时报纽约版”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 1:33 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ycrtcl336/djy/blob/master/gb/20/10/26/n12504111.md#1" target="_blank">杨威：赵立坚泄漏中共高层外强中干</a><br></h3><a href="https://github.com/ycrtcl336/djy/blob/master/gb/20/10/26/n12504111.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/07/GettyImages-1209379603-1-150x120.jpg" align ="left"></a>10月26日，中共外交部记者会上，赵立坚宣布了对美国三家军火公司进行“制裁”，此外，中共外交部还单独回应了美国国务院新列6家中共媒体为“外国使团”，这两项回应都迟了5天，还相当低调。
 
-同日，中共军网试图继续宣传朝鲜战争，却说“我们不惹事”，中共军队也低调。
+听新闻：
 
-10月23日，习近平在纪念朝鲜战争的活动上强硬讲话.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月27日 1:53 PM			</td></tr>
+（听更多新闻请至“听纪元”平台）
+
+同日，中共军网试图继续宣传朝鲜战争，却说“我们不惹事”，中共军队也低调。.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月27日 1:53 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ycrtcl336/djy/blob/master/gb/20/10/26/n12503860.md#1" target="_blank">王友群：孟建柱手下又一“政治打手”被查</a><br></h3><a href="https://github.com/ycrtcl336/djy/blob/master/gb/20/10/26/n12503860.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/000_Hkg9561027_gray-600x400-150x120.jpg" align ="left"></a>10月24日，中共五中全会前夕，中纪委网站发布消息，江苏省委常委、省政法委书记王立科，涉嫌严重违纪违法，主动投案，目前正接受中纪委国家监察委审查。
 孟建柱的第4位老部下被查
 王立科是今年被查的第4位中共政法系统的副部级高官。前3位是：公安部副部长孙力军，重庆市副市长、市公安局长邓恢林，上海市副市长、市公安局长龚道安.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月27日 1:23 PM			</td></tr>
