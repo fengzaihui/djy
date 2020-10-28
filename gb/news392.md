@@ -34,7 +34,30 @@
 <tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503814.md#1" target="_blank">宋善：图谋监控全球 中共难掩野心</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503814.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/10/Photo-credit-should-read-PHILIPPE-LOPEZAFPGetty-Images-600x400-1-150x120.jpg" align ="left"></a>二零二零年十月初，《华尔街日报》发表了一篇哈德逊学院（Hudson Institute）研究员克劳迪娅?罗塞特（Claudia Rosett）的文章，指出中共利用联合国向全球搜集大数据，争夺国际新标准制定权，对全世界进行监控，从而输出其审查与监控人民的暴政模式。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月27日 4:08 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503747.md#1" target="_blank">任世豪：信念坚定如山 正气抵制迫害</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503747.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/07/20190718-AM3A2021-150x120.jpg" align ="left"></a>明慧网报导，二零二零年七月十五日，吉林省农安县法轮功学员姜全德与妻子孙秀英被古城派出所警察绑架，姜全德于八月二十五日含冤离世，身上仍有被施加酷刑后留下的疤痕，清晰可见。孙秀英没能看到丈夫最后一面，因坚持修炼法轮功，近日被构陷到吉林省德惠检察院。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月27日 3:17 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503661.md#1" target="_blank">林忌：2035中国双循环妄想</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503661.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/03/xi-jinping-GettyImages-683247668-1-150x120.jpg" align ="left"></a>中共举行十九届五中全会，制定所谓“十四五规划”与“2035远景目标”，决定未来15年的“经济规划”，其重点即所谓“双循环”──指在与外国贸易体系以外，要成立自己的“国内大循环”作为“主体”，建立所谓“内需系统”，要把企业出口目标，转为内销，令其企业有本国的利润根基云云，用作推动“创新”；而国外贸易则只退为“辅助”功能.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月27日 2:57 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503548.md#1" target="_blank">【有冇搞错】五中全会 十四五接续十三五大失败</a><br></h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/26/n12503548.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/WhatsApp-Image-2020-10-26-at-8.23.24-AM-150x120.jpeg" align ="left"></a>中共今日在北京举行十九大五中全会，主要讨论十四五规划，以确定未来发展方向。回顾十三五规划，主要国内国际目标未能达成，而外交上全面交恶，这条大失败的路，十四五将继续走下去。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月27日 12:51 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/28/n12507822.md#1" target="_blank">陆客：末世民风（七）</a><br></h3>一、韭菜歌
+
+中国韭菜多
+韭菜唱首歌
+被剪一茬又一茬
+心累没法说
+
+中国韭菜多
+韭菜唱首歌
+被坑一回又一回
+泪往肚里垂
+
+苦也不敢说
+小鬼旗上坐
+镰刀锤子没人味
+还逼你唱赞歌
+
+韭菜虽然弱
+心也会难过
+韭菜也有老和小
+日子也要过！
+韭菜也想乐呵呵
+韭菜好想站着活
+韭菜心疼小.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 4:32 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nrfgfl3710/djy/blob/master/gb/20/10/28/n12507804.md#1" target="_blank">金浴凤：真相揭盖之时（三章）</a><br></h3>（一）
 冷战疫情不胜愁，美国大选又添忧；
 拜登父子电邮门，夜半惊魂到红楼。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 4:23 PM			</td></tr>
