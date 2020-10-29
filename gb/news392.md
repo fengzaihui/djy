@@ -32,9 +32,10 @@
 <tr><td width="742"><h3><a href="https://github.com/zgqpmq3347/djy/blob/master/gb/20/10/27/n12506558.md#1" target="_blank">钟原：中共防疫造假 全员检测后就清零</a><br></h3><a href="https://github.com/zgqpmq3347/djy/blob/master/gb/20/10/27/n12506558.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229041395-150x120.jpg" align ="left"></a>10月27日，新华社报导，新疆喀什地区有望完成辖区474.65万人的核酸检测。中共的防疫再次重复同样的谎言：隐瞒不住时，不得不公布少量所谓的无症状感染者；然后强制封闭；再进行所谓的突击式全员检测，以证明很少人感染，甚至没有人感染，很快宣布清零、抗疫胜利。
 
 然而这一次似乎非同寻常，中共不得不公布了破百的数字，这无疑.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 9:42 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zgqpmq3347/djy/blob/master/gb/20/10/27/n12506602.md#1" target="_blank">王友群：中共绝密文件曝光 大清算即将到来</a><br></h3><a href="https://github.com/zgqpmq3347/djy/blob/master/gb/20/10/27/n12506602.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/image-1-150x120.jpg" align ="left"></a>2020年10月22日，大纪元曝光了20年前中共最高法院等5部门联合发布的迫害法轮功的绝密文件。这是江泽民利用中共政法机关对法轮功实行群体灭绝的一份重要罪证。
-
-这份绝密文件的标题称，要“依法严厉打击法轮功X教”。文件中，提出要“加大依法打击的力度”，“该重判的重判，决不能心慈手软”；“对打击的重点对象，要坚决依法.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月28日 9:35 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/zgqpmq3347/djy/blob/master/gb/20/10/29/n12510470.md#1" target="_blank">吐为快：五中全会之妄（外一首）</a><br></h3>活摘指控装聋哑，疫情索赔驼埋沙；
+远景画饼自充饥，韩战煽情聊慰怕；
+内循萧萧谁小康，人芯惶惶白等他？
+徘徊岐路魔作怪，难圆天谎且作罢。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月29日 4:19 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zgqpmq3347/djy/blob/master/gb/20/10/29/n12510403.md#1" target="_blank">关乐：裸奔口哨吹坟前</a><br></h3>纪念韩战七十年，共匪老调又重弹：
 “中国人民惹不得”，“如果惹翻不好办”。
 “人民代表”党自封，“人民血肉”当“长城”。
