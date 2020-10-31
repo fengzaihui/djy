@@ -108,12 +108,12 @@
 <tr><td width="742"><h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/31/n12515131.md#1" target="_blank">【最新疫情10.31】美国单日病例再创纪录</a><br></h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/31/n12515131.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229367918-150x120.jpg" align ="left"></a>10月31日全球中共病毒（武汉肺炎）疫情最新情况：
 中共肺炎全球疫情及美国疫情大数据请点击这里。
 要点：
+欧盟北约总部所在国比利时宣布封锁措施
 澳昆士兰州疫情下投票选择 墨尔本松绑
  因应疫情 日本拟追加低收入家庭救助金
 美国单日病例再创纪录
 新墨西哥州连续第二天超过1000例 
-佛罗里达州病例总数破80万 全美第三州
-预计下周英国将实施全.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 12:06 PM			</td></tr>
+佛罗里达州病例总数破8.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 12:06 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/31/n12515263.md#1" target="_blank">推特终于让步 解封《纽约邮报》账号</a><br></h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/31/n12515263.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/144341-150x120.jpg" align ="left"></a>推特（Twitter）周五（10月30日）解锁《纽约邮报》的主账号，结束了长达两周的对峙。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 11:51 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/30/n12514930.md#1" target="_blank">大连业主入住无水电毛坯房 业界揭烂尾黑幕</a><br></h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/30/n12514930.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/IMG_3920-150x120.jpg" align ="left"></a>大连一小区楼盘烂尾8年，部分业主一边交房租一边还房贷，不堪重负，不得已搬入没水没电的毛坯房，大家一起每天生火吃大锅饭。有大陆房地产人士揭露了大陆烂尾楼频发的背后黑幕。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 11:48 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/31/n12515250.md#1" target="_blank">任世豪：无惧邪恶恫吓 挣脱中共裹胁</a><br></h3><a href="https://github.com/xqqvxg3980/djy/blob/master/gb/20/10/31/n12515250.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/06/d7c7bf1d16970299253b53a63a430413.png" align ="left"></a>十月二十八日，美国政府宣布将中共控制的组织“全美中国和平统一促进会”（NACPU）指定为“外国使团”。此前，美方先后已经把多家中国驻美媒体与“孔子学院”指定为“外国使团”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 11:35 AM			</td></tr>
