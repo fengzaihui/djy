@@ -32,7 +32,20 @@
 <tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/30/n12514847.md#1" target="_blank">杨威：低调中共全会后的明显新动向</a><br></h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/30/n12514847.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1229231664-150x120.jpg" align ="left"></a>中共的十九届五中全会是相对低调的一次会议，习近平的真正愿望实际就是一个，保住自己的权位。虽然似乎没有产生人事震动，也尚未传出内斗的细节，但会后的一些新迹象表明，习近平的权位并非稳固，所谓的战略机遇期和中长期宏大目标，中共党媒的宣传实际难以自圆其说。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 9:41 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/31/n12514949.md#1" target="_blank">【美股瞭望】选前压缩或有利选后弹升</a><br></h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/31/n12514949.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/2-600x400-1-150x120.jpg" align ="left"></a>道指本周重挫6.4%，收报26,501点，创下3月恐慌崩盘以来最重的单周跌幅，且又跌破9月底的起涨点，技术面已形成中期M型头部，短期间或有下探6月底部25,000点附近的可能，预估总统大选前最差或有5~6%的下跌空间。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 9:02 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/29/n12510217.md#1" target="_blank">陈伟霆：马克思“共产主义”行骗术（上）</a><br></h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/29/n12510217.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/05/1805051442512737-150x120.jpg" align ="left"></a>从一份声明，到成立跨国组织，然后染红半个地球，再造就中国共产党。马克思是“无人能及”的“行销大师”，他提供的不是产品或服务，而是“概念”。凭借行销概念，他妄图把整个世界握于掌中。那麽他究竟是如何包装空洞的理念，用虚假的未来换取现在的权力和财富的呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 6:15 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/30/n12513691.md#1" target="_blank">【名家专栏】专制主义与科技的未来</a><br></h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/30/n12513691.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-1166233093-700x420-150x120.jpg" align ="left"></a>关于技术如何改变我们的生活、经济和世界的警告几乎每天都在发生。创新已成为世界各国政府的核心主题，纳米技术、信息技术、生物技术、信息管理系统、电子商务、3D打印和替代能源技术方面的投资高达数千亿美元。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年10月31日 4:59 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/11/1/n12517133.md#1" target="_blank">?金浴凤：论共匪的循环</a><br></h3>把和谐扭曲为对抗
+把偏执梦想成天堂
+在谎与暴的暧昧中建立极权
+在情与欲的狂热中砸乱世界
+从荒诞走向无赖
+从绝望走向共灭
+享乐依赖别人的痛苦
+独裁披着民主的外衣
+出卖与抢夺养活了红魔
+跃进与内斗撕毁了文明
+只有流氓和无耻从胜利走向胜利
+只有欺骗与强迫从浊富走向暴富
+在魔教与邪说中捏造主义
+在整风.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月01日 3:34 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/31/n12516699.md#1" target="_blank">袁斌：凭空编造的红军“飞夺泸定桥”</a><br></h3>中共多年来一直宣称，长征途中他们领导的红军曾在大渡河演出了一幕“飞夺泸定桥”的英雄壮举。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月01日 10:55 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/31/n12516630.md#1" target="_blank">洪达：中共掌控电玩迷 各国国家安全亮红灯</a><br></h3>二零二零年十月二十八日，曾任职美国国家安全局（NSA）的资安专家艾特尔（Dave Aitel）与智库“新美国安全中心”（CNAS）研究员司马乔丹（Jordan Schneider）投书《华尔街日报》指出，中共掌握全球电玩市场的程度，更甚于“抖音”（TikTok）或“微信”（WeChat）等软件，这已构成重大威胁与更迫切.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月01日 7:20 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vwcqvk385/djy/blob/master/gb/20/10/31/n12516352.md#1" target="_blank">王君：韩战前后美国有侵犯中国的图谋吗？</a><br></h3>七十年来，中共一直在宣传：“美国侵略者把战火烧到鸭绿江边”，“美军有侵略中国的意图”。很多中国人不知道二战美国打败了德国日本，只知道德国日本是帝国主义，“美国是比日本还坏的帝国主义”，中共让人们经常喊口号：“打败美帝野心狼”。中共把美国设置成为中共的头号敌人，反对美帝国主义成为中共的国策。在不同时期，中共统治的手段不断.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月01日 2:16 AM			</td></tr>
