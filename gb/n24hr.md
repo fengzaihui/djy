@@ -709,12 +709,6 @@ H组的曼联在客场爆冷1：2输给了最弱对手伊斯坦布尔；而同�
 
 今年3月疫情爆发初期，新州政府曾要求将公务员的工资冻结12个月，但劳资关系委员会（IRC）最近裁定为公务员加薪0.3%。新州财政厅长佩罗泰特（Dominic Perrott.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月03日 3:56 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xcbfpq327/djy/blob/master/gb/20/11/3/n12521747.md#1" target="_blank">黄明志 来自马来西的音乐思想家</a><br></h3><a href="https://github.com/xcbfpq327/djy/blob/master/gb/20/11/3/n12521747.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/463700-150x120.jpg" align ="left"></a>年底准备推出新专辑“亚洲通才”，来自马来西亚的创作歌手黄明志，擅长用音乐来表达对社会现象的想法，生长在拥有国际感的马来西亚，却爱上台湾的文化及生活环境，他要透过歌曲呼吁大家，要珍惜台湾，因为台湾是亚洲拥有最包容的文化的地方。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月03日 3:53 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/xcbfpq327/djy/blob/master/gb/20/11/3/n12521656.md#1" target="_blank">为什么麦当劳的Logo使用黄色和红色？</a><br></h3><a href="https://github.com/xcbfpq327/djy/blob/master/gb/20/11/3/n12521656.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/fast-food-4023905_1920-150x120.jpg" align ="left"></a>一提到麦当劳这家全球最大的速食连锁店，人们就会想到金黄色的拱门，这在市区的建筑里显得格外地显眼。那为什么麦当劳会采用目前以黄色和红色为主体的Logo呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月03日 3:49 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/xcbfpq327/djy/blob/master/gb/20/11/3/n12521665.md#1" target="_blank">房价最高3.5万 新州内陆吸引首置者安家</a><br></h3><a href="https://github.com/xcbfpq327/djy/blob/master/gb/20/11/3/n12521665.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/2020-05-11-17944-Mark-150x120.jpg" align ="left"></a>高房价总是令城市里的首次购房者左右为难，而在新州的内陆城镇，一栋房屋的价格可低至令人难以置信的150澳元。
-
-上周，在新州的西部内陆有80多套房产售出。在所有交易中，最贵的成交价只占了悉尼房价中位数的3%。另外，还有多块空置土地被以1澳元的价格售出。
-
-内陆地区的房产中介冉（Clifford Wren）表示，即.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月03日 3:43 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xcbfpq327/djy/blob/master/gb/20/11/5/n12527662.md#1" target="_blank">川普拿下乔州 参院一席复选 众议员一席翻蓝</a><br></h3>空前激烈的2020大选，在乔治亚州的结果尘埃落定。总统川普在乔治亚州的得票率是49.86%，高于拜登获的48.91%，所以川普拿应能下乔治亚州的16张选举人票。
 
 乔治亚州今年联邦参议院的两席都要选举，因为现任参议员共和党籍的珀杜（David Perdue）的任期已到，所以他竞选连任。
