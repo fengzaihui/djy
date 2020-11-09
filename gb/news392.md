@@ -41,7 +41,7 @@
 直接原因是：10月24日，马云在上海金融峰会上发表了与中共国家副主席王岐山针锋相对的讲话。
 
 王岐山说：“中国金融不能走投机赌博的歪路，不能走金融泡沫自我循环的歧路，不能走庞氏骗局的邪路”。要坚持防.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月08日 2:34 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12533446.md#1" target="_blank">邢天行：这一字之变诠释了中国当朝乱象玄机</a><br></h3><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12533446.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2015/04/150419154823985-150x120.jpg" align ="left"></a>中国文化博大精深，承载文化的文字充满了内涵。不仅汉字的起源传说——仓颉造字惊天泣鬼，显示出了天与人之间的联系与某种神秘的力量，而且自古也有测字占卜术流传，载入史册的许多相字故事，除了令人惊叹测字预测命运之神准，也让人感到汉字的笔画、偏旁等可不是简单的线条组合，它蕴含着命运枢机。汉字的内涵中贯穿着天人合一的理念，可以说是.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月08日 1:25 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/9/n12537142.md#1" target="_blank">诸葛次郎：从维加诺致川普的公开信说开去</a><br></h3>美国民主党总统候选人拜登日前不管社会对舞弊选票的质疑和共和党提出的诉讼，自行宣布胜选，让人感觉美国的选举制、宪法和立国准则正在遭受史无前例的轻慢。令人不可思议的是，拜登儿子的淫乱、他家族与中共昧良心的暴利往来，证据已公开，美国一些主流媒体、高科技公司、大财团却闭口不语，连拜登在10月26日选举公开演讲时都讲到：美国已形.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 4:55 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/9/n12535726.md#1" target="_blank">祝君安：如果拜登当选</a><br></h3>左派中共客，媒体助虐公；
 钱流政客袋，民主有无中；
 把柄挟傀儡，奴役成顽凶；
