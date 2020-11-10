@@ -4,7 +4,7 @@
 
 听新闻：
 
-（听更多新闻请至“听纪元”平台）......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 10:59 AM	</td></tr>
+（听更多新闻请至“听纪元”平台）......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:40 AM	</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537574.md#1" target="_blank">张纯之：美国总统是怎样选出来的</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537574.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-493664852-150x120.jpg" align ="left"></a>
 
 今年的大选，史无前例的出现了大量选举舞弊的现象，这就给今年的总统选举增添了很多变数，导致各种复杂的局面。下面，就详细说说美国的总统选举程序，以及选举人团未选出总统时该怎么办？
