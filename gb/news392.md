@@ -5,7 +5,6 @@
 听新闻：
 
 （听更多新闻请至“听纪元”平台）......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:40 AM	</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/10/n12538029.md#1" target="_blank">【网海拾贝】美国大选成了本世纪最大欺诈丑闻</a><br></h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/10/n12538029.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1229493490-600x400-1-150x120.jpg" align ="left"></a>密歇根共和党主席在发布会上揭露该州Antrim县一个软件把至少6000张川普选票“转换”成了拜登，一个县的6000张选票被计票机器从川普改成拜登的，这一下让川普失去12,000票。而该州至少47个县在用，全美至少30个州在用，包括了所有摇摆州……而且，被爆出多个州的选举出错把川普的票给拜登的设备Dominion（统治）.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 1:49 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/9/n12536777.md#1" target="_blank">周晓辉：美大选投票软件有问题 中共可做手脚</a><br></h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/9/n12536777.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/IMG_7026-150x120.jpg" align ="left"></a>最近几天，民主党舞弊方式和证据更多地浮出水面。目前被曝出的舞弊方式包括：通过死人投票，即“幽灵选票”；凭空给民主党候选人拜登制造选票；减少选票中选项，至少45万张选票选项只有拜登没有川普；使用计算机算法，按需通过计票系统修改选票，将投给川普的选票改投给拜登；川普的邮寄选票被偷被毁；共和党选民被冒名投票；邮局伪造“邮寄选.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 12:12 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/10/n12537574.md#1" target="_blank">美国总统是怎样选出来的</a><br></h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/10/n12537574.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-493664852-150x120.jpg" align ="left"></a>今年的大选，史无前例的出现了大量选举舞弊的现象，这就给今年的总统选举增添了很多变数，可能导致各种复杂的局面。下面，就详细说说美国的总统选举程序，以及选举人团未选出总统时该怎么办？
 
@@ -35,6 +34,7 @@
 今年的美国大选，已曝光出了美国历史上闻所未闻的各种舞弊手段，几个关键州被可疑翻蓝。川普团队已在多个州发起诉讼，并要求一些州重新计票。但这些都很耗时，如果能善用支持者的力量，逆转几个差距最小的蓝州，川普总统就可能速战速决、拿到270张选举人票，成功连任。
 
 大局一定，可以避免陷入纠缠和扯皮，然后再慢慢调查和诉.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月09日 9:15 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/8/n12534313.md#1" target="_blank">周晓辉：美总统大选舞弊 中共党媒假消息骗人</a><br></h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/8/n12534313.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/000_8UN4RU-600x400-2-150x120.jpg" align ="left"></a>尽管美国宾州、密西根、内华达等都被指控选票作弊，法律诉讼正在进行中，但美国民主党候选人拜登仍自行宣布胜选，并获得了很多美国左媒的站台。与此同时，被曝与拜登等美国“深层政府”勾兑的中共，也迫不及待地在各种媒体上大肆宣扬拜登的胜利，并有意把美国媒体的假消息进一步歪曲为拜登等左派被指控大选舞弊洗白。11月7日，中共官媒环球网.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月09日 8:51 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/boyxwb378/djy/blob/master/gb/20/11/10/n12537615.md#1" target="_blank">关乐：中共咋倒静悄悄？</a><br></h3>民调左媒一边倒，
 推特脸书死封号。
 难阻川普春潮票，
