@@ -5,6 +5,28 @@
 听新闻：
 
 （听更多新闻请至“听纪元”平台）......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:40 AM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537762.md#1" target="_blank">南加选民集会：为美国和川普总统祈祷</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537762.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/IMG_7245-150x120.jpg" align ="left"></a>11月8日下午，由越南裔美国人组成的“爱与支持川普总统（Loves supports President Donald Trump）”组织在橙县威斯敏斯特市举行祈祷集会，为美国的未来、为川普总统连任祈祷，他们认为川普总统为美国做出了巨大的贡献。
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+活动.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:51 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537773.md#1" target="_blank">前乡村消防局长获新州年度杰出澳洲人称号</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537773.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1202662694-150x120.jpg" align ="left"></a>前新州乡村消防局（RFS NSW）局长菲茨西蒙斯（Shane Fitzsimmons）已被宣布为该州的年度杰出澳洲人。目前，他正朝着全澳年度杰出澳洲人的目标冲刺，结果预计将于明年1月底在堪培拉揭晓。
+
+周一晚，作为对扑救澳洲2019/20世纪丛林大火时出色工作的表彰，菲茨西蒙斯在月神公园（Luna Park）举行的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:47 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537702.md#1" target="_blank">台湾APEC领袖代表 张忠谋第三度出任</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537702.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/2011092200342378-150x120.jpg" align ="left"></a>中华民国总统蔡英文11月10日于总统府召开记者会，并宣布她再次邀请台积电创办人张忠谋出任APEC领袖代表，这将是张忠谋于蔡英文任内第三度出任APEC领袖代表。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:44 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537644.md#1" target="_blank">美司法部长授权对投票违规指控进行调查</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537644.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-1148056144-150x120.jpg" align ="left"></a>美国司法部长威廉·巴尔（William Barr）周一（11月9日）发出一份备忘录，在2020年总统大选结果被正式认证前，授权联邦检查官对大量的投票违规指控进行调查。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:29 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/9/n12537140.md#1" target="_blank">【热点互动】专访共和党委员：川普法律诉讼</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/9/n12537140.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/59d328c3379ac980-150x120.jpg" align ="left"></a>美东时间周一（11月9日）晚上9:30～10:15，新唐人《热点互动》节目将专访共和党委员，介绍“川普总统的法律诉讼之战如何展开？”新唐人、大纪元将进行现场直播，敬请收看。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 10:59 AM			</td></tr>
@@ -576,16 +598,17 @@ h.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/7/n12531705.md#1" target="_blank">内华达选务处实录：华裔登记选民变临时选民</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/7/n12531705.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/9-1-2-150x120.jpg" align ="left"></a>11月6日（周五），内华达州克拉克县（Clark County）选民登记官乔?格洛里亚（Joe Gloria）表示，该县有6万份临时选票（Provisional Ballot）仍在处理。住在当地的华裔选民吴女士曝光，所谓的临时选票牵扯选举舞弊问题，她自己就“被”变成临时选民。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月08日 4:41 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/7/n12532911.md#1" target="_blank">参众议员：媒体无法决定谁是总统 选战未完</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/7/n12532911.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1283722989-150x120.jpg" align ="left"></a>周六（11月7日），在媒体宣布前副总统拜登在大选中获胜后，拜登也自称获胜，多名共和党参众议员随即表示，媒体无法确定谁是总统，选民才可决定，战斗没有结束。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月08日 4:38 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/7/n12532904.md#1" target="_blank">网路热传民间道人解密 美大选惊动天神助川普</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/7/n12532904.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1229292559-150x120.jpg" align ="left"></a>人类史上最惊心动魄的美国大选，11月3日投票程序落幕，但选举并未结束，另一场法律大战帷幕已徐徐开启。鹿死谁手，牵动世人心魂。中国民间修行人指，人间各种正义力量将大展身手共挺川普，摆局设阵，预测正神的力量即将全部会出现；川普“乱中取胜，越乱越胜，不战而胜，胜选连任已板上钉钉”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月08日 4:25 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/5/n12528406.md#1" target="_blank">研究：女校女生比男女同校女生表现更佳</a><br></h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/5/n12528406.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-130290658-150x120.jpg" align ="left"></a>最新数据显示，女子学校的女生比男女同校的同龄女生在很多方面表现更加出色。她们受到的霸凌较少、也较少逃课，对学校的归属感较强。据《太阳先驱报》报导，Macquarie Marketing Group集团受澳洲女子学校联盟（Alliance of Girls' Schools Australasia）委托，对国际经合组织（.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月08日 3:53 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537835.md#1" target="_blank">卑诗省租金冻结延至明年1月</a><br></h3>11月9日（周一）卑诗省府宣布，租金冻结政策将延长至2021年7月。
+
+该政策于2020年3月18日启动，卑诗省城镇事务与房屋厅在周一发出的新闻稿中表示，冻结租金上涨立即生效。那些租赁合同到期，原定12月1日涨租的合约计划，现在被取消了。
+
+卑诗省城镇事务与房屋厅长罗品珍(Selina Robinson)说：“.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:54 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/9/n12537386.md#1" target="_blank">特鲁多承诺17亿 促偏远区建高速网</a><br></h3>保守党农村经济发展评论议员纳特（John Nater）说：“这绝对是不可接受的，是无视近百万加拿大人在家中无法上网的现实。”保守党已经持续几个月在要求政府采取具体行动。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:50 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537806.md#1" target="_blank">卑诗省租金冻结延至明年1月</a><br></h3>11月9日（周一）卑诗省府宣布，租金冻结政策将延长至2021年7月。
 
 该政策于2020年3月18日启动，卑诗省城镇事务与房屋厅在周一发出的新闻稿中表示，冻结租金上涨立即生效。那些租赁合同到期，原定12月1日涨租的合约计划，现在被取消了。
 
 卑诗省城镇事务与房屋厅长罗品珍(Selina Robinson)说：“.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:49 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537773.md#1" target="_blank">前乡村消防局长获新州年度杰出澳洲人称号</a><br></h3>前新州乡村消防局（RFS NSW）局长菲茨西蒙斯（Shane Fitzsimmons）已被宣布为该州的年度杰出澳洲人。目前，他正朝着全澳年度杰出澳洲人的目标冲刺，结果预计将于明年1月底在堪培拉揭晓。
-
-周一晚，作为对扑救澳洲2019/20世纪丛林大火时出色工作的表彰，菲茨西蒙斯在月神公园（Luna Park）举行的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:47 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bilamv370/djy/blob/master/gb/20/11/10/n12537689.md#1" target="_blank">澳洲反家暴倡导者加入联合国 近30年来首次</a><br></h3>澳洲反家庭暴力倡导者、前民主党领袖斯托特·黛斯波亚（Natasha Stott Despoja）入选联合国消除对妇女歧视委员会（CEDAW），成为近30年来首位加入该机构的澳洲人。
 
 消除对妇女歧视委员会由23名专家组成，负责监督联合国成员国在解决性别歧视问题上的进展。从明年1月起，斯托特·黛斯波亚将与另外22名专.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月10日 11:04 AM			</td></tr>
