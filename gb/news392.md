@@ -7,9 +7,9 @@
 
 文／方平
 
-一位研究人员分析了宾夕法尼亚州选民数据库发现，宾州2万多张缺席选票（或称邮寄选票）出现了不可能寄返的日期，还有8万多张的日期也大有问题。
+一位研究人员分析了宾夕法尼亚州选民数据库发现，宾州2万多张缺席选票（或称）出现了不可能寄返的日期，还有8万多张的日期也大有问题。
 
-在宾州，选民不会自动收到邮寄选票，必须先申请后通过USPS收取，待选民填好后再将选票寄返或亲自送回。研究者参照的宾州数据库，就包含空白缺席选票的寄出日期.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月12日 10:13 AM			</td></tr>
+在宾州，选民不会自动收到邮寄选票，必须先申请后通过USPS收取，待选民填好后再将选票寄返或亲自送回。研究者参照的宾州数据库，就包含空白缺席选票的寄出日期和选民填.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月12日 10:13 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/hjkwcb3241/djy/blob/master/gb/20/11/12/n12542880.md#1" target="_blank">王友群：美国大选舞弊手段大曝光</a><br></h3><a href="https://github.com/hjkwcb3241/djy/blob/master/gb/20/11/12/n12542880.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/a3558204d8ac70760b9379868d073e4d-150x120.jpg" align ="left"></a>11月10日晚，白宫发言人麦肯纳尼宣布了长达234页的宣誓陈述书，指控密歇根州韦恩县存在严重选举舞弊现象。麦肯纳尼说：“我们一直听到‘证据在哪里’的鼓噪声。就在这里。234页的宣誓陈述书，这些都是真实的人、真实的指控，签名是经公证人认证的。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月12日 10:10 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/hjkwcb3241/djy/blob/master/gb/20/11/11/n12542753.md#1" target="_blank">MIT博士挑战拜登：6.9万川普选票被软件篡改</a><br></h3><a href="https://github.com/hjkwcb3241/djy/blob/master/gb/20/11/11/n12542753.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/download-2-1-150x120.jpg" align ="left"></a>Shiva博士和他的团队采用密西根州的选票结果作为数据来源。密西根州有80多个县，Shiva博士的团队分析了四个最大的县， 其中Oakland、Macomb、Kent这三个县的选票结果呈现出非正常的散点分布，有明显的软件修改痕迹。并且对共和党支持率越高的选区，被软件篡改的比例越高。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月12日 9:47 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/hjkwcb3241/djy/blob/master/gb/20/11/11/n12542714.md#1" target="_blank">钟原：外交部曝习近平上合组织会议现窘境</a><br></h3><a href="https://github.com/hjkwcb3241/djy/blob/master/gb/20/11/11/n12542714.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-12076218711-150x120.jpg" align ="left"></a>11月10日，习近平参加了上海合作组织成员国元首视频会议，仍然宣扬所谓的“人类命运共同体”和“多边主义”，他应该很习惯于这类口号式讲话，国内外通用，在国际合作中实际毫无意义。
