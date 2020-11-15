@@ -38,6 +38,11 @@
 
 
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 4:40 PM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550672.md#1" target="_blank">现代诗歌：星孩赫弭斯</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550672.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/09/Fotolia_21780100_Subscription_L-150x120.jpg" align ="left"></a>抵达最高的穹顶 才能开始
+放入每一颗星
+飞到最高处的星孩 轻到几乎冲出边界
+从那里开始
+放星星......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 5:09 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550623.md#1" target="_blank">台中秋季旅展 下架3家无旅保民宿券</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550623.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/469227-150x120.jpg" align ="left"></a>“秋季2020台中国际旅展”11月13日至16日台中世界贸易中心举办。台中市政府至现场成立“礼券健检中心”，经抽查发现2家民宿业者贩售无履约保证的住宿券，消保官当场要求业者下架禁售；另1家民宿业者为吸引消费者，以“订房单”销售多间住宿套装组，又标榜可无限期分次使用，但此类预购单没有履约保证机制，日后若业者停歇业将难以索.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 4:56 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550500.md#1" target="_blank">乌克兰总统、防长、议长等6高官均染疫</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550500.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1229024848-150x120.jpg" align ="left"></a>继总统泽连斯基（Volodymyr Zelensky）感染中共病毒后，乌克兰卫生部长马克西姆·斯蒂芬诺夫（Maksym Stepanov）中共病毒检测也呈阳性。此前，乌克兰财政部长、国防部长、国会议长、第一副议长均感染中共病毒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 4:53 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550557.md#1" target="_blank">网球盛宴——年终总决赛 八大高手巅峰对决</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550557.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1285528091-150x120.jpg" align ="left"></a>万众瞩目的一年一度网球盛宴——ATP年终总决赛将于11月15日至22日，在伦敦O2球场举行。八位顶尖高手齐聚一堂，展开巅峰对决。
@@ -651,15 +656,14 @@ Dominion软件是如何被发现进行“作弊”的呢？ 首先.........<br><
 
 然而，当初侦办此案的洛杉矶警察局（LAPD）抢.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 9:22 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/13/n12545618.md#1" target="_blank">加移民部长宣布支援香港措施 关慧贞批不足够</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/13/n12545618.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/IMG_2107-2-150x120.jpeg" align ="left"></a>联邦移民部长迪奇诺(Marco Mendicino)11月12日宣布有关协助香港人移居加拿大的措施，新民主党移民、难民及公民事务评论员关慧贞随即作出回应并且表示失望，认为这些措施远远不够，当天宣布的措施主要集中在学生，而计划要等到明年执行，而且亦没有提及会否协助受到国安法迫害的年青人，没有为这些人提供政治庇护。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 9:14 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/12/n12545371.md#1" target="_blank">四大补汤哪个适合你？中医推1碗汤一般人都能喝</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/12/n12545371.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/tonic-soup-1-1113-health11-150x120.jpg" align ="left"></a>常见的四大补汤——四物汤、四君子汤、八珍汤和十全大补汤，哪种适合你？1. 四物汤：四物汤补血，包含当归、川芎、芍药、熟地4味药材。女性每个月的月经都会流许多血，容易血虚，如果加上经血排出不顺，还会导致体内有瘀血。在月经结束后，可以吃四物汤来养血、活血。2. 四君子汤：四君子汤补气，药材包含人参、白术、茯苓、甘草......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 9:05 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/10/n12539152.md#1" target="_blank">享高品质咖啡 2品饮技巧教你找出好咖啡豆</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/10/n12539152.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/shutterstock_306622958-150x120.jpg" align ="left"></a>微冷的天气，来一杯温暖的咖啡，那种香味特别迷人，振奋精神。饮用咖啡带来很多好处，帮助代谢、消除疲劳、放松情绪，因此很多人习惯早上或下午来一杯咖啡。但是，咖啡豆的品质如果不好，冲泡出来的香味和带来的益处就会减弱。别忘了，下次购买咖啡豆时不妨挑选一下包装方式、注意烘培好的时间等小细节，让自己享有高品质的咖啡饮品！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 9:04 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/13/n12545603.md#1" target="_blank">内华达州15县市22%别党选民投川普</a><br></h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/13/n12545603.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1283814948-1-150x120.jpg" align ="left"></a>
-
-文/张纯之
-
-今年的总统大选，已曝出大量舞弊行为，因此一些关键州的计票就格外令人关注。特别是一些选票差距非常小的州，是重点关注的焦点。而内华达州也是其中之一。
-
-根据多家媒体公布的数据，截至11月12日，内华达95%-98%的选区计票完毕，川普总统落后拜登约3.67万票（635,089比671,955）.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 9:04 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550656.md#1" target="_blank">吴新：民营企业家孙大午被黑感言</a><br></h3>民营企业家，孙大午被抓。
+集团卄高管，涉黑同拿下。
+卄八子公司，党妈一口吃。
+网民众喊冤，道是良心犯。
+大午开医院，不许医赚钱。
+民口成碑林，共产党不准。
+这是为什么？原因很明显。
+中共是邪教，邪恶最怕善。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 5:04 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qeomyb374/djy/blob/master/gb/20/11/15/n12550640.md#1" target="_blank">林泉：让川普再做四年总统</a><br></h3>难遇战神川普公，四年总统业绩浓。
 中东乱象初平抑，世界公敌正锁容。
 自古英雄多磨难，从来君子少认同。
