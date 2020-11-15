@@ -38,6 +38,35 @@
 
 
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 4:40 PM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550752.md#1" target="_blank">曾文忠老师油画个展—竹南蛇窑的永世情怀</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550752.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/469312-150x120.jpeg" align ="left"></a>曾文忠是一个为土地作画的美浓之宝，同时也是教育家和社会文化运动的推手，老师虽然已届86高龄，但对文化关怀的热情，行动力的敏捷，令人敬佩！曾老师是艺文界的老前辈，11月15日他的油画个展在竹南蛇窑开幕，以朴实的精神、创新的笔意，在画中表达对人文的深切关怀，希望能唤起民众对【竹南蛇窑】永续发展的力量。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 7:02 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550596.md#1" target="_blank">组图：美国DC挺川普大游行 民众表心声</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550596.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GZ_2848.CR2_-150x120.jpg" align ="left"></a>11月14日，美国首都华盛顿DC举行挺川普大游行。现场群众不分老幼与种族，纷纷出来表达自己的心声。这次游行是自1963年民权领袖马丁·路德·金在华盛顿DC演说“我有一个梦想”以来，最大的华盛顿DC游行集会活动。
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+责任编.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 7:02 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550771.md#1" target="_blank">电子烟新法律：禁广告、禁售给18岁以下人群</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550771.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/111-8-150x120.jpg" align ="left"></a>《无烟环境和管制产品(电子烟)修正案2020》于2020年8月通过，并于11月11日生效。卫生部长安德鲁·利特尔(Andrew Little)表示，新的电子烟法旨在阻止年轻人吸电子烟，但同时允许吸烟者继续使用电子烟来戒烟。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 6:52 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550673.md#1" target="_blank">张慧东：习近平突现上海再提“开放”的背后</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550673.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/Screen-Shot-2020-11-13-at-12.25.09-am-600x400-1-150x120.png" align ="left"></a>11月12日，在上海召开的浦东开发开放30周年大会上，习近平称浦东要成为“更高水平改革开放的开路先锋”，并在发言中至少提到了30次“开放”，同时提到了要展示中共版本的“中国理念、中国精神、中国道路”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 6:35 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550734.md#1" target="_blank">美浓白玉萝卜季开采 预约认股抢先尝</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550734.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/469317-150x120.jpg" align ="left"></a>秋冬是美浓白玉萝卜产季，每年都会吸引许多民众携家带眷到美浓拔萝卜。今年高雄市长陈其迈参加认股，11月15日并亲自下田开采，除了对白玉萝卜的清甜爽脆赞不绝口，他也呼吁民众预约做股东，否则想吃也吃不到。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 6:22 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550675.md#1" target="_blank">【大选更新11·15】加州华人不要社会主义</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550675.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/11-25-150x120.jpg" align ="left"></a>美国大选已不再是党派纷争，而是真相与谎言、正义与罪恶之间的较量。
@@ -649,8 +678,8 @@ Dominion软件是如何被发现进行“作弊”的呢？ 首先.........<br><
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545782.md#1" target="_blank">探讨移工论点  桃园光影文化馆《逃跑的人》</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545782.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/468940-150x120.jpg" align ="left"></a>桃园光影文化馆于11月17日上午10时30分举办《逃跑的人》公益性电影特映活动，邀请导演曾文珍现身说法，桃园艺文设施管理中心为推广多元议题的影像教育，与桃园社会局合作特映活动，邀请市内妇女团体、移工团体共同参与，桃园社会局妇女福利及综合企划科王秀珍科长以及台湾国际女性影展策展人罗珮嘉也将出席映后座谈，和现场观众对谈分享.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 11:17 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545787.md#1" target="_blank">拒贺拜登胜选  墨国总统：不承认未合法政府</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545787.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/468939-150x120.jpg" align ="left"></a>美国总统大选开票争议不断，现任总统川普认为多州发生选举舞弊，将采取法律途径，然而民主党候选人拜登（Joe Biden）却自行宣布胜选，在媒体加冕下，引来许多国家元首表示祝贺。墨西哥总统罗培兹欧布拉多（Andres Manuel Lopez Obrador）周三（11月11日）表示，拒绝祝贺拜登，“我们无法承认任何‘尚未.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 11:11 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545791.md#1" target="_blank">庆祝医师节  桃疗医师cosplay带动健康活泼</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545791.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/468935-150x120.jpg" align ="left"></a>一年一度的医师节，桃园疗养院长邱献章，率领全院精神科医师们，百忙之中卸下严肃的白袍，换上时下最夯的动漫角色，摆脱以往沉闷低调的形象，反转为活泼、热情的态度，将这欢笑及喜乐传递给大家，拉近医师与民众们的距离,让大家看见医师们平易近人的一面。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 11:06 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545735.md#1" target="_blank">澳政要赞法轮功学员善良 批中共迫害无耻</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545735.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/11/2019-11-5-australia-condemn-jxx_07-ss-150x120.jpg" align ="left"></a>11月11日，澳大利亚维州上议院议员菲恩（Bernie Finn）在抨击中共政府迫害人权时表示，“法轮功学员都是好人，非常善良”，中共迫害法轮功野蛮而无耻。菲恩在声援维州议员林布里克（David Limbrick）发起的对华贸易及中共阻挠澳洲出口的动议案时，向议会陈述说中共不是澳洲的朋友，我们的未来不能被中共拥有。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 10:50 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545647.md#1" target="_blank">火星上发现罕见“撞击坑三胞胎”</a><br></h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545647.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/triplet-150x120.jpg" align ="left"></a>从火星轨道探测器火星快线（Mars Express）最新发回的照片上，新发现一组重叠有序的“撞击坑三胞胎”。三个撞击坑从大到小，依次叠摞在一起，组成一道弧形。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 10:41 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550750.md#1" target="_blank">美大选押错宝？ 专家：台湾要坚守普世价值</a><br></h3>美国总统大选结果仍未明，川普团队针对几大摇摆州提出选举诉讼。不过，近期台湾政府屡遭质疑在选前押宝“川普团队”，且淡化拜登背后的亲中色彩，要求台湾政府转而对拜登阵营示好，专家说，这不是押宝哪个人，而是选择支持普世价值跟台湾国安的候选人，“台湾政府应该表明这点，才不会落入红色媒体设下的统战陷阱。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 6:55 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550662.md#1" target="_blank">传递一个善的故事 南投县集集篇(一)</a><br></h3>集集镇位于南投县，是全台面积、人口数倒数第二的小镇。集集镇长陈纪衡介绍说，“集集”的由来，一说是当地原住民的一个部落名称。另一说，则是布农族语中“JiJi”的音，“JiJi”有“肉”的意思，也就是说，集集曾经是布农族与汉人交易肉品的地方。而集集镇民风纯朴，辖内有11个里，现在就让我们来了解一下他们善的故事。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 6:51 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550583.md#1" target="_blank">河南原阳县发生命案至少6死 嫌疑人在逃</a><br></h3>11月15日凌晨，河南新乡市原阳县靳堂乡娄凤鸣庄村发生命案，至少6人死亡。目前，嫌疑人仍在逃。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 6:30 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550695.md#1" target="_blank">美媒缩水报导挺川游行人数 王丹：学中共挺快的</a><br></h3>随着美国总统大选舞弊案件，不断爆光，美国民众对此感到非常不满。周六，来自美国50个州的民众，抵达美国首都华盛顿，举行盛大游行，支持川普连任，要求左派“停止窃取”大选。中国民运人士王丹在脸书表示，明明上街抗议的人少说几十万人，而中央社采纳的美联社报导，连“华盛顿邮报”都写“‘数千名’美国总统川普的支持者，今天在华盛顿市中.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 5:36 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/15/n12550658.md#1" target="_blank">中共介美选 台学者：如属实恐是“颠覆”他国行为</a><br></h3>川普总统12日（美东时间）在推特（Twitter ）指控，多米尼“Dominion”计票系统消除他全国共270万选票。13日美国众议员戈默特爆料，美军周一（11月9日）扣押了在德国法兰克福的Scytl公司服务器，里面有与Dominion投票系统偷换美国大选选票“极为令人信服的证据”。学者表示，大选争议曝光中共介入美国大.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月15日 5:26 PM			</td></tr>
@@ -908,7 +937,4 @@ CTF亚省负责人特拉扎诺（Franco Terrazza.........<br><img align="bottom"
 
 
 医护行业工作稳定、工资高、福利好、受人尊重。无需任何医疗背景，只要您有兴趣进入美国医疗行业，高中以上学历，天使护理.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 11:22 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/glqrck386/djy/blob/master/gb/20/11/13/n12545772.md#1" target="_blank">亚省小型企业可获得新赠款</a><br></h3>11月10日，亚省中心银行（Alberta Central）表示，小企业主和企业家将有机会得到一项新的$20,000赠款，以抵御中共病毒（COVID-19）大流行带来的财务影响。
-
-大未来创新补助金（The Big Future Innovation Grant）是亚省中心银行的一项举措，亚省中心银行是省信用合作社.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月13日 10:47 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/glqrck386/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/glqrck386/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/glqrck386/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/glqrck386/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
