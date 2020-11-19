@@ -658,11 +658,65 @@ freshoot.ca与众多供应商，当地农场合作，主要配送广受大众喜
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553719.md#1" target="_blank">围观者众 61岁英驻渝总领事跳河救人引热议</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553719.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/Unknown-1-150x120.jpg" align ="left"></a>11月14日，重庆中山古镇，一名女孩拍照时不慎落水。61岁的英国驻重庆总领事史云森正巧在附近游玩，听到人群惊呼声，立即拖鞋跳下水，将女孩安全送上岸。当时的游客众多，围观者众，引发热议。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月17日 12:12 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553853.md#1" target="_blank">青松絮语：电影的长度</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553853.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2010/10/100912014656100393-150x120.jpg" align ="left"></a>我们面对同一个世界，甚至有时候被卷入同一件事，而我们每个人的心里都是不同的。世界并没有不同，造成差异的只是我们的视角。那么，当我们感觉哪里不对而不快时，换个视角，是不是一切就不同了呢？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:59 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/5/n12527845.md#1" target="_blank">【敦煌寻梦】大漠上的战争史诗</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/5/n12527845.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/F-11-150x120.jpg" align ="left"></a>敦煌城，坐落在东西方文化交会的核心地带，千百年来接受着历史赋予它的种种美誉。它有许多称谓：佛教圣地、军事要塞、商贸重镇、河西走廊的咽喉要道、中原与异域文明交会的国际都市。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:58 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553389.md#1" target="_blank">7秋冬时尚元素 这款镂空设计挑战你的品味</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553389.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/20201116_shouhui_fashion_getty_01-150x120.jpg" align ="left"></a>尽管疫情带来多事之秋，时尚界依然活跃，9月份纽约时装周，各品牌设计师各凭本事，温馨诠释时尚新趋势。从我们所处的生活环境到我们穿的服饰，一切的一切都透露着我们对生命的态度和品味。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:50 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553750.md#1" target="_blank">台东一站式产业辅导 47家业者获奖</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553750.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/469625-150x120.jpg" align ="left"></a>台东县政府财政及经济发展处16日下午在县府大礼堂举办“一站陪伴、五年有成”成果发表会，47家在地业者获颁发“台东严选”奖牌，县长饶庆铃鼓励在地业者持续精进，用新思维新作法，吸引更多青年返乡创业，带动台东整体产业价值。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:50 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553843.md#1" target="_blank">11月16日 安省新增1,487例 7天平均数量升30%</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553843.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/23031620-150x120.jpg" align ="left"></a>11月16日（周一），安省公布新增染疫1,487例，与上周一（11月9日）的1,242例相比，7天平均水平上升了30%至1,443例，而上周一为1,105例。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:47 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553841.md#1" target="_blank">【财商天下】恒大危机曝光中共庞氏骗局</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553841.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/1115_1200x800-150x120.jpg" align ="left"></a>从恒大危机的起落风波可以看出中国当前的经济，走的是“投资-信贷-债务”的发展模式，这种模式造成了高额的债务和巨大的金融风险。面对这种情况，中共政府如何应对？且应对的手段能扭转这些风险吗？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:43 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553789.md#1" target="_blank">2020嘉义博茶会多项体验活动和表演受理预约报名</a><br></h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553789.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/469626-150x120.jpg" align ="left"></a>高山茶都-2020嘉义博茶会11月21日将盛大开幕，为了让游客体验难得的茶与艺术文化，嘉义县政府推出包括调酒茶饮表演、四季访茶大师限量明信片、新食尚茶文化派对、异国茶舞表演、创意五行茶、台式斗茶、流水茶席、国内茶席、YOYO唱跳秀、亲子茶艺、小小泡茶师、茶文化，以及中埔乡农会御藏市集等多项表演和体验活动，活动采预约制.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:43 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/18/n12559587.md#1" target="_blank">href="https://www.epochtimes.com/gb/20/11/18/n12559587.htm" target="_blank">$0.99 地板批发</a>
+		</div>
+		<div class="post-content large-12 medium-12 small-12 column">
+			<div class="content">
+
+SPC 防水地板 $0.99/sf 包工包料$2.39/sf；12mm复合地板 $0.99/sf 包工包料$2.39/sf；实木地板 $2.39/sf 包工包料$4.99/sf；工厂直销，开张特惠。
+
+电话：626-567-2888 杨女士
+
+9846 Rush st, South El Monte, ...</div>
+
+							<div class="tag large-6 medium-6 column hide-for-small-only">
+				<a href="https://www.epochtimes.com/gb/tag/%E5%9C%B0%E6%9D%BF%E6%89%B9%E5%8F%91.html" target="_blank">地板批发</a> <a href="https://www.epochtimes.com/gb/tag/%E5%A4%8D%E5%90%88%E5%9C%B0%E6%9D%BF.html" target="_blank">复合地板</a>			</div>
+			<div class="large-6 medium-6 column post-date hide-for-small-only">
+				<img src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 7:51 AM			<.99 地板批发</a><br></h3>
+
+SPC 防水地板 href="https://www.epochtimes.com/gb/20/11/18/n12559587.htm" target="_blank">$0.99 地板批发</a>
+		</div>
+		<div class="post-content large-12 medium-12 small-12 column">
+			<div class="content">
+
+SPC 防水地板 $0.99/sf 包工包料$2.39/sf；12mm复合地板 $0.99/sf 包工包料$2.39/sf；实木地板 $2.39/sf 包工包料$4.99/sf；工厂直销，开张特惠。
+
+电话：626-567-2888 杨女士
+
+9846 Rush st, South El Monte, ...</div>
+
+							<div class="tag large-6 medium-6 column hide-for-small-only">
+				<a href="https://www.epochtimes.com/gb/tag/%E5%9C%B0%E6%9D%BF%E6%89%B9%E5%8F%91.html" target="_blank">地板批发</a> <a href="https://www.epochtimes.com/gb/tag/%E5%A4%8D%E5%90%88%E5%9C%B0%E6%9D%BF.html" target="_blank">复合地板</a>			</div>
+			<div class="large-6 medium-6 column post-date hide-for-small-only">
+				<img src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 7:51 AM			<.99/sf 包工包料$2.39/sf；12mm复合地板 href="https://www.epochtimes.com/gb/20/11/18/n12559587.htm" target="_blank">$0.99 地板批发</a>
+		</div>
+		<div class="post-content large-12 medium-12 small-12 column">
+			<div class="content">
+
+SPC 防水地板 $0.99/sf 包工包料$2.39/sf；12mm复合地板 $0.99/sf 包工包料$2.39/sf；实木地板 $2.39/sf 包工包料$4.99/sf；工厂直销，开张特惠。
+
+电话：626-567-2888 杨女士
+
+9846 Rush st, South El Monte, ...</div>
+
+							<div class="tag large-6 medium-6 column hide-for-small-only">
+				<a href="https://www.epochtimes.com/gb/tag/%E5%9C%B0%E6%9D%BF%E6%89%B9%E5%8F%91.html" target="_blank">地板批发</a> <a href="https://www.epochtimes.com/gb/tag/%E5%A4%8D%E5%90%88%E5%9C%B0%E6%9D%BF.html" target="_blank">复合地板</a>			</div>
+			<div class="large-6 medium-6 column post-date hide-for-small-only">
+				<img src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 7:51 AM			<.99/sf 包工包料$2.39/sf；实木地板 $2.39/sf 包工包料$4.99/sf；工厂直销，开张特惠。
+
+电话：626-567-2888 杨女士
+
+9846 Rush st, South El Monte, .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 7:51 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/18/n12559577.md#1" target="_blank">宾顿市1社区染疫率高 每5人中1人阳性</a><br></h3>据Global News报导，ICES资深科学家邝杰夫（Jeff Kwong）说：“我认为我们一直都知道这些地区受到重创，但新发现是，这些地区呈阳性率很高，高于我们的预期。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 7:46 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/18/n12558459.md#1" target="_blank">掘墓人</a><br></h3>
+
+作者简介
+
+戴晓溪，上海，出生于1946。在少年时代就树立了“先天下之忧而忧，后天下之乐而乐”的信念，是独裁专制的抗争者和民主自由的实践者。
+
+..........
+
+自中共病毒瘟疫给全世界带来巨大灾难以来，中共政权面临着前所未有的绝境。为了免于垮台，中共最近发起了从幼儿园到大学的“红色基因”代代传.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 7:44 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/19/n12559467.md#1" target="_blank">中国推熊胆入药 州环保厅搜查华埠药房</a><br></h3>根据patch网站报道，纽约州环境保护厅（NYSDEC）从唐人街至少三家药店没收了一批声称可以治疗疫情病毒的熊胆产品。从图片中看，主要为日本救心丹，这些救心丹成分中含有熊胆。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 6:52 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/19/n12559466.md#1" target="_blank">借疫情 特鲁多提“大重置”被批</a><br></h3>中共病毒脑炎疫情爆发后，全球各国被左派控制的政府，都在大谈特谈所谓的全球“大重置”（RESET）计划，换句话说，就是借疫情恐慌在全球推动社会主义议程，其中，就包括加拿大自由党政府。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 6:47 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/18/n12559474.md#1" target="_blank">不满安乐死鹿?男子威胁市长被捕</a><br></h3>该市的安乐死鹿只的决定，缘起于当地的米歇尔-夏特朗（Michel-Chartrand）公园内的白尾鹿繁殖过度。杀鹿是为了保护公园的生物多样性与健康的鹿群。当局说，公园附近的交通事故风险也增加了，莱姆病传播的风险也增加了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月19日 6:26 AM			</td></tr>
@@ -906,5 +960,4 @@ freshoot.ca与众多供应商，当地农场合作，主要配送广受大众喜
 遥天外、寒星数点，繁华处、大梦千窗。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月17日 12:15 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/15/n12550420.md#1" target="_blank">诗歌：正义传媒（外一首）</a><br></h3>正义传媒真善忍， 尽传真相正人间。 世情不管如何乱， 正道终究永久传。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月17日 12:12 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/15/n12550788.md#1" target="_blank">保定法轮功学员靳凤羽遭荷枪实弹的警察绑架</a><br></h3>11月11日午夜12点多，家住河北省保定市徐水区“河北大午农牧集团有限公司”生活区的法轮功学员靳凤羽，被保定市公安局指使高碑店市警察荷枪实弹野蛮砸坏房门暴力绑架，目前不知道被关在哪里。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:54 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zvfdhx385/djy/blob/master/gb/20/11/16/n12553571.md#1" target="_blank">从政治、学术到社媒 中共触角有多长？</a><br></h3>近年来，随着中国国内言论空间与政治空间的紧缩，中共“长臂管辖”的触角也延伸到海外，对海外华人发表的言论进行了日益严密的控制，从政治、到学术，到社交网络，几乎无孔不入，从而使近年来因言获罪的海外中国公民，以及被绑架回国判刑的中国公民或前公民的人数激增。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月16日 11:46 PM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/zvfdhx385/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/zvfdhx385/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zvfdhx385/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/zvfdhx385/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
