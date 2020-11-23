@@ -29,7 +29,15 @@
 英国的45型驱逐舰
 45型驱逐舰（T.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月22日 3:34 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/giqyzi3023/djy/blob/master/gb/20/11/21/n12566004.md#1" target="_blank">【名家专栏】川普的成就和未来的方向</a><br></h3><a href="https://github.com/giqyzi3023/djy/blob/master/gb/20/11/21/n12566004.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/president-trump-1-e1605366265306-700x420-150x120.jpg" align ="left"></a>在这动荡的时期﹐随着感恩节的临近，最好思考一下我们有多少要感激的。在某些情况下，无论是个人的还是政治的，这样做比其他情况更难。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月22日 1:38 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/giqyzi3023/djy/blob/master/gb/20/11/21/n12566334.md#1" target="_blank">张林：中国居民身份证 显示中共不能自我改进</a><br></h3><a href="https://github.com/giqyzi3023/djy/blob/master/gb/20/11/21/n12566334.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/09/CFP440599552-150x120.jpg" align ="left"></a>身份证制度是中共国特有的制度，几乎就是中共国大监狱的管理特色。每个人外出都必须随身携带，否则你买不了火车票、长途汽车票，住不了旅店，简直没办法正常旅行。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月22日 1:33 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/giqyzi3023/djy/blob/master/gb/20/11/23/n12568541.md#1" target="_blank">陈达：黄洁夫自供中共“活摘”是“发展需要”</a><br></h3>活摘新幌再现北京。
+器官移植科学论坛，
+移植发展基金会办。
+国际器官移植协会，
+领衔名义助纣实为。
+头号屠夫黄洁夫喊，
+移植三年全球夺冠。
+规模不止翻上一番，
+满足社会经济发展。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月23日 11:45 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/giqyzi3023/djy/blob/master/gb/20/11/23/n12568462.md#1" target="_blank">吐为快：快离开共匪的贼船</a><br></h3>
 
 最后的审判前，我向党团员疾呼，
