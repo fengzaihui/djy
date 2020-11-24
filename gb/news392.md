@@ -52,9 +52,7 @@
 移植三年全球夺冠。
 规模不止翻上一番，
 满足社会经济发展。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月23日 11:45 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/23/n12568462.md#1" target="_blank">吐为快：快离开共匪的贼船</a><br></h3>
-
-最后的审判前，我向党团员疾呼，
+<tr><td width="742"><h3><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/23/n12568462.md#1" target="_blank">吐为快：快离开共匪的贼船</a><br></h3>最后的审判前，我向党团员疾呼，
 中国到了最危险的时候，
 恶党的镰刀割向所有人头，
 传统美德变异为贪仇，
@@ -65,6 +63,6 @@
 红墙隔断了希望的原野，
 马列尊为动物庄园的酋首，
 红魔颠覆了全球的普世价值，
-社会主.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月23日 10:59 AM			</td></tr>
+社会主义毒害了.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月23日 10:59 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/ovftry332/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ovftry332/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ovftry332/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/ovftry332/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ovftry332/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/ovftry332/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
