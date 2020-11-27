@@ -37,9 +37,11 @@
 
 11月7日，美国民主党总统候选人拜登宣布自己胜选；美国主流媒体宣布拜登胜选。一些国家和地区的领导人，纷纷向拜登表示祝贺。
 
-现任美国总统、共和党总统候选人川普认为，选举存在严重舞弊问题，并表示“永远不会”对假选票妥协，坚信自己最终会赢。
+听新闻：
 
-我也坚信，川普最终会赢.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月26日 3:20 PM			</td></tr>
+（听更多新闻请至“听纪元”平台）
+
+现任美国总统、共和党总统候选人川普认为，选举存在严重舞弊问题，并表示“永远不会”对假选.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月26日 3:20 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/anzrqf3590/djy/blob/master/gb/20/11/26/n12576269.md#1" target="_blank">向真：纽伦堡大审判75周年的省思</a><br></h3><a href="https://github.com/anzrqf3590/djy/blob/master/gb/20/11/26/n12576269.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/09/1522px-Defendants_in_the_dock_at_nuremberg_trials-150x120.jpg" align ="left"></a>时值“纽伦堡大审判”75周年之际，德国隆重举办纪念活动，除了总统施泰因迈尔（Frank-WalterSteinmeier）发表讲话，美国国务卿蓬佩奥（MikePompeo）与唯一仍在世的参与大审判检察官、101岁高龄的费伦茨（BenjaminFerencz）也通过视频致辞。蓬佩奥表示：“纽伦堡国际军事法庭重新确立了西方.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月26日 12:57 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/anzrqf3590/djy/blob/master/gb/20/11/27/n12578552.md#1" target="_blank">【网海拾贝】颤抖吧，沼泽地的妖魔鬼怪们！</a><br></h3>LinWood律师刚刚转发的文章：HolyRadar神圣雷达–那就是Kracken大招。谁知道这是国防部的网络战项目？它跟踪并获取DeepState所犯下的邪恶活动和犯罪证据。特种部队已向代理国防部长直接汇报，他已发出警告。爱国者们不要惊慌害怕。川普总统掌控局势，战线已经拉开。——大海怪的大嘴已经张开，已经跳入大海怪大.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 11:04 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/anzrqf3590/djy/blob/master/gb/20/11/27/n12578511.md#1" target="_blank">袁斌：中共推出“网络良民证”遭网友抨击</a><br></h3>最近，一种官方推出的可用于网上在线身份认证的“网证”已在大陆福建、广东等地开展试点。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 10:37 AM			</td></tr>
