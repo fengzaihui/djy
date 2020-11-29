@@ -59,7 +59,7 @@
 谁怜草民遭灾荒，
 悲凉哭断肠。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 8:01 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/zswvbr3062/djy/blob/master/gb/20/11/28/n12582257.md#1" target="_blank">袁斌：美化自己、抹黑对手和诱骗民众</a><br></h3>八十多年来，中共制造的谎言不计其数，但就具体内容而言，主要有三大部分：即美化自己、抹黑对手和诱骗民众。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 11:14 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/zswvbr3062/djy/blob/master/gb/20/11/28/n12582248.md#1" target="_blank">王友群：习仲勋被打倒后 王超北被关押17年</a><br></h3>王超北与潘汉年齐名，是中共最著名的两个“高级特工”，素有“南潘北王”之称。
+<tr><td width="742"><h3><a href="https://github.com/zswvbr3062/djy/blob/master/gb/20/11/28/n12582248.md#1" target="_blank">王友群：中共高级特工王超北被中共关押17年</a><br></h3>王超北与潘汉年齐名，是中共最著名的两个“高级特工”，素有“南潘北王”之称。
 
 毛泽东曾称赞说：“庞智（王超北的化名）是无名英雄”。中共元帅贺龙在一次会议上称赞王超北，“他的一个情报，抵得上一个师！”
 王超北被关押17年零9天
