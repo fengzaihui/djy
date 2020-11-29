@@ -532,9 +532,7 @@
 
 沃尔玛（Walmart）和旗下的山姆俱乐部（Sam's Club）实体店在11月26日（周四）感恩节.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:42 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578143.md#1" target="_blank">李毅骂新京报再遭狂炸 人大金融所发声明切割</a><br></h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578143.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/f09db6b2e1b702f2f5381f2be7ec3a4a-150x120.jpg" align ="left"></a>日前旅美的中国学者李毅在疫情问题上的言论引起全网怒潮后，他再以揭底的方式怒骂、威胁批评他言论的《新京报》。人大金融研究院不想与其沾边，发声明进行切割。民间继续围观热议，称其身上可以看到整个党国的样子。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:41 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12577842.md#1" target="_blank">【役情最前线】称安全环境有变 习要求备战打仗</a><br></h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12577842.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/5b4116a58dcb13e60ff93a2e315ef85e-150x120.jpg" align ="left"></a>香港六大部队“示忠”撑林郑，被批做法犹如中共；美国大选舞弊露馅，川普嘲讽民主党“踩错油门”；美调查记者：大选100%被操纵，中共介入其中；蓬佩奥重申：中共是真正威胁；习近平称安全环境有变，要求备战打仗；专家揭习近平压力山大，政权脆弱；香港疫情蔓延至上流社会，传武汉复阳者达数百人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:30 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578240.md#1" target="_blank">沈舟：美军新舰队悄悄部署 释放新信号</a><br></h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578240.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/50563152782_17f4c29748_o-150x120.jpg" align ="left"></a>美军的马辛岛两栖攻击群舰队（Makin Island Amphibious Ready Group），刚刚离开了夏威夷基地。按照民间地理情报机构Stratfor的追踪，这支舰队目前正行驶在夏威夷和关岛之间，预计抵达关岛后，应进入菲律宾海域，之后可能部署在西太平洋，最可能的活动区域应是南海，这或许就是美国海军部长重组第一.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:30 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578258.md#1" target="_blank">疯狂的防疫法规逼牧师将教堂改脱衣舞堂</a><br></h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578258.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/5555-150x120.jpg" align ="left"></a>加州千橡市牧师麦考伊为与教民见面不得不把教堂注册为脱衣舞俱乐部。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:15 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/29/n12582755.md#1" target="_blank">吉林大学生曝食堂饭菜质量差 遭餐厅主任呛声</a><br></h3>近日，吉林省长春市吉林大学南岭校区，有学生在微信群中吐槽四餐厅饭菜昂贵且质量差，饭菜中还有异物，四年来菜谱从来不变。对此，四餐厅主任在群中声称，学生父母是让他们来学习的，并不是让他们来欣赏美食的。学生们看到这样的回复纷纷表达不满。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 3:37 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/29/n12582718.md#1" target="_blank">深圳小区有人高空抛苹果 砸中婴儿头</a><br></h3>近日，深圳南山区华润城润府一期内，一名四个月大的婴儿被从高空抛落的半个苹果砸中头部。有住户表示，当时正是放学时间，楼下孩子很多。据悉，婴儿被砸后神志仍清醒。事发后，楼栋被排查，但未有业主承认。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 1:36 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/29/n12582692.md#1" target="_blank">【翻墙必看】分析：中共高层搞砸了外交</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
@@ -741,23 +739,4 @@ PECO正在与美国和加拿大的100多家公用事业公司合作，以保护�
 急救中心（EMS）发言人斯图尔特·布莱德克斯（Stuart Brideaux）表示，总共有6人被送往医院，均无生命危险。
 
 6名伤者中，有一男三女四名.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:52 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578296.md#1" target="_blank">侨委会米类食品制作培训班开始报名</a><br></h3>侨委会“2021米类食品制作培训班”即日起开始报名， 机会难得、意者请立即行动!! 上课时间:1/18/2021-1/23/2021
-
-(1)上课地点:台湾国立高雄餐饮大学
-
-(2)报名资格:目前因疫情在台居留或疫情期间符合入境管制(居家隔离14天+自主健康管理7天)之在侨居地留从事餐饮相关事业或有意学习米类食.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:39 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578289.md#1" target="_blank">家得宝每年投资10亿为员工永久加薪</a><br></h3>总部位于乔州的家得宝（Home Depot）是全球最大的家具建材零售商，为美国第二大零售商。家得宝销售各类建筑材料，主要经销家居用品、维修和自己动手“DIY” 所需要的家装材料。公司总共有2295家门店，年收入超过1200亿美元。
-
-在中共病毒大流行之前，家得宝就已经开始积极推动电子商务，随着中共病毒迫使数百万美国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:33 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578284.md#1" target="_blank">达美航空承诺到明年3月都保持封闭机舱中间座</a><br></h3>上周，总部位于亚特兰大的达美航空公司（Delta Airline）宣布，将在2021年3月30日之前一直保持封闭机舱中间座位的做法，达美将因此拥有全美最长的封闭座席政策。
-
-中共病毒大流行伊始，美国（American Airline）、美联航（United Airline）等传统航空公司以及边境航空公司（Front.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:29 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578274.md#1" target="_blank">乔治亚州长坎普要求民众重新考虑感恩节计划</a><br></h3>由于乔治亚州的中共病毒（COVID-19）案例急剧增加，州长坎普希望民众重新考量聚会和假期计划。
-
-周日晚上，州长坎普在Facebook上发布了一条视频消息，其中谈到了自夏天以来最大的冠状病毒病例上升，这可能是由于天气转凉和人们聚集在室内引起的。坎普敦促民众继续戴口罩，并要求人们在即将到来的假期中重新考虑他们的选择.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:25 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/20/11/26/n12578230.md#1" target="_blank">数百万美元的游乐园在南卡破土动工</a><br></h3> 位于默特尔海滩市（Myrtle Beach）、北海洋大道14号和15号的新游乐园正在破土动工。
-
-默特尔海滩Funplex游乐园将以热带风情为主题，同时将提供7种游乐设施，露天栈道酒吧和餐厅。曾经的旧停车场很快将成为市中心新娱乐场所的所在地。在蜿蜒上下的过山车上能看到林荫大道上的商店和流行的锡屋顶酒吧。
-
-F.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月27日 7:22 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/cqtxyz3448/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/cqtxyz3448/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cqtxyz3448/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/cqtxyz3448/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
