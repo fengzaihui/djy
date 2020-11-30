@@ -28,26 +28,10 @@
 <tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/29/n12582845.md#1" target="_blank">陈思敏：中国网民互联网上热议美国大选舞弊</a><br></h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/29/n12582845.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/1127A1-1-150x120.jpg" align ="left"></a>不但美国国内，连中国互联网的舆论场都在密切追踪川普团队针对大选舞弊的法律战进展。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 4:34 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/28/n12582190.md#1" target="_blank">沈舟：中共军队忽提“世界第二”目标的背后</a><br></h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/28/n12582190.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/201120-F-JG201-9095-150x120.jpg" align ="left"></a>11月26日，中共国防部的例行记者会上，发言人任国强解释2027年“建军百年奋斗目标”时提到，中国“已成为世界第二大经济体，但国防实力与之相比还不匹配”，需要加快“军队现代化，确保强军征程”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 9:11 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/28/n12582138.md#1" target="_blank">张菁：中共脱贫“大跃进” 自造脱贫标准</a><br></h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/28/n12582138.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/1110071113192039-600x400-150x120.jpg" align ="left"></a>中共的脱贫大跃进就是一场闹剧，轰轰烈烈走过场，任务完成了，过后该怎么样还怎么样，真正能给贫困人口带来什么真正的改善呢？中共一贯弄虚作假，建政71年后的今天，通过“数字”脱贫，才在纸面上消除了每人每天1.55美元标准的绝对贫困，根本没有达到世行低收入国家的贫困线标准，打的是中共的脸，但受苦的却依然是贫困百姓。中国老百姓什.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 8:59 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/30/n12585026.md#1" target="_blank">李春草：命运共同体之魔影</a><br></h3>妖共肆虐在神州，更向世界处处偷；
-谍满西方统战卧，左控媒休金元媾；
-匪找代理款款媚，经诱市场行行囚；
-绥靖政策养虎患，蚕食无情自遗羞。
-
-左匪相勾同拜钱，假民外壳更避嫌；
-科技肤浅织魔衣，数字作茧缚人权；
-债陷一路援助谎，廉倾世贸共荣圈；
-东郭若解战狼性，不读赤匪开放篇。
-
-面上政分公检法，恐怖专制.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月30日 4:25 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/30/n12585002.md#1" target="_blank">千瑞：唱响正义之歌 铲除红魔之害</a><br></h3>万道雷霆劈红魔，千钧剑戟捣黑窝。
-败家东西败家国，偷鸡摸狗烂一陀。
-恶习不改坏中恶，除掉恶习挥金戈。
-坏人作孽甘做鬼，好人唱响正义歌。
-庚子戌月夜最黑，大巫小妖鬼闹多。
-美利坚国被窃国，共产邪灵暗穿梭。
-毁票偷票假票滥，多猫腻机操控颇。
-民选总统遭暗算，白等木偶任蹉跎。
-无耻媒体在助纣，不良公司科技讹.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月30日 4:13 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/28/n12580784.md#1" target="_blank">徐行：“染疫死四千人等于没人死”的魔鬼逻辑</a><br></h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/28/n12580784.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages2-1205975693-copy-150x120.jpg" align ="left"></a>北京鹰派学者李毅10月16日在“深圳湾论坛”演讲内容遭曝光，这位坚定的“武统”派说：“中国染疫死了4000人，等于没人死”。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 8:21 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/27/n12580608.md#1" target="_blank">世界各国的主力战舰 亚太地区中型驱逐舰</a><br></h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/27/n12580608.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/AdmiralVinogradov2009-150x120.jpg" align ="left"></a>万吨级大型驱逐舰造价高昂，很多国家也无法承担，转而寻求吨位稍小的驱逐舰。5000-8000吨的驱逐舰，现在只能算中型驱逐舰，无法满足全方位的防空、反舰、反潜、对地打击、甚至反导弹能力，只能偏重某些能力、兼顾其它。因此，各国的中型驱逐舰也多种多样。本篇介绍亚太地区各国和俄罗斯的中型驱逐舰。
+俄罗斯的无畏级驱逐舰
+无畏.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月29日 8:15 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/30/n12584981.md#1" target="_blank">唐小风：官员自嘲 王某得了一场大病，我就叫他脱贫了</a><br></h3>中共党媒声称2020年“脱贫”任务已经完成，它们是怎么“脱贫”的？笔者和中国乡镇干部闲谈，说到“脱贫”时，该干部说，上级层层传达命令，规定期限，到期必须脱贫。该干部说，领导说的很明白，别谈客观条件够不够，脱贫问题和政绩挂钩，如果你们的乡镇达不到“脱贫”要求，那你的官运也就到头了。我说，那经济差的地方怎么办，家庭实际收入.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月30日 4:01 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/oesaqp3717/djy/blob/master/gb/20/11/30/n12584946.md#1" target="_blank">海网：基辛格被开激心歌</a><br></h3>大名鼎鼎基辛格，
 小胸戚戚鸡心哥。
