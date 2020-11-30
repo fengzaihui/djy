@@ -7,7 +7,7 @@
 第一件事，11月23日，联邦总务署（GSA）署长Emily Murphy去信拜登，告知对方总务署提供过渡资源，信中说“我确实在网上、电话和邮件中收到了针对我的安全、我的家人、我的员工.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月30日 1:35 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/eiemjl335/djy/blob/master/gb/20/11/29/n12583619.md#1" target="_blank">杨威：美国大选系统性舞弊 哪些人涉入？</a><br></h3><a href="https://github.com/eiemjl335/djy/blob/master/gb/20/11/29/n12583619.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/2011290815291528-1-150x120.jpg" align ="left"></a>代表着美国正义的人们，仍然在大量曝光美国大选舞弊的证据，正义的人们也拒绝接受舞弊的选举结果，因为只有明知输掉选举的人才会这样舞弊、这样铤而走险。但参与舞弊的人也正在输掉选举、输掉未来。
 
-目前所有的选举舞弊事实都表明，民主党候选人拜登是选举舞弊的受益者。在大选之前，民主党高层应该完全清楚，假如拜登与川普正当竞争，川.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月30日 11:05 AM			</td></tr>
+目前所有的选举舞弊事实都表明，民主党候选人拜登是选举舞弊的受益者。在大选之前，民主党高层应该完全清楚，假如拜登与川普（特朗普）正.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年11月30日 11:05 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/eiemjl335/djy/blob/master/gb/20/11/30/n12584056.md#1" target="_blank">王友群：美大选共产幽灵作祟 暗黑势力终必败</a><br></h3><a href="https://github.com/eiemjl335/djy/blob/master/gb/20/11/30/n12584056.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/download-28-600x400-1-150x120.jpg" align ="left"></a>2020年美国总统大选，出现了美国建国244年来最严重的舞弊问题。为什么？在我看来，这实际上是祸害人类170多年的共产主义在灭亡前的最后一次大反扑。
 
 这次大选，共和党总统候选人是现任美国总统川普；民主党总统候选人是前美国副总统拜登。
