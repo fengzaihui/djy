@@ -22,7 +22,15 @@
 <tr><td width="742"><h3><a href="https://github.com/bogtzy313/djy/blob/master/gb/20/12/1/n12588943.md#1" target="_blank">王友群：美国大选严重舞弊的十个证据</a><br></h3><a href="https://github.com/bogtzy313/djy/blob/master/gb/20/12/1/n12588943.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/a3558204d8ac70760b9379868d073e4d-600x400-150x120.jpg" align ="left"></a>2020年美国总统大选，出现了美国有史以来最严重的舞弊问题。越来越多的严重舞弊的真相正在被揭露出来。这里介绍十个由著名网络专家、前军队情报官员、选举安全专家、州参议员、退役将军等提供的十大证据：
 证据一，宾州邮寄选票离奇多出近113万张
 11月27日，宾夕法尼亚州参议员马斯特里亚诺发推文称：宾州官方寄出182万31.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月02日 9:49 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/bogtzy313/djy/blob/master/gb/20/12/1/n12588063.md#1" target="_blank">【名家专栏】高科技“恶霸”——推特</a><br></h3><a href="https://github.com/bogtzy313/djy/blob/master/gb/20/12/1/n12588063.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/6cade3d3196a0d2ff49abdffb1231179-600x400-150x120.jpg" align ="left"></a>推特的泛政治化，标示着一个珍贵的机会——我们原本可以看到网路力量的真实改革以及国家对言论自由的深刻探讨，已从我们身边消失。现在更多的是，到处充斥着政治敌意及左派为确保其永久政治权力的野心。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月02日 9:28 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/bogtzy313/djy/blob/master/gb/20/12/3/n12593086.md#1" target="_blank">伍新： 中共备战号坟边哀声嚎</a><br></h3>备战号连连，中共何戏演？
+藉以集大权，这手不稀罕。
+一九七九年，找茬侵越南。
+别的皆借口，反击是贼喊。
+邓小平搂枪，才是真机关。
+军委习主席，枪管少实弹。
+一杆欲插底，弹药库统管。
+可惜门太多，奇缺忠实犬。
+子弹全上膛，又怕枪口转。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月03日 4:03 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bogtzy313/djy/blob/master/gb/20/12/2/n12591715.md#1" target="_blank">夏林：神秘服务器 美国大选舞弊的关键证据</a><br></h3>前英国大律师迈克尔?史林普顿在《今日老兵》发表一篇文章，证实法兰克福的确有这个服务器。更重要的是，美国中情局在控制这个服务器并且用某些软件操控选票，把川普的票转给拜登。英国的情报机构MI6知道这件事。中共和欧盟一些国家的元首在大选之前就已经知道拜登一定会“赢”，所以选举第二天，欧盟很多国家就纷纷给拜登发贺电。中共由于深.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月03日 5:29 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/bogtzy313/djy/blob/master/gb/20/12/2/n12590865.md#1" target="_blank">陈达：“命运共同体”实为“‘共’统命运体”</a><br></h3>“命运共同体”，老自揭画皮：
 邪灵毁人套，“‘共’统命运体”。
