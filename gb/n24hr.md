@@ -466,18 +466,6 @@ https://youtu.be/Q8Y6u0FyFa8
 <tr><td width="742"><h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/4/n12595168.md#1" target="_blank">【西岸观察】舞弊铁证浮出 巴尔何时出手？</a><br></h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/4/n12595168.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/1203-west-cover02-150x120.jpg" align ="left"></a>大家好！欢迎收看西岸观察，我是林骁然。主流媒体和左派政客，甚至是司法部都声称没有所谓的大选舞弊的证据，今天川普的律师团队就在乔治亚州的听证会上给出了一个看得见的铁证，足以推翻目前该州的计票结果。与此同时，川普总统和美国国会的共和党议员们再度向司法部长巴尔喊话，要他立即采取行动，立案调查大选舞弊和欺诈，那么巴尔到底在犹豫.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月04日 3:58 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/3/n12594439.md#1" target="_blank">【新闻看点】政变4大显像 拜登背后中共黑影</a><br></h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/3/n12594439.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/1203DJY-150x120.jpg" align ="left"></a>“沼泽，真的很糟糕，比我想像的至少还要糟糕20%。有很多抽干沼泽的工作要做。这就是为什么他们为了让川普总统下台而如此竭尽全力，尝试使用书中所有肮脏的、令人讨厌的、邪恶的、非法的手段来达到目的。是的，这是纯粹的邪恶。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月04日 3:35 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/4/n12594723.md#1" target="_blank">【独家】文件泄中共暗中阻华人回国的手段</a><br></h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/4/n12594723.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1214577005-600x400-150x120.jpg" align ="left"></a>因中共隐瞒疫情，造成全球中共病毒（武汉肺炎）疫情的大爆发。近日大纪元获得河北多地的内部文件，曝光了多地中共外事部门劝阻海外华人回国的手段，而这些内容鲜有公开报道。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月04日 3:32 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/6/n12599502.md#1" target="_blank">吴新：中共对川普“搞不定”因根本“读不懂”</a><br></h3>川普一演讲，中共便恐慌。
-政治局刚散，匆忙聚会场。
-搞不定川普，恐惧烦恼苦。
-无孔不渗入，间谍美密布。
-说客一群群，代言一璐璐。
-中心转经济，枪口钱眼替。
-贪战之俘虏，葡萄成嘟噜。
-本想一素人，不过一商贾。
-搞定最容易，不必换路数。
-解数全使尽，油盐均不进。
-就是搞不定，反老被打懵。
-为何搞不定.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月06日 11:27 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nogonq345/djy/blob/master/gb/20/12/6/n12599494.md#1" target="_blank">振玉：鹧鸪天?颠覆</a><br></h3>美利坚蒙上帝钟，
 星条旗泛自由风。
 共和高举神明照，
