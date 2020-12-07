@@ -37,11 +37,22 @@
 <tr><td width="742"><h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12598155.md#1" target="_blank">乔州数据库现怪象：选民超过成年公民人数</a><br></h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12598155.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/158bb3a3e5146a7f0c5d44d1f99dd2cc-150x120.jpg" align ="left"></a>笔者在等待了十几天后，终于拿到了乔治亚州选民数据库的下载网址电邮。打开这个数据库第一个发现的问题是：100%的乔州成年公民都登记成为选民？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月06日 5:56 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12598436.md#1" target="_blank">王维洛：对三峡工程的再审计</a><br></h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12598436.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2014/03/1403291248282403-150x120.jpg" align ="left"></a>1992年邹家华代表国务院向全国人大代表解释，三峡工程需要筹款的数目是投资额的一半，发电收入可以覆盖投资额的另外一半。筹资有多种渠道如发行债券、银行贷款、利用外资等。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月06日 5:12 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12598131.md#1" target="_blank">【名家专栏】巴雷特不是女王 是法官</a><br></h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12598131.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1229050957-600x400-150x120.jpg" align ="left"></a>目前我们正在走向可能发生的选举门高潮，最后会在最高法院里作判决，那么最近确认的大法官——巴雷特（Barrett）的影响就十分重要了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月06日 2:53 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12597338.md#1" target="_blank">世界各国的主力战舰 多用途两栖攻击舰</a><br></h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/5/n12597338.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/43813725254_16c8583327_o-150x120.jpg" align ="left"></a>世界各国海军中，还有两类数万吨级的大型水面战舰，就是两栖攻击舰，和船坞登陆舰。排在第一位的自然还是美国，最新的美利坚级两栖攻击舰2艘，黄蜂级8艘；还有各类船坞登陆舰23艘。
+<tr><td width="742"><h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/7/n12600926.md#1" target="_blank">潭星：为正义而战</a><br></h3>这是一个混乱的世界，
+人们内心渐渐迷惑，
+为了灵魂的复苏与觉醒，
+让我们为良知而战。
 
-美国之外，拥有两栖攻击舰的国家还包括：法国、西班牙、澳大利亚、日本、韩国、埃及、巴西。意大利、俄罗斯、土耳其和中共也在建造中。
+这是一个迷惘的时代，
+魔鬼正统治着世界。
+为了生命的自由与尊严，
+让我们为正义而战。
 
-两栖攻.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月06日 2:26 AM			</td></tr>
+中共病毒肆虐，
+全球遭受致命危害。
+红魔挡道，
+普世价值正遭践踏。
+认清邪恶的伎俩，
+让我们为重塑神圣的信仰而宣战......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月07日 4:39 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/eassqe376/djy/blob/master/gb/20/12/7/n12600908.md#1" target="_blank">吐为快：中美关系二篇</a><br></h3>玉楼春
 红楼独倚马列迷，
 茕影暗伤粉丝寂。
