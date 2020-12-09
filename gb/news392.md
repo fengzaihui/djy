@@ -29,8 +29,32 @@
 <tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602497.md#1" target="_blank">求清者：汇丰银行这笔账我们定要算清</a><br></h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602497.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2012/07/1012011555341366-150x120.jpg" align ="left"></a>香港汇丰银行两日前，突然将流亡英国的香港立法会议员许智峰和他家人所有银行户口冻结起来，令到许家在英国生活资金链断裂，作为一家国际商业金融机构，竟然可以在毫无理据之下随意冻结客户的私人户口，此举不但侵犯了个人私有财产权，还让香港多年来辛苦建立的金融中心良好信誉毁于一旦。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月08日 9:19 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602258.md#1" target="_blank">向真：从电影《归途》得奖看迫害真相</a><br></h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602258.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/51-Awards-150x120.jpg" align ="left"></a>由新世纪影视制作的《归途》，近期再获得美国和印度的两个国际电影节奖项。截至目前，该片累计获得了51个电影节奖项。《归途》取材于真人真事，讲述一位身患绝症的电影明星在绝望中重新找到生命的意义，并通过修炼法轮功绝处逢生的故事。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月08日 5:43 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12601463.md#1" target="_blank">英文大纪元：选举遭攻击 美国人应挺身而出</a><br></h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12601463.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/djt-donald-trump-700x420-150x120.jpg" align ="left"></a>12月2日，美国总统唐纳德?川普（特朗普）发表演讲，详细介绍了2020年大选中的一些违规和欺诈行为，他说︰“作为总统，我没有比捍卫美国法律和《宪法》更高的职责。”“这就是为什么我决心保护我们的选举制度。这个制度正受到蓄意攻击和围攻。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月08日 4:31 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12601454.md#1" target="_blank">【名家专栏】“大重置”与“大干预主义”风险</a><br></h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12601454.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-908676206-web-1200x716-150x120.jpg" align ="left"></a>发达市场的总债务，包括政府、企业和家庭，在第三季度升至GDP的432%。在同一时期，新兴市场的债务与GDP之比也上升到了接近250%，中国的这一比例达到了335%，预计全年将达到全球GDP的365%左右。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月08日 4:08 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602088.md#1" target="_blank">《扶摇直上》影评：逆境追光 爱与信仰的力量</a><br></h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602088.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/UWS_Poster_Chinese_V1-150x120.jpg" align ="left"></a>闷热的夏天的夜晚，蚊子嗡嗡围绕的路灯下，七岁的扶摇躺在学校操场的长椅上，头枕着妈妈的腿，不知道自己的未来会怎样。她的新闻主播爸爸被强迫做奴工。她的妈妈被禁止再教书。和妈妈一起，扶摇被软禁在妈妈以前教书的学校里。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月08日 4:08 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12606454.md#1" target="_blank">理悟：沼泽鱼鳖不自量</a><br></h3>共产邪灵好猖狂
+渗透赤化全球忙
+无孔不入伸魔手
+硝烟虽无皆战场
+川普拜登竞总统
+正邪大战看短长
+神选之子多正气
+苦战不懈有神帮
+邪灵附体一傀儡
+共党壮胆丑登场
+一时大选浊浪起
+沼泽鱼鳖争亮相
+俱休矣，天收网
+邪门舞弊皆爆光
+世事纷繁有定数
+螳臂当车不自量
+怎容共妖任胡为
+阴谋败露看下场......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月09日 7:23 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12606442.md#1" target="_blank">关乐：美国制裁中共人大所有副委员长感言</a><br></h3>趁美大选紧钻空，
+欺压港民再发疯。
+自当得计暗得意，
+未料劈头挨打疼。
+副委员长十四名，
+一一制裁一不剩。
+在美财产给冻结，
+连同家属禁入境。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月09日 7:17 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12605203.md#1" target="_blank">【纪元专栏】渥京花钱失控 国民需觉醒</a><br></h3>特鲁多领导的加拿大自由党政府借疫情救助之名，敞开国库发钱，截至目前今年全年赤字破3,816亿元。赤字如此巨大，渥京不仅无丝毫收敛迹象，还打算借疫情之名，推动此前一直苦于找不到机会和借口推动的一些所谓进步的社会主义大锅饭，如全民药保和托儿计划。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月09日 10:00 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/8/n12602678.md#1" target="_blank">美国科学院：美驻华外交官受到微波武器攻击！</a><br></h3>2017-2018年，美利坚合众国驻广州总领事馆一批外交官经常头昏脑胀、昏昏沈沈，而且意识模糊，无法集中注意力工作。这种群体现象很快引起了驻华大使馆的注意，相关报告迅速递交给美国国务卿蓬佩奥。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月08日 9:58 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602226.md#1" target="_blank">郑纯清：左媒防火墙筑自绝墙</a><br></h3>川普乔州去演讲，
