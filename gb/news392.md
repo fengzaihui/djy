@@ -25,6 +25,14 @@
 <tr><td width="742"><h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12605404.md#1" target="_blank">【名家专栏】高唱不要纠缠的人需面对川普胜选</a><br></h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12605404.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/state-farm-arena-ballots-1200x800-150x120.jpg" align ="left"></a>罗斯?杜海特（Ross Douthat）是一个假保守主义者。《纽约时报》喜欢利用他来提供冠冕堂皇的说辞去掩盖其报纸的奇谈怪论。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月10日 1:29 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12607054.md#1" target="_blank">吴侃：美国大选中的左与右</a><br></h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12607054.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/08/Biden-and-Trump-1200x732-150x120.jpg" align ="left"></a>左媒和大科技公司的虚假宣传和钳制人们言论自由，在现实中制造了一个恐怖的气氛，让期盼自由的美国人感到压抑，左派与右派成了今天美国大选的一个话题，政治纷争的话语，左右的概念在当今又变得非常复杂。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月10日 12:50 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12606473.md#1" target="_blank">颜纯钩：中共加速走上自毁之路</a><br></h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12606473.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/1012011555341366-600x400-150x120.jpg" align ="left"></a>许智峰与家人的汇丰银行户口被封之后，又被部分解封，解封之后，一夜之间又再被封，这件事显示了中共港共内部的一种反常心理症候。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月09日 9:56 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12611463.md#1" target="_blank">伍新：“美国疫情”与“中国（共）特色”</a><br></h3>摇摆州攘攘，窃选主角莽。
+宪法踏脚底，立国之本茫。
+自然成被告，“美国疫情”搪。
+无理明狡辩，威胁气昂昂。
+生米愣烧焦，既成黑术方。
+其实这一套，东施把颦效。
+红毒浸肝肺，草草作业抄。
+疫瞒满全球，幸灾乐祸闹。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月11日 3:29 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12611461.md#1" target="_blank">吐为快：末日中共（两首）</a><br></h3>妖骨哪堪制裁，
 强盗还擅强拆。
 途穷唯假军队威，
@@ -62,13 +70,5 @@
 螳臂当车不自量
 怎容共妖任胡为
 阴谋败露看下场......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月09日 7:23 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12606442.md#1" target="_blank">关乐：美国制裁中共人大所有副委员长感言</a><br></h3>趁美大选紧钻空，
-欺压港民再发疯。
-自当得计暗得意，
-未料劈头挨打疼。
-副委员长十四名，
-一一制裁一不剩。
-在美财产给冻结，
-连同家属禁入境。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月09日 7:17 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/ijbtww307/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ijbtww307/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ijbtww307/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/ijbtww307/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ijbtww307/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/ijbtww307/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
