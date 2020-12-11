@@ -5,9 +5,7 @@
 11月20日，中共军网报导《第81集团军某旅提升训练难度：新弹种射击考核不见厂家保障》。
 
 报导描述，“近日，第.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月12日 4:15 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ovvahj3114/djy/blob/master/gb/20/12/11/n12614134.md#1" target="_blank">杨威：美制裁迫害法轮功的中共官员 戳最要害</a><br></h3><a href="https://github.com/ovvahj3114/djy/blob/master/gb/20/12/11/n12614134.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/06/D010773-150x120.jpg" align ="left"></a>12月10日，美国宣布制裁参与严重侵犯人权的17名外国现任和前任政府官员，其中包括迫害中国法轮功学员的厦门市公安局梧村派出所所长黄元雄（Huang Yuanxiong）。这是美国政府首次公开直接制裁迫害法轮功的中共恶棍，也是美国政府对中共政权的一系列制裁中，直接触及中共最要害的一击。
-
-在人权日之际，美国政府的制裁.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月12日 4:09 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/ovvahj3114/djy/blob/master/gb/20/12/11/n12614134.md#1" target="_blank">杨威：美制裁迫害法轮功的中共官员 戳最要害</a><br></h3><a href="https://github.com/ovvahj3114/djy/blob/master/gb/20/12/11/n12614134.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/06/D010773-150x120.jpg" align ="left"></a>12月10日，美国宣布制裁迫害中国法轮功学员的厦门市公安局梧村派出所所长黄元雄（Huang Yuanxiong）。这是美国政府首次公开直接制裁迫害法轮功的中共恶棍，也是美国政府对中共政权的一系列制裁中，直接触及中共最要害的一击，也是解体中共政权最有效的途径。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月12日 4:09 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ovvahj3114/djy/blob/master/gb/20/12/11/n12614108.md#1" target="_blank">周晓辉：川普首提政变 三大战场持续推进</a><br></h3><a href="https://github.com/ovvahj3114/djy/blob/master/gb/20/12/11/n12614108.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/trump-1-150x120.jpg" align ="left"></a>当今世界的热点无疑首推美国大选，随着愈来愈多舞弊证据的曝出，随着越来越多的美国人站出来支持川普（特朗普）总统，随着法律诉讼的推进，川普逆转并赢得大选已并不出意外。
 
 美国当地时间12月10日上午，川普在1个小时内接连发出9条推文，指控民主党盗窃了他的胜利，表示国家不应该由不合法的总统来管理，呼吁美国人民和最高法院拯.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月12日 3:56 AM			</td></tr>
