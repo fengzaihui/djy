@@ -33,6 +33,7 @@
 <tr><td width="742"><h3><a href="https://github.com/aempzt3907/djy/blob/master/gb/20/12/12/n12614639.md#1" target="_blank">世界各国的主力战舰 战略弹道导弹核潜艇</a><br></h3><a href="https://github.com/aempzt3907/djy/blob/master/gb/20/12/12/n12614639.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/49530653178_8aec3af4b1_o-150x120.jpg" align ="left"></a>核武器是战略威慑力量，在首先遭受核打击之下，能够保持有效的核反击能力也成为核威慑的关键。三位一体的战略核打击力量中，陆基洲际弹道导弹最容易被摧毁，战略轰炸机被打击的风险也很大，长期在水下巡弋的战略核潜艇很难被发现，才是维持核打击力量的最有效手段。
 
 冷战期间，美苏曾展开战略核潜艇的军备竞赛，冷战之后，美国仍然保持了.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月13日 5:43 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/aempzt3907/djy/blob/master/gb/20/12/14/n12620548.md#1" target="_blank">吴惠林：到地狱之路往往是由善意铺就的</a><br></h3>胶着的2020年美国总统大选，不仅是何人、何党会当选的选战，更是正与邪的大战，而且关乎美国会不会由自由民主、自由经济、资本主义、市场经济体制走向社会主义体制。为何川普总统三番两次拒绝社会主义，甚至极力批判？究竟社会主义是何物？其可怕之处又在哪？日前偶然间翻阅汤玛斯?索威尔（Thomas Sowell）在2003年出版的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月15日 4:58 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/aempzt3907/djy/blob/master/gb/20/12/14/n12619122.md#1" target="_blank">李春草：梦断红楼（外一篇）</a><br></h3>毁了香港祸事长，欲罢不能渊万丈；
 有钱难存娥含泪，无力救冻匪叹洋；
 六四枪声惊梦里，九九蟾影掀诉江；
@@ -42,9 +43,5 @@
 国妖红魔豪赌
 大是大非大选
 选择正义川普......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月13日 5:40 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/aempzt3907/djy/blob/master/gb/20/12/12/n12615975.md#1" target="_blank">祝君安：烛影摇红（外一篇）</a><br></h3>冷战疫炎，红楼徒唤奈何天。
-前年战狼燎虐焰，瑶瑟奏国宴。
-权贵漫天撒钱，向西边，渗透收编。
-坑蒙拐骗，妖风漫卷，赵家乐园。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月13日 5:30 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/aempzt3907/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/aempzt3907/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/aempzt3907/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/aempzt3907/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/aempzt3907/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/aempzt3907/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
