@@ -4,7 +4,7 @@
 美国有史以来最严重的选举舞弊
 关于此次大选舞弊问题，已经揭露出来的事实触目惊心。因事实太多，这里仅举三例。
 
-11月30日，美籍印度裔科学家、马萨诸.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月15日 12:28 PM			</td></tr>
+11月30日，美籍印度裔科学家、马萨诸.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月15日 2:16 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/hqixxg3677/djy/blob/master/gb/20/12/6/n12599674.md#1" target="_blank">沈舟：中共的“实战演习”如何造假（五）</a><br></h3><a href="https://github.com/hqixxg3677/djy/blob/master/gb/20/12/6/n12599674.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-12292299461-150x120.jpg" align ="left"></a>习近平要求“聚焦备战打仗，坚持实战实训”，“从严治军，坚决纠治形式主义、官僚主义”。但中共军队的各种训练却造假不断，前面讲了不少“实战演习”的趣事，再来看看其它更有趣的故事。
 电台调频考试如何作弊
 12月1日，中共军网报导《那天我在考场上钻空子完成了考核，连长并没有当场拆穿我》。
