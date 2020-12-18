@@ -29,7 +29,15 @@
 <tr><td width="742"><h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12625658.md#1" target="_blank">杨威：习近平不得不面对新一轮内斗</a><br></h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12625658.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1229231664-150x120.jpg" align ="left"></a>中共高层一直极力掩盖内部争斗，但近期却忽然有195万党员资料外泄，中共一下不知所措；12月16日，中共党媒忽然发表文章《“崇美”“跪美”的软骨病得治！》，公开了中共内部的不同声音。中共新一轮内斗再露苗头。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月17日 8:22 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12625507.md#1" target="_blank">李纯钧：读史鉴今 美国从来不缺有勇气的人</a><br></h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12625507.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/Epoch-Times-Jenna-Ellis-510A2830-700x420-600x400-1-150x120.jpg" align ="left"></a>亿万众瞩目的德州诉四州选举违宪一案，不可思议的被最高法院拒绝了。被视作国家司法支柱一般存在的大法官们，面对这个国家宪政危机的当口，选择做了逃兵，他们闪了，他们不敢接这个案子。相信在这一刻，无论他们如何用所谓的程序来辩解，人们心中对大法官的尊敬已经轰然崩塌了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月17日 6:28 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12624604.md#1" target="_blank">世界人权日 美国制裁迫害法轮功的中共官员</a><br></h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12624604.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/20140717LARRY-DYE-1200x798-150x120.jpg" align ="left"></a>在今年世界人权日（12月10日）之际，美国国务卿蓬佩奥发表声明，公开指认参与严重侵犯人权的17名外国官员。这份简短的声明中包含了三个名字。其中之一是中国厦门市公安局梧村派出所所长黄元雄（Huang Yuanxiong），因“参与严重侵犯人权行为……尤其严重地侵犯了法轮功学员的信仰自由”而受到制裁。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月17日 5:34 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12624488.md#1" target="_blank">世纪之问：难道“主流媒体”都错了？</a><br></h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/16/n12624488.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/10/GettyImages-1176353531-150x120.jpg" align ="left"></a>在中国大陆的精英阶层，几乎相当多的人认为，拜登当选，而川普打官司没什么用了。说到舞弊，有人会问，为什么没有一个主流媒体报导？这在国内的知识阶层中，是比较常见的问题。这几乎是21世纪以来的最尖锐的一个问题：难道美国的民主灯塔偏移了、主流媒体都错了？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月16日 6:44 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/17/n12628793.md#1" target="_blank">祝君安：菩萨蛮·老天是在选善民（外一篇）</a><br></h3>川普稳健法庭讼，
+拜登急切宣总统。
+真相破壳中，
+赵心兔儿蹦。
+
+左媒瞎且聋，
+贺拜压宝匆。
+沼干怪露日，
+竹篮打水空。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月18日 7:57 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/scfwbo300/djy/blob/master/gb/20/12/17/n12628768.md#1" target="_blank">伍新：美国大选告诉世界</a><br></h3>美国大选告诉世界，
 天意民心人间根脉。
 川普当选党非关键，
