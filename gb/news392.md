@@ -30,7 +30,9 @@
 共和党大佬低头
 选举人团投票结束后左派媒体再次宣称拜登获胜，新兴媒体Newsmax曾因支持川普收视率超.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月19日 11:10 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rhyijr397/djy/blob/master/gb/20/12/19/n12631298.md#1" target="_blank">【有冇搞错】美国人这次真“痛”了</a><br></h3><a href="https://github.com/rhyijr397/djy/blob/master/gb/20/12/19/n12631298.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/mandarin1200x800-3-150x120.jpg" align ="left"></a>沼泽的黑色力量巨大，川普对选举舞弊的战斗，正常程序和司法途径几乎全部断绝，他是否采取最后的断然措施？美国人这次被打痛了，被打醒的老虎，或震惊世界。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月19日 10:57 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/rhyijr397/djy/blob/master/gb/20/12/19/n12631962.md#1" target="_blank">洪达：神藉大选舞弊考验人心</a><br></h3><a href="https://github.com/rhyijr397/djy/blob/master/gb/20/12/19/n12631962.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/2012121117041528-600x400-1-150x120.jpg" align ="left"></a>二零二零年十二月十六日，美国最高立法机构召开听证会，国会邀请六位证人出席，分别介绍了总统选举的各种舞弊，包括各州临时更改选举规则、通过邮寄选票增加非法选票、投票机与计票查核遇阻等。目前至少已有四位参议员表示，不排除反对选举人团投票结果。众议员莫?布鲁克斯（Mo Brooks）当日再度表示，自己不会放弃挑战选举欺诈，且对.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月19日 7:24 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/rhyijr397/djy/blob/master/gb/20/12/21/n12635351.md#1" target="_blank">李琳：致美国军人“我的选票哪去了”</a><br></h3>尊敬的美国军人：你们好！
+
+我曾经是一名中国军人，退伍了，1973年——1978年作为工程兵，参与修建义乌机场，邮箱号码是1406。我又是一名退休法官，熟知证据审查，惯见诉讼谎言。因武汉肺炎疫情，困居美国，一年有余。故此有机会，深度理解2020年美国大选。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月21日 4:16 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rhyijr397/djy/blob/master/gb/20/12/21/n12635324.md#1" target="_blank">祝君安：末日三弄</a><br></h3>长相思
 
 马列毒，
