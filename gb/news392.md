@@ -43,7 +43,6 @@
 <tr><td width="742"><h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/20/12/21/n12635503.md#1" target="_blank">张菁：文革中演样板戏《红灯记》招致的厄运</a><br></h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/20/12/21/n12635503.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/1207290947181944-600x400-150x120.jpg" align ="left"></a>经过文革的洗脑，中国人养成了说话小心翼翼的习惯，尤其是与政治相关的话，更是生怕不小心触犯了什么禁区。因为在那个年代，不用说喊错一句口号或念错一段领袖语录，即便是在日常工作或生活中，无心的一句话或并无恶意的一句口误就能导致被扣上“现行反革命”的帽子，立刻成为“敌我矛盾”，被整被打被杀，都是可能的结局。
 
 以下的小故事.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月21日 7:23 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/20/12/23/n12639306.md#1" target="_blank">千百度：大陆留学生为什么那么多小粉红？</a><br></h3>“直接和间接接触到的留学生，公费自费的，世界名校的，二三流的，各种留学生，很多在国外天天说国外的不好，夸中国的各种强大。真的是无语，在国外受点委屈就说是歧视，就说是被看不起了。他们经常说，毕业就回国发展，受够xx国了。”日前，一位网友在海外最大的问答网站上如此描述他接触过的大陆留学生。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月23日 11:55 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/20/12/23/n12639287.md#1" target="_blank">袁斌：中共用谎言为暴力鸣锣开道和包装掩饰</a><br></h3>自古以来，谎言不但是人世间所有暴行暴政的孪生姐妹，而且是一切暴力赖以维系的最根本的基础。世界上再暴虐的政权，都无法单靠暴力维持，就连强大的纳粹德国，也要有戈培尔；不可一世的萨达姆，也需要萨哈夫。可以说，离开了谎言，暴力连一天也维持不下去。正如俄罗斯作家索尔仁尼琴指出的那样，“暴力并不是孤零零地生存的，它与虚假相互依存.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月23日 11:32 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/20/12/23/n12639248.md#1" target="_blank">张林：为何中国移民体内金属含量远高于西方人</a><br></h3>据最新一期的《美国移民与难民研究》杂志披露，中国移民重金属中毒的情况在各国移民中最为严重。文章引用纽约移民体检数据：中国移民体内的铅含量比亚洲其他国家，如越南、韩国、印度等国高出44%！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月23日 11:17 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/20/12/21/n12636729.md#1" target="_blank">袁斌：中共的谎言保障机制</a><br></h3>纵观中共从起家到今天的近100年历史，从未受过中共谎言欺骗的中国人可以说为数甚少，绝大多数中国人都曾上过它的当，只是受骗的多少和长短有所不同而已。即使是在“文革”结束四十多年后的今天，被中共蒙在鼓里抱着谎言不放的仍大有人在。还有不少人，尽管能识破中共的某些谎言，但对另一些谎言却仍然信以为真，虽然觉醒了，但觉醒得并不彻底.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月22日 11:02 AM			</td></tr>
@@ -78,5 +77,22 @@
 前年牛气足，
 妖气满红楼，
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月21日 3:48 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/20/12/21/n12635315.md#1" target="_blank">关乐：红朝末了无完卵</a><br></h3>断水断电断室暖，
+寒冬强拆大年前。
+香堂文化新村劫，
+三千余户付尘烟。
+说是龙脉气口堵，
+红二代也不二般。
+抗拒亮出合同书，
+党妈岂认这酒钱？
+千年地契一炬烬，
+初一政策十五燃。
+共产天下产共尽，
+灭私有制管房产？
+入党团队立誓言，
+一切皆要为党献。
+党临坟坑需陪葬，
+眼前只为延残喘。
+.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月21日 3:37 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/anpjos3747/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/anpjos3747/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/anpjos3747/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/anpjos3747/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/anpjos3747/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/anpjos3747/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
