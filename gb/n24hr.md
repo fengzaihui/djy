@@ -4,6 +4,9 @@
 https://youtu.be/pzyzahgC73c
 
 过去的一年是极为不平常的一年，中共病毒瘟疫肆虐全球，而且病毒出现了.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 2:53 PM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642130.md#1" target="_blank">中共威胁 国军新编5滩岸守备旅3年内完成</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642130.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/465255-150x120.jpg" align ="left"></a>因应中共军队对台湾威胁，国防部今年10月提出“精进后备战力”改革方案，其中部队改革部分，国防部澄清，国军新编5个滩岸守备旅，预计112（2023）年底全数编成，届时将有12个滩岸守备旅。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:50 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642110.md#1" target="_blank">维护国安 加拿大拒中共国企收购北极金矿</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642110.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2012/12/1212230207201882-150x120.jpg" align ="left"></a>加拿大政府以“维护国家安全”为由，终止了山东黄金矿业股份有限公司（Shandong Gold Mining Co.，Ltd.）收购加拿大金矿集团TMAC Resources的计划，该企业在北极圈以北120英里处拥有一座黄金矿场。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:41 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642071.md#1" target="_blank">袁斌：官媒为“上山下乡”翻案遭网友痛斥</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642071.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/5f1c1bb4ffc637989845932236d15260-600x400-1-150x120.jpg" align ="left"></a>知识青年上山下乡，祸及了全中国几千万人，是文革中的一场噩梦。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:41 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/22/n12637840.md#1" target="_blank">台湾本土个案176名接触者 检验结果全数出炉</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/22/n12637840.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/07/0729_3-150x120.jpg" align ="left"></a>一名纽西兰籍机师因未落实防疫，导致一名台籍女性（案771）染疫。台湾中央流行疫情指挥中心指挥官陈时中今天（24日）表示，该个案176名接触者检验结果全数出炉，无论核酸、抗体检验均阴性。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:31 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642098.md#1" target="_blank">创造在地好食味  桃仔园米食新产品</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642098.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/476022-150x120.jpg" align ="left"></a>桃园在地米食新产品，冬季节庆好送礼，为行销推广桃园在地的产销履历稻米及有机蔬菜，行政院农业委员会农粮署北区分署辅导桃园市桃园区农会以产销履历米谷粉及小松菜开发葱米蛋卷、小松米蛋卷、米蛋糕、米吐司、小松雪Q饼及小松飞机米饼干等米谷粉含量50%以上的烘焙产品，并于24日在桃园区农会本会办理米谷粉烘焙产品发表会及行销推广活动.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:10 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642023.md#1" target="_blank">教育部评核区网中心 中央大学连三年“特优”</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642023.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/476010-150x120.jpg" align ="left"></a>中央大学107、108、109年获得教育部区网中心评核“特优”殊荣，首次连续三年荣获此项最高荣誉肯定。中央大学电算中心承接桃园区域网路中心维运重任，肩负桃园地区大专院校、高中职及桃园市、金门县及连江县等三个教育网路中心介接，掌管的幅员为全国最广。同时有效运用有限人力及自动监测系统进行骨干网路管理及维运，相关研究成果获 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:02 PM			</td></tr>
@@ -717,25 +720,6 @@ Woolworths证实，疫情升温后居民对厕纸和手纸巾的需要出现激�
 
 
 中心主任蒋翼鹏勉励学员学习丰富的文化营内容，包含旅游攻略——带我去台湾，听说我都行——必备旅游中文， 最重要的一件事——台湾美食，诗和远方——台湾风俗民情文物，台湾童玩.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月22日 7:54 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/21/n12636486.md#1" target="_blank">加国考虑批准Moderna疫苗 病毒变异影响有效性？</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/21/n12636486.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1230141575-150x120.jpg" align ="left"></a>美国周一（12月21日）开始分发Moderna疫苗，这种疫苗储藏条件要比辉瑞疫苗要求低，因此对偏远地区居民尤其重要，但注射疫苗后带来的副作用仍在被密切监控中。目前尚不清楚加拿大人何时能看到Moderna疫苗获准在该国使用，而且英国和南非出现的冠状病毒（中共病毒）变种也令人担忧。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月22日 7:48 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/21/n12636740.md#1" target="_blank">组图：夏威夷民众继续在周末集会挺川</a><br></h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/21/n12636740.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/IMG_8291-150x120.jpg" align ="left"></a>上周六（12月19日）夏威夷民众继续在州议会大厦周围游行请愿，要求“停止窃选”，声援川普总统。往来的行人、车辆亦纷纷挥手、鸣笛以示支持，还有华人民众拉出“打倒中共恶魔”的横幅，抗议中共政权对美国的侵蚀破坏。
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-关注我们facebook主页，及时获得更多资讯.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月22日 7:45 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qcifnw3996/djy/blob/master/gb/20/12/24/n12642248.md#1" target="_blank">优质雅房</a><br></h3>
 
 钻石吧，环境优，女性佳，不烟酒，停车便，无宠物。租$550......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:32 PM			</td></tr>
