@@ -2,6 +2,9 @@
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645600.md#1" target="_blank">钟原：中共政治局承认危难如“泰山压顶”</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645600.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/150320194219685-600x400-320x200.jpg" align ="left"></a>12月24日至25日，中共政治局召开民主生活会，每个人都要发言，谈如何带头贯彻落实习近平重要指示、批示和决策部署，进行自我检查、党性分析。这类突出习近平个人权威的方式，并非第一次，也表明此时中共的内斗进入了新高潮，人人需要表态过关。
 
 党媒报导，会议再次肯定了习近平2020年的功绩，因为实际的成果实在拿不出手，但又.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 9:01 AM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/26/n12645881.md#1" target="_blank">袁斌：大陆学者分析川普到底靠不靠谱</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/26/n12645881.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/Trump-boards-Air-Force-One-e1607884676699-700x420-150x120.jpg" align ="left"></a>如果要评选2020全球最热门人物，恐怕非美国总统特朗普先生莫属。
+
+特朗普的关注度虽最高，但引发的争议也最多。这些争议一言以蔽之，就是特朗普靠不靠谱？反他黑他的人认为他不靠谱，而挺他粉他的人则认为他很靠谱。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 11:07 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645434.md#1" target="_blank">李铭：重锤该清醒 退党莫迟疑</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645434.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/07/d49cc330d9c86ff2eccd8e7496a10e7f-150x120.jpg" align ="left"></a>对许多中国人来说，“加入中国共产党”就像取得了一张特别通行证，从此升学或谋职将可一帆风顺，平步青云可期、升官发财有望。近三个月来，美国政府连续出拳，招招直攻红蛇七寸。那些以入党自豪，或对中共抱持幻想者，重锤之下都应该清醒了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 10:19 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645513.md#1" target="_blank">杨宁： 大陆新闻一事一评（1）</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645513.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/1409180658462039-150x120.jpg" align ="left"></a>中共当局将“超前消费”意识作为年轻人负债的理由，其实是为了掩盖压在包括90后在内的中国人身上的诸座大山，尤其是高昂的房价，而导致房价居高不下的幕后推手正是喝人们血的中共。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 5:40 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645511.md#1" target="_blank">夏林（23）：金灿荣评拜登和川普</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645511.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/23-150x120.jpg" align ="left"></a>金灿荣，又一个翟东升 （Di Dongsheng), 看看他是怎么评拜登和川普的。为什么他说拜登是可预测的，而川普简单粗暴。美国真会又一次向中共敞开大门吗？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 5:25 AM			</td></tr>
@@ -42,13 +45,6 @@
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641525.md#1" target="_blank">沈舟：中共与俄军机联合演练为何却噤声</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641525.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-954494296-150x120.jpg" align ="left"></a>12月22日，中共军机参加了与俄罗斯军机的联合演练，区域为东海、日本海，并进入了韩国防空识别区（KADIZ）。韩国空军出动拦截，并致电中、俄，表达关注。日本空中自卫队也出动监视，并公布了较详尽的飞行区域，包括日本海、日本和韩国之间的对马海峡，向南至琉球群岛。
 
 俄罗斯国防部表示，严格按照国际法行事，没有侵犯外国领空.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 2:02 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/23/n12641243.md#1" target="_blank">王友群：14亿中国人民被蒙在鼓里的九大悬案</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/23/n12641243.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/ebb6d30535516986b3fda120df3680d2-600x400-150x120.jpg" align ="left"></a>庚子年即将结束，蓦然回首，发现“中共国”有许多悬案仍然没有着落。但是，这些悬案与全中国人民，甚至全世界人民，都有关联，有必要做一番回顾。
-
-听新闻：
-
-（听更多新闻请至“听纪元”平台）
-一、“八名散布谣言者”案
-2020年1月1日，“中共国”的头号新闻是武汉市警方发布的《八名散布谣言者被依法查处》。该新闻称.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 1:38 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12643919.md#1" target="_blank">吴新：没辙找辙唯剩死辙</a><br></h3>二十二日十二月，
 知青下乡重胡扯。
 中国历史研究院，
