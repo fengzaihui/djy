@@ -39,8 +39,12 @@
 
 俄罗斯国防部表示，严格按照国际法行事，没有侵犯外国领空.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 2:02 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/23/n12641243.md#1" target="_blank">王友群：14亿中国人民被蒙在鼓里的九大悬案</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/23/n12641243.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/ebb6d30535516986b3fda120df3680d2-600x400-150x120.jpg" align ="left"></a>庚子年即将结束，蓦然回首，发现“中共国”有许多悬案仍然没有着落。但是，这些悬案与全中国人民，甚至全世界人民，都有关联，有必要做一番回顾。
+
+听新闻：
+
+（听更多新闻请至“听纪元”平台）
 一、“八名散布谣言者”案
-2020年1月1日，“中共国”的头号新闻是武汉市警方发布的《八名散布谣言者被依法查处》。该新闻称：“近期，武汉市部分医疗机构发现接诊了多例肺炎病例，市卫.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 1:38 PM			</td></tr>
+2020年1月1日，“中共国”的头号新闻是武汉市警方发布的《八名散布谣言者被依法查处》。该新闻称.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 1:38 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641501.md#1" target="_blank">杨威：盘点2020美中风云的转折时刻</a><br></h3><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641501.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1152459804-150x120.jpg" align ="left"></a>美中关系在2020年发生了深刻变化，从1月15日美中第一阶段贸易协议签署时的某些乐观，到岁末的剑拔弩张，经历了不少经典的转折时刻。回顾一年来的这些瞬间，或许能看到内在的本质规律，美中对抗绝非偶然。
 1月15日签署美中第一阶段贸易协议
 经过一年零八个月的贸易战，川普迫使习近平同意签下美中第一阶段贸易协议。
