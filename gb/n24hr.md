@@ -773,16 +773,4 @@ BRE#01966310 NMLS#1292940......<br><img align="bottom" src="https://www.epochtim
 请电沈太 626-716-8893
 
 3060 W.Valley Bl., Alhambra, CA 91803......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:24 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/vvuthu3265/djy/blob/master/gb/20/12/24/n12642206.md#1" target="_blank">公寓出租</a><br></h3>
-
-位Lincoln Hts近Usc医学中心，交便，包水月租$1400。
-
-意者请电626-374-8887......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:19 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/vvuthu3265/djy/blob/master/gb/20/12/24/n12641973.md#1" target="_blank">Taxtech 环球税务所</a><br></h3>
-
-最大退税，合理避税，价格公道，多年经验，全州个人及公司税，公司(非盈利组织)成立、变更、解散、簿记及薪资、销售税各县市执照，外国人税号ITIN 审计上诉，税务规划。
-
-CPA Doris Zhang&amp;EA Manqin He 626-999-5198
-
-2099 S. Atlantic Blvd.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 3:15 PM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/vvuthu3265/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/vvuthu3265/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vvuthu3265/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/vvuthu3265/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
