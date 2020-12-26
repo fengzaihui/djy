@@ -2,6 +2,7 @@
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/25/n12645600.md#1" target="_blank">钟原：中共政治局承认危难如“泰山压顶”</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/25/n12645600.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/01/150320194219685-600x400-320x200.jpg" align ="left"></a>12月24日至25日，中共政治局召开民主生活会，每个人都要发言，谈如何带头贯彻落实习近平重要指示、批示和决策部署，进行自我检查、党性分析。这类突出习近平个人权威的方式，并非第一次，也表明此时中共的内斗进入了新高潮，人人需要表态过关。
 
 党媒报导，会议再次肯定了习近平2020年的功绩，因为实际的成果实在拿不出手，但又.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 9:01 AM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12646262.md#1" target="_blank">李正宽：天象示警 危难关头避疫良方有启示</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12646262.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/7aa188177affdf1296584631ab8178e5-150x120.png" align ="left"></a>《周易》云：“天垂像，见吉凶，圣人像之。”中华文化讲究“天人合一”，天象的变化往往对应着世事的吉凶、人间的福祸。而历史已反复向人们昭示，每个大时代的转折点，往往都从天灾起始。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 4:52 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12646243.md#1" target="_blank">宋善：中共公检法暴行 与黑帮无异</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12646243.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2013/11/1310051019352320-150x120.jpg" align ="left"></a>明慧网近日报导，沈阳市法轮功学员兰立华，因送人新年真相台历而遭中共警察绑架，遭诬判三年十个月，在辽宁省女子监狱染上乙型肝炎，于二零二零年四月二十一日含冤离世，年仅49岁。家属拒绝签字火化、坚持控告追责。十二月十六日，兰立华遗体被监狱强行火化。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 4:12 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12645980.md#1" target="_blank">程晓农：美国两次养壮红色老虎的历史教训</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12645980.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/07/1509082158042039-2-150x120.jpg" align ="left"></a>共产党大国的民主恐惧症和全球征服目标终将导致冷战，这是红色大国与美国必然对抗的制度原因。然而，为什么美苏冷战发生在二战之后，而不是二战之前？为什么中美冷战发生在2020年，而不是2000年？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 1:28 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12645941.md#1" target="_blank">【网海拾贝】向共产主义说不，拒绝中共</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12645941.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/2012240742241154-150x120.jpg" align ="left"></a>上周末，西澳大利亚首府珀斯的天空出现一道不同寻常的景观：一架拖着横幅的飞机在珀斯主要地标的上空，足足飞行了两个半小时，横幅上的英文写着：向共产主义说不，拒绝中共（say no to communism），当日有几万珀斯人目睹了这一盛况。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 11:26 AM			</td></tr>
@@ -39,10 +40,23 @@
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12643585.md#1" target="_blank">颜纯钩：黎智英保释，只是中共恩威并施的花招</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12643585.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/201223113824100311-150x120.jpg" align ="left"></a>今日最大的惊喜是黎智英获得保释。之前的报道，是法庭已拒绝保释申请，突然峰回路转，令人颇感意外。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月25日 5:32 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12643293.md#1" target="_blank">隋志：中共要听话 人民要自由</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12643293.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/10/dfde09e2fcd09f38d1ac1e99d35d25bf-150x120.jpg" align ="left"></a>二零二零年十二月二十四日，中共“国家市场监管总局”公布立案调查电商巨头阿里巴巴的垄断行为。十天前，阿里巴巴等三家公司才分别被罚款50万元。日前“中共政治局会议”与“中央经济工作会议”，都将“反垄断”列为2021年工作要项；十二月二十一日，中共全国人大常委会更宣布，明年将修订“反垄断法”。十一月，习近平前往民营企业众多的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月25日 3:55 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12642726.md#1" target="_blank">【名家专栏】川普总统：承诺并信守承诺</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12642726.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1230085897-150x120.jpg" align ="left"></a>如果有人像我一样，认为美国的伟大之处在于，它必须是一个在上帝之下的自由国度，以及这个理念是使美国保持经济繁荣和道德高尚的核心，我认为川普总统的成就是巨大的。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月25日 3:08 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12643282.md#1" target="_blank">周晓辉：圣诞节的省思与向神祈祷</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12643282.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/12/GettyImages-1190467598-150x120.jpg" align ="left"></a>又是一年圣诞节。众所周知，圣诞节完全是一个宗教意义上的节日，“圣诞节”一词是“基督弥撒”的缩写，是基督耶稣的诞辰之日，因此又被称为“耶诞节”。可以这样说，圣诞节是上帝将耶稣送给人作为爱的礼物的日子，也应当是人向上帝献上礼物和感恩的日子。
+<tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/26/n12646302.md#1" target="_blank">李春草：阮郎归?垄断（两首）</a><br></h3>经济需要民企时，
+政宽闻党笑。
+国企如婆民如媳，
+低眉把党孝。
 
-在西方，圣诞节传统上家人要团聚，远行的人们都要回到自己的父母家，并在圣诞夜享.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月25日 1:06 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12642290.md#1" target="_blank">【网海拾贝】中共对美国进行政治“斩首”</a><br></h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/24/n12642290.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/000_1CM2AL-600x400-150x120.jpg" align ="left"></a>21日，美国著名学者舒尔兹接受福克斯采访时称中共收买美国顶级政客，是对美国政治“斩首”。——LT视界：没想到国会两院领导人都已中招。去年赵小兰面对众议院调查，她辩解称：尽管家族公司与中国密切，自己没拿家族公司一分钱。但是2008年她父亲一次性给了她和麦康奈尔2500万美元。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月24日 4:33 PM			</td></tr>
+专制党，
+势如网，
+民企猪养肥，
+送上砧板泪眼汪，
+谢党恩浩长。
+
+摊破浣溪沙
+
+赵国运消党库涩，
+蛮割韭菜又强拆。
+赤魔相濡共保党，
+权相遮。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月26日 5:01 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qclzgn3567/djy/blob/master/gb/20/12/25/n12643919.md#1" target="_blank">吴新：没辙找辙唯剩死辙</a><br></h3>二十二日十二月，
 知青下乡重胡扯。
 中国历史研究院，
