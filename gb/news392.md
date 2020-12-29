@@ -5,11 +5,7 @@
 4月19日晚，中纪委发布消息称，公安部副部长孙力军因严重违纪违法被查。
 
 孙力军曾担任过公安部办公厅副主任，公安部党委委员.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月30日 2:22 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/26/n12646843.md#1" target="_blank">【2020盘点】美军关键武器测试（下）</a><br></h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/26/n12646843.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/201029-F-CV364-001-150x120.jpg" align ="left"></a>美军在2020年继续各类武器的测试，包括新武器试验、现有武器验证和军事装备战备测试等，实际数量繁多，仅列出主要的一些项目如下。
-
-（接上篇https://www.epochtimes.com/b5/20/12/26/n12646794.htm）
-四度测试义勇兵三型洲际弹道导弹
-2020年，美军先后4次测试了义勇.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月30日 2:11 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/26/n12646843.md#1" target="_blank">【2020盘点】美军关键武器测试（下）</a><br></h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/26/n12646843.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/201029-F-CV364-001-150x120.jpg" align ="left"></a>美军在2020年继续各类武器的测试，包括新武器试验、现有武器验证和军事装备战备测试等，实际数量繁多，仅列出主要的一些项目如下。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月30日 2:11 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/29/n12652423.md#1" target="_blank">拨云：美国三次误判中共的历史教训（一）</a><br></h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/29/n12652423.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/07/000_1VO3SU-150x120.jpg" align ="left"></a>2020年7月23日，美国国务卿蓬佩奥在尼克松总统图书馆发表《共产中国与自由世界未来》的演说，宣布美国与中共国盲目接触的旧模式已经失败，自由世界必须战胜新的暴政 。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月30日 1:59 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/29/n12652133.md#1" target="_blank">周晓辉：中俄首脑通话不寻常 北京高层分裂加剧</a><br></h3><a href="https://github.com/demtor3607/djy/blob/master/gb/20/12/29/n12652133.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/05/lianghui-150x120.jpg" align ="left"></a>据中共官媒报导，12月28日晚，习近平与俄罗斯总统普京通了电话。在电话中，两人“互致新年问候，并祝中俄两国人民新年愉快”。如果与2016年至2019年这四年的中俄首脑新年问候的新闻对比，今年的问候颇不寻常。不寻常在于以下几点：
 
