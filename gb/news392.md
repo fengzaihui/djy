@@ -44,9 +44,16 @@
 
 此时，武汉疫情已经爆发。2月3日，习近平在政治局常委会议上说.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月29日 4:10 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/29/n12651269.md#1" target="_blank">千百度：大陆学者谈美国主流媒体不可信</a><br></h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/29/n12651269.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/download-49-150x120.jpg" align ="left"></a>如今的美国主流媒体究竟可不可信？这是支持特朗普与反对特朗普的人一直都在争论，而且争论的非常激烈的一个问题，尤其是在大选期间。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月29日 3:26 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/28/n12649111.md#1" target="_blank">周晓辉：阿富汗抓间谍敲打中共 北京尴尬丢丑</a><br></h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/28/n12649111.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1229197168-600x400-1-150x120.jpg" align ="left"></a>近日，在近200万名身在西方世界政界、商界、学界等中共党员名单曝光掀起的波涛尚未平息之际，身处亚洲内陆的小国阿富汗也曝出了抓捕中共间谍的消息。
-
-据《印度斯坦时报》12月25日报导，10名中国公民被阿富汗国家安全局拘捕，罪名是从事间谍活动和从事恐怖组织活动。他们据信与中共间谍机构中共国家安全部有关。尽管间谍李阳阳声.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月29日 2:45 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/31/n12656861.md#1" target="_blank">伍新：但愿张母泪 凝为众明鉴</a><br></h3>张展判四年，母心血花溅。
+女儿柴骨身，想看不敢看。
+突破恐惧线，走险奔武汉。
+疫区报真相，与众共患难。
+利国利民事，党之心头患。
+恶党下毒手，功臣成罪犯。
+母知女路正，母知女行善。
+律师为女辩，协同反不愿。
+告诉女实况，疑云团团转。
+哑口配合党，苦等诺兑现。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月31日 6:37 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/31/n12656815.md#1" target="_blank">向真：中共图霸全球 输出数位极权</a><br></h3>澳洲智库、洛伊研究所（Lowy Institute）近期发布报告，揭示中共藉“武汉肺炎”（COVID-19病毒）大流行以公共健康与安全为名，大规模使用数位监控和追踪系统，侵犯本国公民自由，再输出监控技术，欲夺取全球数位技术霸权。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月31日 4:04 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/30/n12655423.md#1" target="_blank">王赫：2020年“新出埃及记”揭幕</a><br></h3>2020年的第一件大事，就是“中共病毒”（武汉肺炎、新冠病毒）肆虐世界。第一，席卷全球。迄今，感染国家191个，就连南极的一个智利科研站已有36人确诊。第二，死伤惨重。目前，总确诊数超过8100万例，超过170万人死亡（不含中国，因其数据虚假）。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2020年12月31日 3:19 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/sisaow318/djy/blob/master/gb/20/12/30/n12655228.md#1" target="_blank">杨宁：大陆新闻一事一评（2）</a><br></h3>看大陆新闻简述，探究背后掩盖的真相和用意。
