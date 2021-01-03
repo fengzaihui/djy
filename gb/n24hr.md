@@ -505,6 +505,11 @@ USFS发言人安德鲁·米切尔（Andrew Mitchell）表示，本周的降水�
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/20/12/31/n12657349.md#1" target="_blank">【微视频】2020中国脱口秀火爆 有一类不敢说</a><br></h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/20/12/31/n12657349.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/8a5d962d41f8a4e87aa552964a5625d1-150x120.jpg" align ="left"></a>2020年是大陆脱口秀很火爆的一年，不管是办的综艺节目还是线下的脱口秀专场都受到年轻人的追捧。那么什么是脱口秀呢？简单说就是单口相声、单口喜剧的洋名。中国大陆的环境大家也都知道，中共对内容的审查、控制得很严酷，所以火的都是生活类的搞笑，政治类的脱口秀根本就发展不起来，就是演员敢说，电视台也不敢播呀。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月01日 1:56 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/20/12/8/n12602597.md#1" target="_blank">美国F-16战机服役五十载 为何至今仍最强</a><br></h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/20/12/8/n12602597.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/1280px-USAF_F-16FightingFalcon-150x120.jpg" align ="left"></a>美国有很多闻名世界的战机，比如世界最强的战机F-22猛禽隐形重型攻击机、最新一代的隐形战机F-35闪电II、单次航程超过万里的B-1枪骑兵超音速轰炸机、载弹量120吨的B-52远程战略重型轰炸机等等。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月01日 1:54 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/20/12/29/n12652684.md#1" target="_blank">【2020盘点】美军加大印太战备部署（二）</a><br></h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/20/12/29/n12652684.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/49809955223_daacb84ac6_o-1-150x120.jpg" align ="left"></a>2020年，面对中共的挑衅和扩张，美军继续加大在印太地区的部署，不断提高战备训练等级，展示压倒性的军事威慑力量，以吓阻中共突破第一岛链防御的企图。随着美中全面对抗，军事对抗也逐步升级。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月01日 1:53 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/21/1/2/n12661777.md#1" target="_blank">费城法轮功学员恭祝李洪志大师新年好</a><br></h3>2021年新年辞旧迎新之际，费城法轮功学员祝愿李洪志师父新年快乐。他们感恩李洪志师父的慈悲呵护，教导“真善忍”法理，使他们身心收益。大法所到之处，教人向善，提升道德，福泽个人、家庭和社会。?
+81岁老弟子沐浴浩荡师恩
+
+
+81岁的费城法轮功学员严益心跟随师父修炼已有23年。在2021年新年之际，她回首得法修炼的.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月03日 9:50 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/21/1/2/n12662553.md#1" target="_blank">加州圣地亚哥再增三例英国变种病毒病例</a><br></h3>新年伊始，加州圣地亚哥县的中共病毒（COVID-19）感染人数仍在攀升。1月1日，圣地亚哥县单日COVID-19确诊病例数首次突破四千；县内感染英国变种病毒的病例也再增三人。
 
 元旦当日，圣地亚哥县民健部报告，新增确诊病例4,478 例，新增死亡58例。新数据使该县的累计中共病毒确诊病例超过十六万，累计死亡人数升至.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月03日 9:38 AM			</td></tr>
@@ -531,13 +536,6 @@ USFS发言人安德鲁·米切尔（Andrew Mitchell）表示，本周的降水�
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/21/1/2/n12661930.md#1" target="_blank">儿子屡出事 老干妈陶华碧重出江湖前途未卜</a><br></h3>日前，大陆辣椒酱老干妈再次引发关注，此次关注的焦点是因为老干妈创始人陶华碧长子公司，因未履行法律义务被法院再次列为失信被执行人。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月02日 6:32 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/21/1/2/n12661907.md#1" target="_blank">中国2020十大丑陋建筑 广州融创大剧院居首</a><br></h3>中国2020年度“十大丑陋建筑评选”结果出炉，上榜建筑的通病不外是文化趣味低俗，手法粗鄙夸张，形式胡拼乱凑。曾被网民痛批丑建筑而广为人知的重庆武龙“飞天之吻”，今届仅排名第三，不禁让网友惊呼“天外有天”，竟然还有比这更丑的建筑：名列第一的是广州融创大剧院，第二是吉林长白天地酒店。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月02日 5:12 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/21/1/2/n12661837.md#1" target="_blank">苗栗降雨低水情严峻 吁大家节水抗旱</a><br></h3>苗栗降雨为近52年来最低，为因应民生用水所需，明年一期作停灌，自1月6日起水情灯号调整为橙灯实施减量供水，呼吁大家节水抗旱共体时艰。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月02日 2:53 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/21/1/2/n12661777.md#1" target="_blank">费城法轮功学员恭祝李洪志大师新年好</a><br></h3>2021年新年辞旧迎新之际，费城法轮功学员祝愿李洪志师父新年快乐。他们感恩李洪志师父的慈悲呵护，教导他们“真善忍”的法理，使他们身心收益。大法所到之处，教人向善，提升道德，福泽个人、家庭和社会。?
-
-81岁老弟子沐浴浩荡佛恩
-
-
-
-81岁的费城法轮功学员严益心跟随师父修炼已有23年。在2021年新年之际，她.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月02日 1:32 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/acdcfn384/djy/blob/master/gb/21/1/2/n12661751.md#1" target="_blank">北加州中文学校联合会 举办贺年卡设计比赛</a><br></h3>一年复始、万象更新，北加州中文学校联合会为庆祝农历新年，举办“2021中国新年贺年卡设计比赛”，借此鼓励小朋友们，将他们丰富的创意及想法，用笔画手做呈现出来，并踊跃报名这项有意义的活动，此项比赛，既富有新年气氛，又达到实物教育的活动，来传扬中国传统节庆。
 
 北加州中文学校联合会提供丰厚的奖项及奖品，凡参加者均有机会.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月02日 1:32 PM			</td></tr>
