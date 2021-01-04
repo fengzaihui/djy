@@ -59,7 +59,7 @@
 
 
 .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月02日 8:42 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12661266.md#1" target="_blank">费良勇：别了，悲伤的2020年！</a><br></h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12661266.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/02/1309141025272483-150x120.jpg" align ="left"></a>每逢庚子遭大难。庚子年是中国的劫数：1840庚子年的鸦片战争中国战败割地赔款，成为中国历史的转折点；1900庚子年八国联军入侵北京中国赔款4.5亿两白银；1960庚子年流氓暴君毛泽东制造了饿死4000多万人的古今中外最大饥荒；2020庚子年新冠病毒肆虐中国和全球。到今天为止，全球已有8278万人被感染，181万人死亡.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月02日 8:03 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664957.md#1" target="_blank">【网海拾贝】2021年1月6号DC见！</a><br></h3>如果我们不能依靠政府，如果我们不能依靠立法机构，如果我们不能依靠最高法院，那么我们只能依靠“我们人民”。2021年1月6号DC见！—— 钻石和丝......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月04日 1:00 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664766.md#1" target="_blank">吴新：醉花阴?共军配备自毁装置</a><br></h3>数字化军装上线，
 添自裁按键。
 如不敌思降，
