@@ -5,15 +5,51 @@
 <tr><td><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663471.md#1" target="_blank">台男星出道13年没红过 改名黄立今办婚宴</a><br></h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663471.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101030043431487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663357.md#1" target="_blank">朴轸永与Rain合作单曲 师徒同台曝隐藏秘密</a><br></h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663357.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101022248521487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665003.md#1" target="_blank">木村拓哉推《教场II》 抱“报恩决心”拍摄</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664822.md#1" target="_blank">周杰伦2021首演献五月天 “周五组合”再现</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664883.md#1" target="_blank">东方神起允浩 18日携个人新作《NOIR》回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank">赵丽颖发文宣传新剧 意外暴露用“古董”手机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12664153.md#1" target="_blank">玄彬和孙艺真恋情公开 江疏影的反应笑翻网络</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663623.md#1" target="_blank">泰国盖儿台北开唱 师兄陈零九“提前”祝福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank">《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/2/n12661313.md#1" target="_blank">晒全家福庆儿子满周岁 章子怡称不再过分减肥</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12660785.md#1" target="_blank">谢娜新年宣布怀二胎 赵丽颖幽默送祝福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664883.md#1" target="_blank">东方神起允浩 18日携个人新作《NOIR》回归</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12664153.md#1" target="_blank">玄彬和孙艺真恋情公开 江疏影的反应笑翻网络</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663357.md#1" target="_blank">朴轸永与Rain合作单曲 师徒同台曝隐藏秘密</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12659469.md#1" target="_blank">Wendy时隔一年重回Red Velvet舞台演出 感动粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663499.md#1" target="_blank">黄秋生曝童年阴影 自嘲体力“0分”讨厌运动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663471.md#1" target="_blank">台男星出道13年没红过 改名黄立今办婚宴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12656318.md#1" target="_blank">李铭顺个性开朗 为新片角色首次感到痛苦</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/30/n12654069.md#1" target="_blank">木村拓哉、Kis-My-Ft2戴口罩为全球打气</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664822.md#1" target="_blank">周杰伦2021首演献五月天 “周五组合”再现</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663623.md#1" target="_blank">泰国盖儿台北开唱 师兄陈零九“提前”祝福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663499.md#1" target="_blank">黄秋生曝童年阴影 自嘲体力“0分”讨厌运动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663471.md#1" target="_blank">台男星出道13年没红过 改名黄立今办婚宴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665003.md#1" target="_blank">木村拓哉推《教场II》 抱“报恩决心”拍摄</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12660403.md#1" target="_blank">福山雅治以父之名推出新专辑 描写生死观</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12657384.md#1" target="_blank">岚暂停活动前登红白：盼暴风雨后迎来美丽天空</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664822.md#1" target="_blank">周杰伦2021首演献五月天 “周五组合”再现</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663623.md#1" target="_blank">泰国盖儿台北开唱 师兄陈零九“提前”祝福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663302.md#1" target="_blank">王心凌开唱7造型吸睛 与伍佰又唱又跳</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12659721.md#1" target="_blank">阿妹返乡跨年热唱 场面盛大媲美国际音乐节</a></h4></td></tr>
+<tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank">《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank">《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/29/n12650575.md#1" target="_blank">《柏捷顿家族：名门韵事》影评：目标不同也可天生一对</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/27/n12647288.md#1" target="_blank">《灵魂急转弯》影评：展现创意 将“灵魂”题材发扬光大</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/20/n12632966.md#1" target="_blank">1939《华府风云》影评：打场正义之战</a></h4></td></tr>
+<tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/30/n12655381.md#1" target="_blank">郑欣宜体重破90公斤 继承肥姐遗产进入倒计时</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12660785.md#1" target="_blank">谢娜新年宣布怀二胎 赵丽颖幽默送祝福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12658383.md#1" target="_blank">2020年香港演艺圈 十位资深艺人离世</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12657755.md#1" target="_blank">世正长文诉解散心声：对gugudan成员抱歉又感谢</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/28/n12650498.md#1" target="_blank">牵连范丞丞杂志遭下架 范冰冰尝试复出再碰壁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/29/n12650575.md#1" target="_blank">《柏捷顿家族：名门韵事》影评：目标不同也可天生一对</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12657949.md#1" target="_blank">周迅宣布离婚后首露面 状态坦然巧笑嫣然</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/28/n12648660.md#1" target="_blank">2020全球百大美女榜 Lisa夺亚军 子瑜获第四名</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/28/n12650270.md#1" target="_blank">杨幂自曝拒录一档走红综艺节目原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/2/n12661313.md#1" target="_blank">晒全家福庆儿子满周岁 章子怡称不再过分减肥</a></h4></td></tr>
+<tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"> 《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663499.md#1" target="_blank"> 黄秋生曝童年阴影 自嘲体力“0分”讨厌运动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12659403.md#1" target="_blank"> 杨丞琳跨年献唱动感新歌 回顾2020满满丰收</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12656318.md#1" target="_blank"> 李铭顺个性开朗 为新片角色首次感到痛苦</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ouenns3868/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/ouenns3868/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ouenns3868/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/ouenns3868/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
