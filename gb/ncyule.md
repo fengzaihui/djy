@@ -10,7 +10,7 @@
 <a href="https://github.com/rdnfbz347/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200515071808100707-320x200.jpg"></a>
 <a href="https://github.com/rdnfbz347/djy/blob/master/gb/21/1/4/n12665003.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/20200104-yuling-tw-08-320x200.jpg"></a>
 <a href="https://github.com/rdnfbz347/djy/blob/master/gb/21/1/4/n12664822.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101032153571487-320x200.jpg"></a>
-<a href="https://github.com/rdnfbz347/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/02/170323102148100694-320x200.jpg"></a>
+<a href="https://github.com/rdnfbz347/djy/blob/master/gb/21/1/4/n12664883.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/190613022157100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rdnfbz347/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rdnfbz347/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
