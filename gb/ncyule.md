@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663499.md#1" target="_blank">黄秋生曝童年阴影 自嘲体力“0分”讨厌运动</a><br></h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663499.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101030123161487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663471.md#1" target="_blank">台男星出道13年没红过 改名黄立今办婚宴</a><br></h3><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663471.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101030043431487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665534.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2001160419531487-320x200.jpg"></a>
 <a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665376.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101040205421487-320x200.jpg"></a>
 <a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200515071808100707-320x200.jpg"></a>
 <a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665003.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/20200104-yuling-tw-08-320x200.jpg"></a>
 <a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664822.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101032153571487-320x200.jpg"></a>
 <a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/02/170323102148100694-320x200.jpg"></a>
-<a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12664153.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/04/1604171852352563-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663499.md#1" target="_blank">黄秋生曝童年阴影 自嘲体力“0分”讨厌运动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663471.md#1" target="_blank">台男星出道13年没红过 改名黄立今办婚宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/20/12/31/n12656318.md#1" target="_blank">李铭顺个性开朗 为新片角色首次感到痛苦</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665534.md#1" target="_blank">孙德荣重启乔杰立2.0 GINO成首位签入艺人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665376.md#1" target="_blank">《全明星》踩“蛋”拼总冠军 演唱会热闹落幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12664822.md#1" target="_blank">周杰伦2021首演献五月天 “周五组合”再现</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663623.md#1" target="_blank">泰国盖儿台北开唱 师兄陈零九“提前”祝福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/3/n12663499.md#1" target="_blank">黄秋生曝童年阴影 自嘲体力“0分”讨厌运动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/4/n12665003.md#1" target="_blank">木村拓哉推《教场II》 抱“报恩决心”拍摄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouenns3868/djy/blob/master/gb/21/1/1/n12660403.md#1" target="_blank">福山雅治以父之名推出新专辑 描写生死观</a></h4></td></tr>
