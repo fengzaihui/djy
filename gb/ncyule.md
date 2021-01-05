@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a><br></h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050029141487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12664394.md#1" target="_blank">走过2020年 孙俪等明星新年愿望大变</a><br></h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12664394.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/04/GettyImages-172078025-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12668237.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050729031487-320x200.jpg"></a>
 <a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12668114.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/190408061059100707-320x200.jpg"></a>
 <a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667940.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050453271487-320x200.jpg"></a>
 <a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667745.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050213061487-320x200.jpg"></a>
 <a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667725.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/180602104936100311-320x200.jpg"></a>
 <a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050029141487-320x200.jpg"></a>
-<a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101042233351487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/4/n12665003.md#1" target="_blank">木村拓哉推《教场II》 抱“报恩决心”拍摄</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12668237.md#1" target="_blank">从AKB48到木曜4超玩 阿部玛利亚首发中文单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/4/n12665547.md#1" target="_blank">为攻蛋宣传 周华健扮MIB潜入五月天演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/4/n12664822.md#1" target="_blank">周杰伦2021首演献五月天 “周五组合”再现</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12663623.md#1" target="_blank">泰国盖儿台北开唱 师兄陈零九“提前”祝福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12663302.md#1" target="_blank">王心凌开唱7造型吸睛 与伍佰又唱又跳</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/20/12/30/n12655381.md#1" target="_blank">郑欣宜体重破90公斤 继承肥姐遗产进入倒计时</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/1/n12660785.md#1" target="_blank">谢娜新年宣布怀二胎 赵丽颖幽默送祝福</a></h4></td></tr>
