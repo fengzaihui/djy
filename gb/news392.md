@@ -38,7 +38,11 @@
 <tr><td width="742"><h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12664323.md#1" target="_blank">钟原：2021年中共在香港的内斗将继续</a><br></h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12664323.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2013/05/1305220636512262-150x120.jpg" align ="left"></a>中共在香港拚命打压民主派，剥夺香港人的自由，不顾国际社会的谴责，并试图淡化美国的制裁，但中共高层的压力实际相当大。尽管如此，中共高层仍然在加速香港的大陆化，试图把香港变成直辖市，当然害怕香港的民主抗争延烧内地。
 
 此外，中共在香港还有另一大心病，即中共内部一直有人把香港作为内斗的基地，或者说，是反习派的一个关键据点.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月04日 6:54 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12663515.md#1" target="_blank">【网海拾贝】彭佩奥发了两张喻意深远的图片</a><br></h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/3/n12663515.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/01/1806110826482525-600x400-150x120.jpg" align ="left"></a>彭佩奥新年第一天先后发的两个推文，将两张图片放一起看，喻意深远。第一张是缅怀美国的先父们，在华盛顿的代领下，创建了独立自由的美利坚。第二张是川普团队不忘初心，继续先父的事业，捍卫自由，保卫宪法，守护美利坚。——@xlmsnow......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月03日 3:31 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/5/n12668768.md#1" target="_blank">杨宁：大陆新闻一事一评（4）</a><br></h3>看大陆新闻简述，探究背后掩盖的真相和用意。
+
+◎1月3日，根据中共环球网报导，截至1月2日，北京已经接种了73537剂疫苗，所有接种者未发生严重不良反应。同日，环球网还报导了在北京第200场中共病毒疫防控工作新闻发布会上，中国疾控中心免疫规划首席专家、主任医师王华庆表示，疫苗产生的作用不是百分之百。
+
+——“所.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月06日 2:32 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/4/n12664957.md#1" target="_blank">【网海拾贝】2021年1月6号DC见！</a><br></h3>如果我们不能依靠政府，如果我们不能依靠立法机构，如果我们不能依靠最高法院，那么我们只能依靠“我们人民”。2021年1月6号DC见！—— 钻石和丝......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月04日 1:00 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ytrikp332/djy/blob/master/gb/21/1/4/n12664766.md#1" target="_blank">吴新：醉花阴?共军配备自毁装置</a><br></h3>数字化军装上线，
 添自裁按键。
