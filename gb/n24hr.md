@@ -497,6 +497,7 @@ Jeep Gladiator以第四代Wrangler（JL.........<br><img align="bottom" src="htt
 <tr><td width="742"><h3><a href="https://github.com/vgjaey393/djy/blob/master/gb/21/1/3/n12664158.md#1" target="_blank">亚省北部直升机坠毁 四人死亡</a><br></h3><a href="https://github.com/vgjaey393/djy/blob/master/gb/21/1/3/n12664158.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/01/rcmp-150x120.jpg" align ="left"></a>1月1日（周五），一架直升机坠入亚省北部一片农田，四人死亡。周六，加拿大骑警发言人表示，遇难者是一对夫妇及其子女。
 
 肖恩·弗伦奇（Shawn French）警官说，周五晚上8:50左右，精神河（Spirit River）骑警收到罗宾逊R44（Robinson R44）直升机的发射器发出的紧急呼叫，赶至桦树山县地区.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月03日 1:43 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/vgjaey393/djy/blob/master/gb/21/1/5/n12667086.md#1" target="_blank">卑诗社区老年人2月可接种疫苗</a><br></h3>1月4日（周一），卑诗省首席卫生官邦妮．亨利（Bonnie Henry）医生在本年度第一次疫情简报中，介绍了今年1月至3月的疫苗接种计划。居住在社区的老年人将是2月份开始可以接种辉瑞疫苗和Moderna疫苗的卑诗省民。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月05日 9:39 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/vgjaey393/djy/blob/master/gb/21/1/5/n12667004.md#1" target="_blank">建商拟翻建白石镇公寓 住户面临被迫搬迁</a><br></h3>白石镇（White Rock）一栋出租大楼的住户说，在疫情大流行期间，房客们感到被“无情的”重新安置搬迁。
 
 他们居住的白桦树大楼，位于1475 Fir St.——两年前换了业主。新业主将在该处建筑仅供出租的六层楼新建开发项目。该项目将在2021年1月提交白石市议会，进行重新分区公众听证会。
