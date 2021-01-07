@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/7/n12673730.md#1" target="_blank">接招主唱盖瑞出辑夺冠 张信哲庆贺透交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/7/n12673166.md#1" target="_blank">出道35年才开演唱会 坣娜曝车祸旧伤无法跳舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/7/n12672296.md#1" target="_blank">甫与五月天跨年合唱 白安获邀台北灯节演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/5/n12668537.md#1" target="_blank">朱俐静发片泪谈罹癌 坦承心情低落 正治疗中</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/5/n12668525.md#1" target="_blank">曾昱嘉谈跨年惊魂事件 幸好有吕士轩救援</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/1/n12660785.md#1" target="_blank">谢娜新年宣布怀二胎 赵丽颖幽默送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank">赵丽颖发文宣传新剧 意外暴露用“古董”手机</a></h4></td></tr>
