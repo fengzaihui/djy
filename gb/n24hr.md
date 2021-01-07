@@ -735,6 +735,10 @@ EDD拒绝说，有多少人将会收到身份验证的要求。
 每周为您献上旧金山最新消息
 责任编辑：李欧......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月05日 4:16 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/5/n12667691.md#1" target="_blank">华为欲涉足澳洲6G网建设 澳网民：做梦</a><br></h3><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/5/n12667691.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/fdbb766f36c36f847cde5d4e4f941b35-150x120.jpg" align ="left"></a>被禁止参与澳洲5G网络建设的华为现在将目光瞄准了新一代网络。华为澳洲公司负责人承认涉足澳洲5G网络已经不太可能，他们现在想和澳洲政府磋商6G网络或7G网络合作。许多澳洲网友纷纷表示：做梦！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月05日 4:14 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/3/n12663861.md#1" target="_blank">诗歌：用善拒邪灵</a><br></h3>知行存一性，
+思想定人行。
+神眼之中兽，
+人皮附着灵。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月08日 12:08 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/7/n12673801.md#1" target="_blank">长相思．梅雪迎春</a><br></h3> 小雪来， 大雪来， 窗外冬梅傲雪来， 炕头谋未来。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月07日 11:28 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/7/n12673800.md#1" target="_blank">苦海危舟又一年——忆2020</a><br></h3> 风雨漂摇又一年 漏船一艘　恶浪连连 满眼烽烟遍地愁 红魔耍鬼 人不识忧......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月07日 11:20 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/nekroj3812/djy/blob/master/gb/21/1/7/n12673682.md#1" target="_blank">参加非法聚会每人罚款一万镑</a><br></h3>1月6日，议会下议院投票通过，英格兰新一轮封城的限制措施正式成为法律。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月07日 10:58 PM			</td></tr>
