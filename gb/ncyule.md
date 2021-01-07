@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670566.md#1" target="_blank">传SHINee 2月回归 SM娱乐：准备中日期未定</a><br></h3><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670566.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/180612014913100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12669919.md#1" target="_blank">Selina秘筹1年宣布新身份 化身作业员协助包装</a><br></h3><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12669919.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101060109471487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/7/n12672296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101062229591487-320x200.jpg"></a>
 <a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12671557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/03/180331140551100311-320x200.jpg"></a>
 <a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12671310.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-87412641-320x200.jpg"></a>
 <a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670763.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2021-yuling-tw-12-320x200.jpg"></a>
 <a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101060713401487-320x200.jpg"></a>
 <a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670545.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101060411362122-320x200.jpg"></a>
-<a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670308.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101060408571487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670308.md#1" target="_blank">卢广仲募集肩膀照 为筹备六辑写歌写到发烧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12668028.md#1" target="_blank">张震为戏减12公斤 林晖闵挑战超难角色</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12667940.md#1" target="_blank">畅谈生活 黄秋生人在台湾：没发现我很开心吗</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/7/n12672296.md#1" target="_blank">甫与五月天跨年合唱 白安获邀台北灯节演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12671557.md#1" target="_blank">林青霞对粉丝有问必答 曝圈中多位女星真性情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12671310.md#1" target="_blank">梁朝伟新片突遭撤档 传投资方涉金融爆雷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank">《黄金岁月》开镜 陈美凤陈仙梅等实力派同台</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/6/n12670545.md#1" target="_blank">黄秋生下厨吸引民众大排长龙 KID想蹭饭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/4/n12665003.md#1" target="_blank">木村拓哉推《教场II》 抱“报恩决心”拍摄</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/7/n12672296.md#1" target="_blank">甫与五月天跨年合唱 白安获邀台北灯节演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12668537.md#1" target="_blank">朱俐静发片泪谈罹癌 坦承心情低落 正治疗中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12668525.md#1" target="_blank">曾昱嘉谈跨年惊魂事件 幸好有吕士轩救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12668237.md#1" target="_blank">从AKB48到木曜4超玩 阿部玛利亚首发中文单曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/4/n12665547.md#1" target="_blank">为攻蛋宣传 周华健扮MIB潜入五月天演唱会</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/1/n12660785.md#1" target="_blank">谢娜新年宣布怀二胎 赵丽颖幽默送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank">赵丽颖发文宣传新剧 意外暴露用“古董”手机</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/3/n12664153.md#1" target="_blank">玄彬和孙艺真恋情公开 江疏影的反应笑翻网络</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/20/12/31/n12657949.md#1" target="_blank">周迅宣布离婚后首露面 状态坦然巧笑嫣然</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/2/n12661313.md#1" target="_blank">晒全家福庆儿子满周岁 章子怡称不再过分减肥</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/4/n12666446.md#1" target="_blank">遛狗返家倒地不起 007邦女郎坦娅·罗伯茨骤逝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eibgjv3774/djy/blob/master/gb/21/1/5/n12669070.md#1" target="_blank">刘德华一日三餐吃三种食物 自律精神惊呆网友</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/eibgjv3774/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/eibgjv3774/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eibgjv3774/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/eibgjv3774/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
