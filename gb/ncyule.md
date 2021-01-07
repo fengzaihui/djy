@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670566.md#1" target="_blank">传SHINee 2月回归 SM娱乐：准备中日期未定</a><br></h3><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670566.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/180612014913100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12669919.md#1" target="_blank">Selina秘筹1年宣布新身份 化身作业员协助包装</a><br></h3><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12669919.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101060109471487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/7/n12672836.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1711270155241487-320x200.jpg"></a>
 <a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101070051201487-320x200.jpg"></a>
 <a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/7/n12672296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101062229591487-320x200.jpg"></a>
 <a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12671557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/03/180331140551100311-320x200.jpg"></a>
 <a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12671310.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-87412641-320x200.jpg"></a>
 <a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670763.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2021-yuling-tw-12-320x200.jpg"></a>
-<a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101060713401487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/3/n12664394.md#1" target="_blank">走过2020年 孙俪等明星新年愿望大变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank">赵丽颖发文宣传新剧 意外暴露用“古董”手机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/3/n12664153.md#1" target="_blank">玄彬和孙艺真恋情公开 江疏影的反应笑翻网络</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/7/n12672861.md#1" target="_blank">GOT7续约未定 BamBam回应朴轸永取消追踪一事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670763.md#1" target="_blank">INFINITE金明洙将出solo曲：入伍前送粉丝礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670566.md#1" target="_blank">传SHINee 2月回归 SM娱乐：准备中日期未定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12669887.md#1" target="_blank">崔珉豪退伍后首录综艺 出演《熊孩子》特别MC</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/5/n12668114.md#1" target="_blank">李昇基IG曝惊喜 邀李敏镐合体拍片宣传专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank">《黄金岁月》开镜 陈美凤陈仙梅等实力派同台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670308.md#1" target="_blank">卢广仲募集肩膀照 为筹备六辑写歌写到发烧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/5/n12668028.md#1" target="_blank">张震为戏减12公斤 林晖闵挑战超难角色</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/5/n12667940.md#1" target="_blank">畅谈生活 黄秋生人在台湾：没发现我很开心吗</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/7/n12672836.md#1" target="_blank">陪同小甜甜登记结婚 王宇婕泛泪：好替她开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/7/n12672296.md#1" target="_blank">甫与五月天跨年合唱 白安获邀台北灯节演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12671557.md#1" target="_blank">林青霞对粉丝有问必答 曝圈中多位女星真性情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12671310.md#1" target="_blank">梁朝伟新片突遭撤档 传投资方涉金融爆雷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank">《黄金岁月》开镜 陈美凤陈仙梅等实力派同台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mpeokj385/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
