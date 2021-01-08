@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank">宋仲基献暖 捐款1亿韩圜助防疫人员御寒</a><br></h3><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/01/1701230600192384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12672836.md#1" target="_blank">陪同小甜甜登记结婚 王宇婕泛泪：好替她开心</a><br></h3><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12672836.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/1711270155241487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/8/n12675026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101080046351487-320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/8/n12674476.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-85162254-320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/dengchaoliangchaowei--320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1130954927-320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200812_GARY_BARLOW_09_090-320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673166.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101070331262122-ss1-320x200.jpg"></a>
-<a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673196.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2012150306002122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673317.md#1" target="_blank">太妍暖送咖啡车为剧组打气 惠利：感动想哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank">宋仲基献暖 捐款1亿韩圜助防疫人员御寒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12672861.md#1" target="_blank">GOT7续约未定 BamBam回应朴轸永取消追踪一事</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/8/n12675026.md#1" target="_blank">首录真人秀节目 温昇豪到传统市场出任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673784.md#1" target="_blank">温昇豪拍《火神》扛人爬梯 陈庭妮考EMT-1证照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673196.md#1" target="_blank">实境秀挑战开餐酒馆 玖壹壹初下厨手忙脚乱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank">《黄金岁月》开镜 陈美凤陈仙梅等实力派同台</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/6/n12670308.md#1" target="_blank">卢广仲募集肩膀照 为筹备六辑写歌写到发烧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/8/n12675026.md#1" target="_blank">首录真人秀节目 温昇豪到传统市场出任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/8/n12674476.md#1" target="_blank">张卫健留港陪伴母亲 因疫情与妻子分隔近一年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673228.md#1" target="_blank">杨祐宁自认女儿傻瓜 与林心如交换育儿心得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673196.md#1" target="_blank">实境秀挑战开餐酒馆 玖壹壹初下厨手忙脚乱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673128.md#1" target="_blank">荒山亮为个唱造势 开餐厅喉咙灼伤已无碍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
