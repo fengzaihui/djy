@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a><br></h3><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1130954927-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank">宋仲基献暖 捐款1亿韩圜助防疫人员御寒</a><br></h3><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/01/1701230600192384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675476.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101080434011487-320x200.jpg"></a>
 <a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101080219451487-320x200.jpg"></a>
 <a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101080046351487-320x200.jpg"></a>
 <a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12674476.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-85162254-320x200.jpg"></a>
 <a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/dengchaoliangchaowei--320x200.jpg"></a>
 <a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1130954927-320x200.jpg"></a>
-<a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200812_GARY_BARLOW_09_090-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673784.md#1" target="_blank">温昇豪拍《火神》扛人爬梯 陈庭妮考EMT-1证照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673196.md#1" target="_blank">实境秀挑战开餐酒馆 玖壹壹初下厨手忙脚乱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank">《黄金岁月》开镜 陈美凤陈仙梅等实力派同台</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675476.md#1" target="_blank">万芳新歌MV上线 首邀妈妈入镜同框共演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675232.md#1" target="_blank">封麦5年 江蕙为许富凯“攻蛋”献声鼓励祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675026.md#1" target="_blank">首录真人秀节目 温昇豪到传统市场出任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12674476.md#1" target="_blank">张卫健留港陪伴母亲 因疫情与妻子分隔近一年</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673228.md#1" target="_blank">杨祐宁自认女儿傻瓜 与林心如交换育儿心得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675476.md#1" target="_blank">万芳新歌MV上线 首邀妈妈入镜同框共演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675232.md#1" target="_blank">封麦5年 江蕙为许富凯“攻蛋”献声鼓励祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673730.md#1" target="_blank">接招主唱盖瑞出辑夺冠 张信哲庆贺透交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673166.md#1" target="_blank">出道35年才开演唱会 坣娜曝车祸旧伤无法跳舞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12672296.md#1" target="_blank">甫与五月天跨年合唱 白安获邀台北灯节演出</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/1/n12660785.md#1" target="_blank">谢娜新年宣布怀二胎 赵丽颖幽默送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank">赵丽颖发文宣传新剧 意外暴露用“古董”手机</a></h4></td></tr>
