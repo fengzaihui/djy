@@ -8,9 +8,9 @@
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/8/n12674476.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-85162254-320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/dengchaoliangchaowei--320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1130954927-320x200.jpg"></a>
+<a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200812_GARY_BARLOW_09_090-320x200.jpg"></a>
+<a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673166.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101070331262122-ss1-320x200.jpg"></a>
 <a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673196.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2012150306002122-320x200.jpg"></a>
-<a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673317.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/190327033947100707-320x200.jpg"></a>
-<a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/01/1701230600192384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/20/12/27/n12647288.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/476489-320x200.jpg"><br>《灵魂急转弯》影评：展现创意 将“灵魂”题材发扬光大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/20/12/20/n12632966.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-3202866-320x200.jpg"><br>1939《华府风云》影评：打场正义之战</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673730.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/200812_GARY_BARLOW_09_090-320x200.jpg"><br> 接招主唱盖瑞出辑夺冠 张信哲庆贺透交情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673166.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101070331262122-ss1-320x200.jpg"><br> 出道35年才开演唱会 坣娜曝车祸旧伤无法跳舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/6/n12670545.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101060411362122-320x200.jpg"><br> 黄秋生下厨吸引民众大排长龙 KID想蹭饭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/6/n12670000.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/d76384367dad8904f9bf9284ddfd5b1e-320x200.jpg"><br> 《叱咤风云》周杰伦甩尾遭呛 曹佑宁宅男开赛车</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/5/n12667745.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101050213061487-320x200.jpg"><br> 金秀贤、车胜元将主演BBC《司法正义》改编剧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101050029141487-320x200.jpg"><br> 《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank">陪朋友试镜 结果自己被选上出道的5位明星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a></h4></td></tr>
@@ -50,7 +50,6 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/1/n12660785.md#1" target="_blank">谢娜新年宣布怀二胎 赵丽颖幽默送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/4/n12664632.md#1" target="_blank">赵丽颖发文宣传新剧 意外暴露用“古董”手机</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/1/n12658383.md#1" target="_blank">2020年香港演艺圈 十位资深艺人离世</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/5/n12669070.md#1" target="_blank">刘德华一日三餐吃三种食物 自律精神惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/5/n12667940.md#1" target="_blank">畅谈生活 黄秋生人在台湾：没发现我很开心吗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/4/n12666681.md#1" target="_blank">林青霞贺年图片藏玄机？网络疯传其豪门婚变</a></h4></td></tr>
@@ -58,5 +57,6 @@
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12672836.md#1" target="_blank">陪同小甜甜登记结婚 王宇婕泛泪：好替她开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/2/n12661313.md#1" target="_blank">晒全家福庆儿子满周岁 章子怡称不再过分减肥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/4/n12666446.md#1" target="_blank">遛狗返家倒地不起 007邦女郎坦娅·罗伯茨骤逝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/4/n12665376.md#1" target="_blank">《全明星》踩“蛋”拼总冠军 演唱会热闹落幕</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/uekbnn329/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/uekbnn329/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/uekbnn329/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/uekbnn329/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
