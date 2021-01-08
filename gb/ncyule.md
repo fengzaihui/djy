@@ -18,19 +18,19 @@
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/20/12/27/n12647288.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/476489-320x200.jpg"><br>《灵魂急转弯》影评：展现创意 将“灵魂”题材发扬光大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/20/12/20/n12632966.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-3202866-320x200.jpg"><br>1939《华府风云》影评：打场正义之战</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12674990.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/200811015045100707-320x200.jpg"><br> Super Junior正规十辑 确定于2月16日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673730.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/200812_GARY_BARLOW_09_090-320x200.jpg"><br> 接招主唱盖瑞出辑夺冠 张信哲庆贺透交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673166.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101070331262122-ss1-320x200.jpg"><br> 出道35年才开演唱会 坣娜曝车祸旧伤无法跳舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/6/n12670545.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101060411362122-320x200.jpg"><br> 黄秋生下厨吸引民众大排长龙 KID想蹭饭</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/6/n12670000.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/d76384367dad8904f9bf9284ddfd5b1e-320x200.jpg"><br> 《叱咤风云》周杰伦甩尾遭呛 曹佑宁宅男开赛车</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank">陪朋友试镜 结果自己被选上出道的5位明星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/6/n12669356.md#1" target="_blank">河北疫情进入战时状态 邓伦为家乡加油引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/3/n12664394.md#1" target="_blank">走过2020年 孙俪等明星新年愿望大变</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675852.md#1" target="_blank">BTS专辑连5年Gaon榜夺冠 美国实体销量也第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12674990.md#1" target="_blank">Super Junior正规十辑 确定于2月16日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673317.md#1" target="_blank">太妍暖送咖啡车为剧组打气 惠利：感动想哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank">宋仲基献暖 捐款1亿韩圜助防疫人员御寒</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12672861.md#1" target="_blank">GOT7续约未定 BamBam回应朴轸永取消追踪一事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675673.md#1" target="_blank">低温淋雨拍哭戏 苏晏霈回家陷郁闷莫名掉泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/8/n12675026.md#1" target="_blank">首录真人秀节目 温昇豪到传统市场出任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jeclfs332/djy/blob/master/gb/21/1/7/n12673784.md#1" target="_blank">温昇豪拍《火神》扛人爬梯 陈庭妮考EMT-1证照</a></h4></td></tr>
