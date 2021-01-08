@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/6/n12669356.md#1" target="_blank">河北疫情进入战时状态 邓伦为家乡加油引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/3/n12664394.md#1" target="_blank">走过2020年 孙俪等明星新年愿望大变</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/8/n12674990.md#1" target="_blank">Super Junior正规十辑 确定于2月16日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673317.md#1" target="_blank">太妍暖送咖啡车为剧组打气 惠利：感动想哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673226.md#1" target="_blank">宋仲基献暖 捐款1亿韩圜助防疫人员御寒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12672861.md#1" target="_blank">GOT7续约未定 BamBam回应朴轸永取消追踪一事</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/6/n12670763.md#1" target="_blank">INFINITE金明洙将出solo曲：入伍前送粉丝礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673784.md#1" target="_blank">温昇豪拍《火神》扛人爬梯 陈庭妮考EMT-1证照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/7/n12673196.md#1" target="_blank">实境秀挑战开餐酒馆 玖壹壹初下厨手忙脚乱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uekbnn329/djy/blob/master/gb/21/1/6/n12670613.md#1" target="_blank">《黄金岁月》开镜 陈美凤陈仙梅等实力派同台</a></h4></td></tr>
