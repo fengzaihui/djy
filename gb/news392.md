@@ -34,23 +34,10 @@
 我也绝不相信这台政治验钞机；
 即使正直的河道被蓄意拦截、歪曲，
 我也知奔向大河的小溪“川”流不息......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月10日 12:35 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/rccmzv3318/djy/blob/master/gb/21/1/10/n12678359.md#1" target="_blank">Renhao：纪念Ashli Babbitt女士</a><br></h3>
-
-夜深了，
+<tr><td width="742"><h3><a href="https://github.com/rccmzv3318/djy/blob/master/gb/21/1/10/n12678359.md#1" target="_blank">Renhao：纪念Ashli Babbitt女士</a><br></h3>夜深了，
 我却久久不能入睡。
 那位在国会内牺牲的女士的面容
-不断浮现在我眼前。
-
-无论从什么角度，
-我都无法将Ashli看作一名暴徒。
-她结婚了，
-住在从小生活的圣地亚哥。
-在空军服役14年后，
-和丈夫开了家泳池修理公司，
-经营虽不容易，
-倒也衣食无忧。
-
-但自从她那天不远万里来到了.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月10日 11:49 AM			</td></tr>
+不断浮现在我眼前。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月10日 11:49 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rccmzv3318/djy/blob/master/gb/21/1/10/n12678324.md#1" target="_blank">【网海拾贝】中美建交42年 美国在变成中国</a><br></h3>中美建交40年，中国没有半点改变，美国在变中国。民主党议员AOC要给川普支持者建报复档案；奥巴马老婆要求社交媒体永久禁言川普；霍利新书发行被禁止，住宅被黑命贵围堵；被射杀的爱国者女军人被媒体污蔑成暴徒；吸毒用假币罪犯弗洛伊德倒成了睡金棺材的英雄；共和民主两党变一党，这就是美国！——@sifan198964......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月10日 11:28 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rccmzv3318/djy/blob/master/gb/21/1/9/n12678084.md#1" target="_blank">杨宁：大陆新闻一事一评（5）</a><br></h3>看大陆新闻简述，探究背后掩盖的真相和用意。
 
