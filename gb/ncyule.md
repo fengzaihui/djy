@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank">耶诞晚会因防疫迟到 林宥嘉照穿圣诞装送暖</a><br></h3><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101100039141487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank">五月天寒风中续唱 邀茄子蛋踩场“混搭”</a><br></h3><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101092331541487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679975.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101110016321487-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101102222501487-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679612.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-631977932-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679436.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/zhang-meng-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679249.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-487866306-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101100039141487-320x200.jpg"></a>
-<a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101092331541487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678338.md#1" target="_blank">黄秋生不爱火锅 评论“像厨余”吓坏KID</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675673.md#1" target="_blank">低温淋雨拍哭戏 苏晏霈回家陷郁闷莫名掉泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675026.md#1" target="_blank">首录真人秀节目 温昇豪到传统市场出任务</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679975.md#1" target="_blank">气候1天1变 许富凯2场签唱会 如洗三温暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank">梦见黄子佼“入梦唱跳” 蒋三省天亮邀合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank">耶诞晚会因防疫迟到 林宥嘉照穿圣诞装送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank">五月天寒风中续唱 邀茄子蛋踩场“混搭”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678338.md#1" target="_blank">黄秋生不爱火锅 评论“像厨余”吓坏KID</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679975.md#1" target="_blank">气候1天1变 许富凯2场签唱会 如洗三温暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank">耶诞晚会因防疫迟到 林宥嘉照穿圣诞装送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank">五月天寒风中续唱 邀茄子蛋踩场“混搭”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675476.md#1" target="_blank">万芳新歌MV上线 首邀妈妈入镜同框共演</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675232.md#1" target="_blank">封麦5年 江蕙为许富凯“攻蛋”献声鼓励祝福</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/5/n12669070.md#1" target="_blank">刘德华一日三餐吃三种食物 自律精神惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/5/n12667940.md#1" target="_blank">畅谈生活 黄秋生人在台湾：没发现我很开心吗</a></h4></td></tr>
