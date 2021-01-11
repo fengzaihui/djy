@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679436.md#1" target="_blank">张檬晒素颜证件照 告诫后来人不要整容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679249.md#1" target="_blank">李易峰消毒被赞有范儿 称最大风浪是北京降温</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank">陪朋友试镜 结果自己被选上出道的5位明星</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12680184.md#1" target="_blank">时隔近4年IU将推正规五辑 1月27日公开先行曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678277.md#1" target="_blank">金裕贞《便利店》变身女打仔 与池昌旭谱恋曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678226.md#1" target="_blank">《尹食堂》续集 李瑞镇郑有美回归领军新团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675852.md#1" target="_blank">BTS专辑连5年Gaon榜夺冠 美国实体销量也第一</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12674990.md#1" target="_blank">Super Junior正规十辑 确定于2月16日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank">梦见黄子佼“入梦唱跳” 蒋三省天亮邀合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678338.md#1" target="_blank">黄秋生不爱火锅 评论“像厨余”吓坏KID</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675673.md#1" target="_blank">低温淋雨拍哭戏 苏晏霈回家陷郁闷莫名掉泪</a></h4></td></tr>
