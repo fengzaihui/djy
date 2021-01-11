@@ -7,7 +7,7 @@
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12680445.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101110233451487-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679975.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101110016321487-320x200.jpg"></a>
-<a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12680184.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/191223052816100707-320x200.jpg"></a>
+<a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12680184.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/180914045429100707-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101102222501487-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679612.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-631977932-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679436.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/zhang-meng-320x200.jpg"></a>
