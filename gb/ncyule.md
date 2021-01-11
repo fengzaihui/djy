@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank">五月天寒风中续唱 邀茄子蛋踩场“混搭”</a><br></h3><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101092331541487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679975.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101110016321487-320x200.jpg"></a>
+<a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12680184.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/191223052816100707-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101102222501487-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679612.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-631977932-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679436.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/zhang-meng-320x200.jpg"></a>
 <a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679249.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-487866306-320x200.jpg"></a>
-<a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101100039141487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679436.md#1" target="_blank">张檬晒素颜证件照 告诫后来人不要整容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12679249.md#1" target="_blank">李易峰消毒被赞有范儿 称最大风浪是北京降温</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank">陪朋友试镜 结果自己被选上出道的5位明星</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12680379.md#1" target="_blank">《哲仁王后》申惠善吻金正铉创12.1%收视率</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12680184.md#1" target="_blank">时隔近4年IU将推正规五辑 1月27日公开先行曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678277.md#1" target="_blank">金裕贞《便利店》变身女打仔 与池昌旭谱恋曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678226.md#1" target="_blank">《尹食堂》续集 李瑞镇郑有美回归领军新团队</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675852.md#1" target="_blank">BTS专辑连5年Gaon榜夺冠 美国实体销量也第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank">梦见黄子佼“入梦唱跳” 蒋三省天亮邀合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/10/n12678338.md#1" target="_blank">黄秋生不爱火锅 评论“像厨余”吓坏KID</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aakpdw3186/djy/blob/master/gb/21/1/8/n12675673.md#1" target="_blank">低温淋雨拍哭戏 苏晏霈回家陷郁闷莫名掉泪</a></h4></td></tr>
