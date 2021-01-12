@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank">受疫情影响1年没见女儿 向娃新年期待相聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/11/n12680445.md#1" target="_blank">孙德荣日前为他抱不平 Gino缓颊：出于关爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank">梦见黄子佼“入梦唱跳” 蒋三省天亮邀合唱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/12/n12683038.md#1" target="_blank">谢佳见滞台与林心如围炉 希望在台买地自建　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/12/n12682750.md#1" target="_blank">刘若英为新作腾空演出 挑战高难度反转</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank">受疫情影响1年没见女儿 向娃新年期待相聚</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/12/n12682271.md#1" target="_blank">Selina副业开门创佳绩 期许能永续经营</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
@@ -49,7 +49,6 @@
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/10/n12678440.md#1" target="_blank">五月天寒风中续唱 邀茄子蛋踩场“混搭”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/5/n12669070.md#1" target="_blank">刘德华一日三餐吃三种食物 自律精神惊呆网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/5/n12667940.md#1" target="_blank">畅谈生活 黄秋生人在台湾：没发现我很开心吗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/7/n12672836.md#1" target="_blank">陪同小甜甜登记结婚 王宇婕泛泪：好替她开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/8/n12676634.md#1" target="_blank">刘嘉玲自曝有洁癖 拍戏时曾换掉酒店房间马桶</a></h4></td></tr>
@@ -58,5 +57,6 @@
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/6/n12671310.md#1" target="_blank">梁朝伟新片突遭撤档 传投资方涉金融爆雷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/6/n12669356.md#1" target="_blank">河北疫情进入战时状态 邓伦为家乡加油引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/5/n12668537.md#1" target="_blank">朱俐静发片泪谈罹癌 坦承心情低落 正治疗中</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snthxw327/djy/blob/master/gb/21/1/8/n12674476.md#1" target="_blank">张卫健留港陪伴母亲 因疫情与妻子分隔近一年</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/snthxw327/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/snthxw327/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/snthxw327/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/snthxw327/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
