@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680997.md#1" target="_blank">GOT7连5年获金唱片本赏 合约19日到期全不续约</a><br></h3><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680997.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/181214094626100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680445.md#1" target="_blank">孙德荣日前为他抱不平 Gino缓颊：出于关爱</a><br></h3><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680445.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101110233451487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101120053511487-320x200.jpg"></a>
 <a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/12/n12682271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101112240441487-320x200.jpg"></a>
 <a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/12/n12681992.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/junningfan-bingbing-zhang-320x200.jpg"></a>
 <a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12681730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-123871741-320x200.jpg"></a>
 <a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12681461.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1178341297-320x200.jpg"></a>
 <a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680997.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/181214094626100707-320x200.jpg"></a>
-<a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680662.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101110448311487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680379.md#1" target="_blank">《哲仁王后》申惠善吻金正铉创12.1%收视率</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680184.md#1" target="_blank">时隔近4年IU将推正规五辑 1月27日公开先行曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/10/n12678277.md#1" target="_blank">金裕贞《便利店》变身女打仔 与池昌旭谱恋曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank">受疫情影响1年没见女儿 向娃新年期待相聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680445.md#1" target="_blank">孙德荣日前为他抱不平 Gino缓颊：出于关爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12679907.md#1" target="_blank">梦见黄子佼“入梦唱跳” 蒋三省天亮邀合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/10/n12678338.md#1" target="_blank">黄秋生不爱火锅 评论“像厨余”吓坏KID</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/8/n12675673.md#1" target="_blank">低温淋雨拍哭戏 苏晏霈回家陷郁闷莫名掉泪</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank">受疫情影响1年没见女儿 向娃新年期待相聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/12/n12682271.md#1" target="_blank">Selina副业开门创佳绩 期许能永续经营</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12681730.md#1" target="_blank">粉丝好奇如何拍逼真断腿戏 刘德华幽默回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680990.md#1" target="_blank">戏内一天会15任女友 吴慷仁喊“花心好累！”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/11/n12680662.md#1" target="_blank">黄美珍生女带财 屡受品牌青睐、商演不断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/8/n12676634.md#1" target="_blank">刘嘉玲自曝有洁癖 拍戏时曾换掉酒店房间马桶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank">陪朋友试镜 结果自己被选上出道的5位明星</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/6/n12671310.md#1" target="_blank">梁朝伟新片突遭撤档 传投资方涉金融爆雷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/8/n12676343.md#1" target="_blank">身形暴瘦传患大病 张家辉停工一年首露面</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/6/n12671310.md#1" target="_blank">梁朝伟新片突遭撤档 传投资方涉金融爆雷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/6/n12669356.md#1" target="_blank">河北疫情进入战时状态 邓伦为家乡加油引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nealmq3771/djy/blob/master/gb/21/1/5/n12668537.md#1" target="_blank">朱俐静发片泪谈罹癌 坦承心情低落 正治疗中</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/nealmq3771/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
