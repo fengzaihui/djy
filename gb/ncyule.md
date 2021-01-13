@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12683780.md#1" target="_blank">章子怡首拍电视剧惹负评 汪峰晒照发文护妻</a><br></h3><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12683780.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-1145305822-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12684036.md#1" target="_blank">陈坤一天吊威亚50次 与周迅搭戏状态20年不变</a><br></h3><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12684036.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/09/chenkun-zhouxun-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101130443331487-320x200.jpg"></a>
 <a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/2009060657161487-320x200.jpg"></a>
 <a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2013/04/1105242246361839-320x200.jpg"></a>
 <a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684982.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101130253261487-320x200.jpg"></a>
 <a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101130129581487-320x200.jpg"></a>
 <a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684789.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/190208083801100707-320x200.jpg"></a>
-<a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101130028341487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12682602.md#1" target="_blank">谈与EXO世勋仅工作关系 金世正：请停止恶评</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/11/n12680997.md#1" target="_blank">GOT7连5年获金唱片本赏 合约19日到期全不续约</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/11/n12680379.md#1" target="_blank">《哲仁王后》申惠善吻金正铉创12.1%收视率</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank">搭档胡瓜录除夕节目 陈美凤送苹果祝福平安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank">疫情升温《007》、蜘蛛人《魔比斯》恐再延档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank">受疫情影响1年没见女儿 向娃新年期待相聚</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/11/n12680445.md#1" target="_blank">孙德荣日前为他抱不平 Gino缓颊：出于关爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank">回应太太再孕传闻 周渝民自承照顾女儿有挫折</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank">搭档胡瓜录除夕节目 陈美凤送苹果祝福平安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684982.md#1" target="_blank">朱俐静罹癌抵抗力降 上通告勤喷酒精防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12683038.md#1" target="_blank">谢佳见滞台与林心如围炉 希望在台买地自建　</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/12/n12682750.md#1" target="_blank">刘若英为新作腾空演出 挑战高难度反转</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/upgpqd328/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
