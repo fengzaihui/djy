@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12683780.md#1" target="_blank">章子怡首拍电视剧惹负评 汪峰晒照发文护妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12684036.md#1" target="_blank">陈坤一天吊威亚50次 与周迅搭戏状态20年不变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12681992.md#1" target="_blank">晒与张钧甯等艺人合照 范冰冰：还是闺密靠谱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/13/n12684789.md#1" target="_blank">(G)I-DLE《I burn》摘51区iTunes专辑榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682602.md#1" target="_blank">谈与EXO世勋仅工作关系 金世正：请停止恶评</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/11/n12680997.md#1" target="_blank">GOT7连5年获金唱片本赏 合约19日到期全不续约</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/11/n12680379.md#1" target="_blank">《哲仁王后》申惠善吻金正铉创12.1%收视率</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/11/n12680184.md#1" target="_blank">时隔近4年IU将推正规五辑 1月27日公开先行曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank">受疫情影响1年没见女儿 向娃新年期待相聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/11/n12680445.md#1" target="_blank">孙德荣日前为他抱不平 Gino缓颊：出于关爱</a></h4></td></tr>
