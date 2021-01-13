@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12683038.md#1" target="_blank">谢佳见滞台与林心如围炉 希望在台买地自建　</a><br></h3><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12683038.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101120311252122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a><br></h3><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101120416341487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101130028341487-320x200.jpg"></a>
 <a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/13/n12684292.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/1612050441312384-320x200.jpg"></a>
 <a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12683780.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-1145305822-320x200.jpg"></a>
 <a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12684036.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/09/chenkun-zhouxun-320x200.jpg"></a>
 <a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12683038.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101120311252122-320x200.jpg"></a>
 <a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101120416341487-320x200.jpg"></a>
-<a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682750.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101120314391487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682750.md#1" target="_blank">刘若英为新作腾空演出 挑战高难度反转</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682516.md#1" target="_blank">受疫情影响1年没见女儿 向娃新年期待相聚</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/5/n12667509.md#1" target="_blank">《娇妻》新垣结衣怀孕 特别篇融入防疫时事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/5/n12667238.md#1" target="_blank">《我啊》田中裕子与苍井优等五人共饰一角</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/4/n12665030.md#1" target="_blank">关八横山裕发烧确诊染疫 经纪人无症状感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/12/n12682750.md#1" target="_blank">刘若英为新作腾空演出 挑战高难度反转</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/11/n12679975.md#1" target="_blank">气候1天1变 许富凯2场签唱会 如洗三温暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abqwzl3002/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank">耶诞晚会因防疫迟到 林宥嘉照穿圣诞装送暖</a></h4></td></tr>
