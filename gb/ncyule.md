@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank">回应太太再孕传闻 周渝民自承照顾女儿有挫折</a><br></h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/DSC_9521-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank">疫情升温《007》、蜘蛛人《魔比斯》恐再延档</a><br></h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/2009060657161487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101140142111487-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12687000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101132344551487-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12686751.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1912150611491487-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12686353.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/1802061743342563-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12686124.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-463284642-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/DSC_9521-320x200.jpg"></a>
-<a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101130443331487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/7/n12672691.md#1" target="_blank">横滨流星为新作苦练拳击 擂台对打吓坏拳击手</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684982.md#1" target="_blank">朱俐静抗癌抵抗力降 上通告勤喷酒精防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/12/n12682750.md#1" target="_blank">刘若英为新作腾空演出 挑战高难度反转</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/11/n12679975.md#1" target="_blank">气候1天1变 许富凯2场签唱会 如洗三温暖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/10/n12678479.md#1" target="_blank">耶诞晚会因防疫迟到 林宥嘉照穿圣诞装送暖</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/7/n12672836.md#1" target="_blank">陪同小甜甜登记结婚 王宇婕泛泪：好替她开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a></h4></td></tr>
