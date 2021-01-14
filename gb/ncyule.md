@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/13/n12684789.md#1" target="_blank">(G)I-DLE《I burn》摘51区iTunes专辑榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/12/n12682602.md#1" target="_blank">谈与EXO世勋仅工作关系 金世正：请停止恶评</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/11/n12680997.md#1" target="_blank">GOT7连5年获金唱片本赏 合约19日到期全不续约</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/14/n12688126.md#1" target="_blank">李霈瑜听欠债人故事落泪 张书豪差点拒演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank">回应太太再孕传闻 周渝民自承照顾女儿有挫折</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank">搭档胡瓜录除夕节目 陈美凤送苹果祝福平安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank">疫情升温《007》、蜘蛛人《魔比斯》恐再延档</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/14/n12687677.md#1" target="_blank">田馥甄发年终“该给的不能少” 2021筹备新计划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/14/n12687670.md#1" target="_blank">轧2戏每天仅睡3小时 柯佳嬿感冒烧声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xrbzou3952/djy/blob/master/gb/21/1/14/n12687448.md#1" target="_blank">盖瑞巴洛与张信哲跨国合作 量身打造英文情歌</a></h4></td></tr>
