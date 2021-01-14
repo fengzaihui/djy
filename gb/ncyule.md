@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank">回应太太再孕传闻 周渝民自承照顾女儿有挫折</a><br></h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/DSC_9521-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank">疫情升温《007》、蜘蛛人《魔比斯》恐再延档</a><br></h3><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/2009060657161487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12687000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101132344551487-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12686751.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1912150611491487-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12686353.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/1802061743342563-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12686124.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-463284642-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/DSC_9521-320x200.jpg"></a>
 <a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101130443331487-320x200.jpg"></a>
-<a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/2009060657161487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank">搭档胡瓜录除夕节目 陈美凤送苹果祝福平安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank">疫情升温《007》、蜘蛛人《魔比斯》恐再延档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/12/n12682906.md#1" target="_blank">《桥牌社2》找来真将军 赵正平一对戏就眼眶湿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12687000.md#1" target="_blank">吴汶芳陪憨儿献爱心 计划新年先发单曲再出辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/14/n12686751.md#1" target="_blank">光前半年就隔离4次 林明祯决定留台深耕事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank">回应太太再孕传闻 周渝民自承照顾女儿有挫折</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank">搭档胡瓜录除夕节目 陈美凤送苹果祝福平安</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684982.md#1" target="_blank">朱俐静抗癌抵抗力降 上通告勤喷酒精防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/7/n12673990.md#1" target="_blank">被农民大妈追问月薪 杨超越只敢抽象说两个字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/8/n12676634.md#1" target="_blank">刘嘉玲自曝有洁癖 拍戏时曾换掉酒店房间马桶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/12/n12681992.md#1" target="_blank">晒与张钧甯等艺人合照 范冰冰：还是闺密靠谱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank">陪朋友试镜 结果自己被选上出道的5位明星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/13/n12684292.md#1" target="_blank">杨颖受攻击 黄晓明护妻：冲我来 评论永不关闭</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/7/n12674191.md#1" target="_blank">陪朋友试镜 结果自己被选上出道的5位明星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/8/n12676343.md#1" target="_blank">身形暴瘦传患大病 张家辉停工一年首露面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/10/n12679436.md#1" target="_blank">张檬晒素颜证件照 告诫后来人不要整容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ysctsh3642/djy/blob/master/gb/21/1/10/n12679612.md#1" target="_blank">女儿想要个妹妹 张梓琳反问“是弟弟咋办”</a></h4></td></tr>
