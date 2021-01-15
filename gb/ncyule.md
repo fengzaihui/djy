@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a><br></h3><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/06/3_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank">台亲共艺人恐惧染疫 亲睹河北楼下邻居被带走</a><br></h3><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12690039.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101150445381487-320x200.jpg"></a>
 <a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689837.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/201021094828100707-320x200.jpg"></a>
 <a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101150148201487-320x200.jpg"></a>
 <a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689621.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101150040451487-320x200.jpg"></a>
 <a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688900.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1227935961-320x200.jpg"></a>
 <a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/06/3_meitu_1-320x200.jpg"></a>
-<a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12687518.md#1" target="_blank">伯贤夺Gaon专辑年度歌手奖 韩团solo歌手首例</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/13/n12684789.md#1" target="_blank">(G)I-DLE《I burn》摘51区iTunes专辑榜冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12690039.md#1" target="_blank">钟欣凌首次挑战中文配音 为声演恐龙超用力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689832.md#1" target="_blank">第23届台北电影节双竞赛 即日起征件启动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12688126.md#1" target="_blank">李霈瑜听欠债人故事落泪 张书豪差点拒演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank">回应太太再孕传闻 周渝民自承照顾女儿有挫折</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank">搭档胡瓜录除夕节目 陈美凤送苹果祝福平安</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12690039.md#1" target="_blank">钟欣凌首次挑战中文配音 为声演恐龙超用力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689631.md#1" target="_blank">【专访】王彩桦：心存善念 人生没有过不去的关卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689832.md#1" target="_blank">第23届台北电影节双竞赛 即日起征件启动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689732.md#1" target="_blank">叶蕴仪转战直播界 庆生开播被礼物贴图淹没</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/15/n12689621.md#1" target="_blank">李翊君台湾巡回演唱会3月开跑 对体力有信心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vdbisv347/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
