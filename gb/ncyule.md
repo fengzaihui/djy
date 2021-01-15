@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank">台亲共艺人恐惧染疫 亲睹河北楼下邻居被带走</a><br></h3><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687677.md#1" target="_blank">田馥甄发年终“该给的不能少” 2021筹备新计划</a><br></h3><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687677.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/a005f43fe189cb07fd05be851f7c0b6d-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/15/n12689732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101150148201487-320x200.jpg"></a>
 <a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/15/n12689621.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101150040451487-320x200.jpg"></a>
 <a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688900.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1227935961-320x200.jpg"></a>
 <a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/06/3_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-320x200.jpg"></a>
 <a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688126.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/20210114-pts-02-320x200.jpg"></a>
-<a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687677.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/a005f43fe189cb07fd05be851f7c0b6d-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank">台亲共艺人恐惧染疫 亲睹河北楼下邻居被带走</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12686353.md#1" target="_blank">高圆圆常年穿件雨衣下厨 背后原因令人感佩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/15/n12689837.md#1" target="_blank">CNBLUE迎出道11周年：和粉丝一起走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687518.md#1" target="_blank">伯贤夺Gaon专辑年度歌手奖 韩团solo歌手首例</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12684789.md#1" target="_blank">(G)I-DLE《I burn》摘51区iTunes专辑榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/12/n12682602.md#1" target="_blank">谈与EXO世勋仅工作关系 金世正：请停止恶评</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688126.md#1" target="_blank">李霈瑜听欠债人故事落泪 张书豪差点拒演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12685116.md#1" target="_blank">回应太太再孕传闻 周渝民自承照顾女儿有挫折</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12685247.md#1" target="_blank">搭档胡瓜录除夕节目 陈美凤送苹果祝福平安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12685077.md#1" target="_blank">疫情升温《007》、蜘蛛人《魔比斯》恐再延档</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/15/n12689732.md#1" target="_blank">叶蕴仪转战直播界 庆生开播被礼物贴图淹没</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/15/n12689621.md#1" target="_blank">李翊君台湾巡回演唱会3月开跑 对体力有信心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank">台亲共艺人恐惧染疫 亲睹河北楼下邻居被带走</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12688189.md#1" target="_blank">古曜威为弱势募款 邀草爷等人凑足111万</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687677.md#1" target="_blank">田馥甄发年终“该给的不能少” 2021筹备新计划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/15/n12689732.md#1" target="_blank">叶蕴仪转战直播界 庆生开播被礼物贴图淹没</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/15/n12689621.md#1" target="_blank">李翊君台湾巡回演唱会3月开跑 对体力有信心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687448.md#1" target="_blank">盖瑞巴洛与张信哲跨国合作 量身打造英文情歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12684982.md#1" target="_blank">朱俐静抗癌抵抗力降 上通告勤喷酒精防疫</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/13/n12684292.md#1" target="_blank">杨颖受攻击 黄晓明护妻：冲我来 评论永不关闭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhznqg3172/djy/blob/master/gb/21/1/8/n12676634.md#1" target="_blank">刘嘉玲自曝有洁癖 拍戏时曾换掉酒店房间马桶</a></h4></td></tr>
