@@ -858,10 +858,4 @@ I.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/
 Tel/短信: 626-267-2419
 
 微信号: wing_px......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月15日 3:54 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/14/n12688562.md#1" target="_blank">八字评析 问事寻解 以挂占机 洞察运势</a><br></h3>
-
-易龙居咨询电话：303-909-1212
-
-818-919-3361......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月15日 3:29 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/14/n12687726.md#1" target="_blank">吉林法轮功学员孙志文遭绑架 下落不明</a><br></h3>2020年4月22日，吉林市永吉县口前镇三十多岁的法轮功学员孙志文被永吉县城北派出所绑架，后关押在吉林市看守所。9月份家属得知他已被转走，但至今不知其下落。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年01月15日 3:25 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/bluvie3203/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/bluvie3203/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bluvie3203/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/bluvie3203/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
