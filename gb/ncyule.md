@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12692978.md#1" target="_blank">持修专场邀魏如萱助阵 老板阿妹上台引骚动</a><br></h3><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12692978.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101162052511487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/15/n12691425.md#1" target="_blank">59岁张学友近况曝光 胡须斑白双颊凹陷</a><br></h3><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/15/n12691425.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/04/1804211028351487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693468.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101170610351487-320x200.jpg"></a>
 <a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101170443401487-320x200.jpg"></a>
 <a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693341.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2009161143151470-320x200.jpg"></a>
 <a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693063.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101162227221487-320x200.jpg"></a>
 <a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12692978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101162052511487-320x200.jpg"></a>
 <a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/15/n12691425.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/04/1804211028351487-320x200.jpg"></a>
-<a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693341.md#1" target="_blank">苏晏霈角色形象受喜爱 安排过年陪家人走春</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693063.md#1" target="_blank">吴映洁太好动 黄秋生录《餐车》建议去看医生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/15/n12690039.md#1" target="_blank">钟欣凌首次挑战中文配音 为声演恐龙超用力</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693468.md#1" target="_blank">北流近5千张票迅速完售 “九泽”签票回馈粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693341.md#1" target="_blank">苏晏霈角色形象受喜爱 安排过年陪家人走春</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693063.md#1" target="_blank">吴映洁太好动 黄秋生录《餐车》建议去看医生</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12692978.md#1" target="_blank">持修专场邀魏如萱助阵 老板阿妹上台引骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12693468.md#1" target="_blank">北流近5千张票迅速完售 “九泽”签票回馈粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/17/n12692978.md#1" target="_blank">持修专场邀魏如萱助阵 老板阿妹上台引骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/15/n12690073.md#1" target="_blank">郑心慈苦等8年发片落泪 上山下海为见刘以豪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/15/n12689732.md#1" target="_blank">叶蕴仪转战直播界 庆生开播被礼物贴图淹没</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/15/n12689621.md#1" target="_blank">李翊君台湾巡回演唱会3月开跑 勤练深蹲养体力</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/13/n12686353.md#1" target="_blank">高圆圆常年穿件雨衣下厨 背后原因令人感佩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xitbic3193/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank">台亲共艺人恐惧染疫 亲睹河北楼下邻居被带走</a></h4></td></tr>
