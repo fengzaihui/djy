@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/20/12/29/n12650575.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/476811-320x200.jpg"><br>《柏捷顿家族：名门韵事》影评：目标不同也可天生一对</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/17/n12692978.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101162052511487-320x200.jpg"><br> 持修专场邀魏如萱助阵 老板阿妹上台引骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br> 《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/15/n12690280.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/210115075051100707-320x200.jpg"><br> 《SOLO》浏览破6亿 Jennie：我的生日礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/15/n12690022.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2015/07/1507292258001487-320x200.jpg"><br> 孙莹莹生日前夕宣布离婚：勇敢面对未来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/15/n12690039.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101150445381487-320x200.jpg"><br> 钟欣凌首次挑战中文配音 为声演恐龙超用力</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/14/n12688900.md#1" target="_blank">被质疑未按要求隔离 女星虞书欣陷舆论风波</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bluvie3203/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
