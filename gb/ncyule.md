@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a><br></h3><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101170443401487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693063.md#1" target="_blank">吴映洁太好动 黄秋生录《餐车》建议去看医生</a><br></h3><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693063.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101162227221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12695049.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/20210118-yuling-tw-John-Park-320x200.jpg"></a>
+<a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694907.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101180129561487-320x200.jpg"></a>
 <a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694533.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2012310136361487-320x200.jpg"></a>
 <a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/190528041111100707-320x200.jpg"></a>
 <a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12694119.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1062739428-1-1-320x200.jpg"></a>
 <a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693952.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/11/photo_2019-11-05_16-24-05-320x200.jpg"></a>
-<a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693468.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101170610351487-320x200.jpg"></a>
-<a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101170443401487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/14/n12688900.md#1" target="_blank">被质疑未按要求隔离 女星虞书欣陷舆论风波</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/14/n12688483.md#1" target="_blank">台亲共艺人恐惧染疫 亲睹河北楼下邻居被带走</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12695049.md#1" target="_blank">韩国歌手John Park确诊染疫 入院隔离中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694636.md#1" target="_blank">Super Junior圭贤将推冬季单曲 1月26日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/15/n12690280.md#1" target="_blank">《SOLO》浏览破6亿 Jennie：我的生日礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/15/n12689837.md#1" target="_blank">CNBLUE迎出道11周年：和粉丝一起走下去</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693341.md#1" target="_blank">苏晏霈角色形象受喜爱 安排过年陪家人走春</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693063.md#1" target="_blank">吴映洁太好动 黄秋生录《餐车》建议去看医生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/15/n12690039.md#1" target="_blank">钟欣凌首次挑战中文配音 为声演恐龙超用力</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694907.md#1" target="_blank">孙盛希签票欢见歌迷 夯歌荣获亚洲电视大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694533.md#1" target="_blank">阿妹遭爆将参选立委 经纪人回“绝对不可能”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693952.md#1" target="_blank">杜汶泽调侃周杰伦身材发福 一张对比图引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693468.md#1" target="_blank">北流近5千张票迅速完售 “九泽”签票回馈粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694907.md#1" target="_blank">孙盛希签票欢见歌迷 夯歌荣获亚洲电视大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/18/n12694533.md#1" target="_blank">阿妹遭爆将参选立委 经纪人回“绝对不可能”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12693468.md#1" target="_blank">北流近5千张票迅速完售 “九泽”签票回馈粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/17/n12692978.md#1" target="_blank">持修专场邀魏如萱助阵 老板阿妹上台引骚动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/15/n12690073.md#1" target="_blank">郑心慈苦等8年发片落泪 上山下海为见刘以豪</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/15/n12691080.md#1" target="_blank">刘嘉玲晒照为弟媳庆生 亿万财产或由侄子继承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owsjff3260/djy/blob/master/gb/21/1/13/n12686353.md#1" target="_blank">高圆圆常年穿件雨衣下厨 背后原因令人感佩</a></h4></td></tr>
