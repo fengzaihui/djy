@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank">华为二公主姚安娜出道 网友：拿钱砸开所有门</a><br></h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/yao-anna-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696172.md#1" target="_blank">刘德华曾惹恼杜琪峯 因发型被呛偶像包袱重</a><br></h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696172.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/08/1708100618112384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697482.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101190308551487-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697332.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2009280322541487-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697391.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/181214094626100707-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696985.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101182228011487-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101182113441487-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/yao-anna-320x200.jpg"></a>
-<a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696172.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/08/1708100618112384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12694119.md#1" target="_blank">邓超画婚照引孙俪吐槽 9岁儿一句话笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/14/n12688900.md#1" target="_blank">被质疑未按要求隔离 女星虞书欣陷舆论风波</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697482.md#1" target="_blank">允浩发新专辑 影帝黄晸玟跨刀无偿出演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697391.md#1" target="_blank">GOT7登推特世界趋势榜冠军 粉丝祝福新发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12695711.md#1" target="_blank">TEEN TOP成员Ricky入伍 谈唱《叹息》原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12695049.md#1" target="_blank">韩国歌手John Park确诊染疫 入院隔离中</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12694636.md#1" target="_blank">Super Junior圭贤将推冬季单曲 1月26日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696985.md#1" target="_blank">赛车片在台上映2天破600万 周杰伦现身戏院</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank">《全明星》首季收视创新高 参赛明星人气窜升</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a></h4></td></tr>
