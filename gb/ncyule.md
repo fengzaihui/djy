@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank">《全明星》首季收视创新高 参赛明星人气窜升</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12693341.md#1" target="_blank">苏晏霈角色形象受喜爱 安排过年陪家人走春</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697501.md#1" target="_blank">周华健吴宗宪老交情 传子女也将携手主持节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697625.md#1" target="_blank">黄明志忧回大马被关染疫 与黄秋生在台围炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank">朱海君直播卖货 见女儿暖心举动当场感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697332.md#1" target="_blank">唐绮阳身体出状况 感伤今年运势书将是告别作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696985.md#1" target="_blank">赛车片在台上映2天破600万 周杰伦现身戏院</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank">《全明星》首季收视创新高 参赛明星人气窜升</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
