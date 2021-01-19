@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank">华为二公主姚安娜出道 网友：拿钱砸开所有门</a><br></h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/yao-anna-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696172.md#1" target="_blank">刘德华曾惹恼杜琪峯 因发型被呛偶像包袱重</a><br></h3><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696172.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/08/1708100618112384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697501.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/DSC_0818-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101190522061487-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697482.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101190308551487-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697332.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2009280322541487-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697391.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/181214094626100707-320x200.jpg"></a>
 <a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696985.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101182228011487-320x200.jpg"></a>
-<a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101182113441487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12694119.md#1" target="_blank">邓超画婚照引孙俪吐槽 9岁儿一句话笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/14/n12688900.md#1" target="_blank">被质疑未按要求隔离 女星虞书欣陷舆论风波</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12698282.md#1" target="_blank">GOT7手写信谈解约：7人都会为粉丝继续做音乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697482.md#1" target="_blank">允浩发新专辑 影帝黄晸玟跨刀无偿出演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697391.md#1" target="_blank">GOT7登推特世界趋势榜冠军 粉丝祝福新发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12695711.md#1" target="_blank">TEEN TOP成员Ricky入伍 谈唱《叹息》原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12695049.md#1" target="_blank">韩国歌手John Park确诊染疫 入院隔离中</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12698196.md#1" target="_blank">李宣榕回归《女力》竟喊分手 让观众措手不及</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696985.md#1" target="_blank">赛车片在台上映2天破600万 周杰伦现身戏院</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank">《全明星》首季收视创新高 参赛明星人气窜升</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12693341.md#1" target="_blank">苏晏霈角色形象受喜爱 安排过年陪家人走春</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12698234.md#1" target="_blank">黄美珍庆生 1岁爱女扮卑南族公主亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697501.md#1" target="_blank">周华健吴宗宪老交情 传子女也将携手主持节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697625.md#1" target="_blank">黄明志忧回大马被关染疫 与黄秋生在台围炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank">朱海君直播卖货 见女儿暖心举动当场感性落泪</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697332.md#1" target="_blank">唐绮阳身体出状况 感伤今年运势书将是告别作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12698234.md#1" target="_blank">黄美珍庆生 1岁爱女扮卑南族公主亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank">朱海君直播卖货 见女儿暖心举动当场感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12695436.md#1" target="_blank">2年前暂别歌坛 安婕希生日宣告发行单曲回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12695182.md#1" target="_blank">许富凯乔装出任务 试探婆妈见本人真实反映</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12694907.md#1" target="_blank">孙盛希签票欢见歌迷 夯歌荣获亚洲电视大奖</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/15/n12691080.md#1" target="_blank">刘嘉玲晒照为弟媳庆生 亿万财产或由侄子继承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/15/n12691267.md#1" target="_blank">余苑绮少外食戒油炸仍罹癌 营养师点出关键</a></h4></td></tr>
