@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/17/n12694119.md#1" target="_blank">邓超画婚照引孙俪吐槽 9岁儿一句话笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/14/n12688900.md#1" target="_blank">被质疑未按要求隔离 女星虞书欣陷舆论风波</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/14/n12688681.md#1" target="_blank">乐见孙艺珍演韩版王漫妮 江疏影俏皮回应网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/19/n12697391.md#1" target="_blank">GOT7登推特世界趋势榜冠军 粉丝祝福新发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/18/n12695711.md#1" target="_blank">TEEN TOP成员Ricky入伍 谈唱《叹息》原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/18/n12695049.md#1" target="_blank">韩国歌手John Park确诊染疫 入院隔离中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/18/n12694636.md#1" target="_blank">Super Junior圭贤将推冬季单曲 1月26日发行</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/15/n12690280.md#1" target="_blank">《SOLO》浏览破6亿 Jennie：我的生日礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/19/n12696985.md#1" target="_blank">赛车片在台上映2天破600万 周杰伦现身戏院</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank">《全明星》首季收视创新高 参赛明星人气窜升</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yypzrq380/djy/blob/master/gb/21/1/17/n12693417.md#1" target="_blank">陈意涵与邱泽等3女3男爱情剧吸睛 月底上档</a></h4></td></tr>
