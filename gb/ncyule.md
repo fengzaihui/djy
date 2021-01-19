@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/20/12/29/n12650575.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/476811-320x200.jpg"><br>《柏捷顿家族：名门韵事》影评：目标不同也可天生一对</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12697482.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101190308551487-320x200.jpg"><br> 允浩发新专辑 影帝黄晸玟跨刀无偿出演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/19/n12696784.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101182113441487-320x200.jpg"><br> 《全明星》首季收视创新高 参赛明星人气窜升</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br> 《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/15/n12690280.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/210115075051100707-320x200.jpg"><br> 《SOLO》浏览破6亿 Jennie：我的生日礼物</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/15/n12690022.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2015/07/1507292258001487-320x200.jpg"><br> 孙莹莹生日前夕宣布离婚：勇敢面对未来</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank">华为二公主姚安娜出道 网友：拿钱砸开所有门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntdfku385/djy/blob/master/gb/21/1/17/n12694119.md#1" target="_blank">邓超画婚照引孙俪吐槽 9岁儿一句话笑翻网友</a></h4></td></tr>
