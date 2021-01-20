@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank">获章子怡热情颁奖 赵丽颖一动作引赞赏</a><br></h3><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/zhang-ziyi-zhao-liying-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698282.md#1" target="_blank">GOT7手写信谈解约：7人都会为粉丝继续做音乐</a><br></h3><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698282.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/04/200420232657100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200444551487-320x200.jpg"></a>
 <a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12699789.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200249341487-320x200.jpg"></a>
 <a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12699619.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200139341487-320x200.jpg"></a>
 <a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/161222084302100311-320x200.jpg"></a>
 <a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1907022241092563-320x200.jpg"></a>
 <a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/zhang-ziyi-zhao-liying-320x200.jpg"></a>
-<a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698282.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/200420232657100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12699619.md#1" target="_blank">罗比威廉斯惊传法国染疫 一家六口正隔离中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698196.md#1" target="_blank">李宣榕回归《女力》竟喊分手 让观众措手不及</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12696985.md#1" target="_blank">赛车片在台上映2天破600万 周杰伦现身戏院</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank">辛晓琪首登台视《红白》 曝新单曲筹备进度</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12699789.md#1" target="_blank">邵雨薇当“总编辑”推线上杂志 盼与众人聊天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/20/n12699619.md#1" target="_blank">罗比威廉斯惊传法国染疫 一家六口正隔离中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12698234.md#1" target="_blank">黄美珍庆生 1岁爱女扮卑南族公主亮相</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/19/n12697501.md#1" target="_blank">周华健吴宗宪老交情 传子女也将携手主持节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dwxesj356/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
