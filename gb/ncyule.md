@@ -10,7 +10,7 @@
 <a href="https://github.com/wbdxpt362/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1907022241092563-320x200.jpg"></a>
 <a href="https://github.com/wbdxpt362/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/zhang-ziyi-zhao-liying-320x200.jpg"></a>
 <a href="https://github.com/wbdxpt362/djy/blob/master/gb/21/1/19/n12698282.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/200420232657100707-320x200.jpg"></a>
-<a href="https://github.com/wbdxpt362/djy/blob/master/gb/21/1/19/n12697501.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/DSC_0818-320x200.jpg"></a>
+<a href="https://github.com/wbdxpt362/djy/blob/master/gb/21/1/19/n12697501.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101190400182122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wbdxpt362/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wbdxpt362/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
