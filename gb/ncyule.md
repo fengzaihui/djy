@@ -19,9 +19,9 @@
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/20/12/31/n12655902.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/477058-320x200.jpg"><br>《黑暗元素2》影评：新舞台、新元素 成为娱乐性保证</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12702157.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101202143091487-320x200.jpg"><br> TXT日文正规一辑 空降公信榜单日专辑榜冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101202327081487-320x200.jpg"><br> 看好“3Q哥”综艺潜力 澎恰恰力邀进演艺圈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br> 《捍卫救援》影评：退伍老兵依然能力抗毒枭集团！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101200708041487-320x200.jpg"><br> 偕柯有伦录《娱百》 宥胜新年计划想造组合屋</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101200444551487-320x200.jpg"><br> 辛晓琪首登台视《红白》 曝新单曲筹备进度</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank">郑爽代孕风波引爆舆论 杨颖等女星无辜受牵连</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank">郑爽代孕弃养丑闻发酵 合作方纷纷解约和封杀</a></h4></td></tr>
