@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12699972.md#1" target="_blank">林心如回忆创业遇撞墙：把鸟事化无事</a><br></h3><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12699972.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200354452122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank">柯有伦自认女儿傻瓜 夸周杰伦超级奶爸</a><br></h3><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/33065f8c6488313600877b316c89c386-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12702544.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1901230549151487-320x200.jpg"></a>
 <a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12702350.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1410241904202669-320x200.jpg"></a>
 <a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12702157.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101202143091487-320x200.jpg"></a>
 <a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101202327081487-320x200.jpg"></a>
 <a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12701010.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200708041487-320x200.jpg"></a>
-<a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12699972.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200354452122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵依然能力抗毒枭集团！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12701010.md#1" target="_blank">与母亲温馨合照曝光 古天乐孝顺事迹获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank">偕柯有伦录《娱百》 宥胜新年计划想造组合屋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/20/n12699972.md#1" target="_blank">林心如回忆创业遇撞墙：把鸟事化无事</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12702452.md#1" target="_blank">《银魂》完结篇剧场版 在日本首周末票房摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12702350.md#1" target="_blank">对抗咽喉癌6年 坂本龙一又因直肠癌入院开刀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/21/n12701773.md#1" target="_blank">TXT推出首张日文专辑 本月公开先行曲《Force》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/19/n12698234.md#1" target="_blank">黄美珍庆生 1岁爱女扮卑南族公主亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/konwxp321/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank">朱海君直播卖货 见女儿暖心举动当场感性落泪</a></h4></td></tr>
