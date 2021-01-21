@@ -5,8 +5,8 @@
 <tr><td><h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank">柯有伦自认女儿傻瓜 夸周杰伦超级奶爸</a><br></h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/33065f8c6488313600877b316c89c386-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank">辛晓琪首登台视《红白》 曝新单曲筹备进度</a><br></h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200444551487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12702157.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101202143091487-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101202327081487-320x200.jpg"></a>
-<a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701773.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101202143091487-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12701010.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200708041487-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699972.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200354452122-320x200.jpg"></a>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank">郑爽代孕弃养丑闻发酵 合作方纷纷解约和封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank">获章子怡热情颁奖 赵丽颖一动作引赞赏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank">华为二公主姚安娜出道 网友：拿钱砸开所有门</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12702157.md#1" target="_blank">TXT日文正规一辑 空降公信榜单日专辑榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12698282.md#1" target="_blank">GOT7手写信谈解约：7人都会为粉丝继续做音乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12697482.md#1" target="_blank">允浩发新专辑 影帝黄晸玟跨刀无偿出演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12697391.md#1" target="_blank">GOT7登推特世界趋势榜冠军 粉丝祝福新发展</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/18/n12695711.md#1" target="_blank">TEEN TOP成员Ricky入伍 谈唱《叹息》原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank">看好“3Q哥”综艺潜力 澎恰恰力邀进演艺圈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank">偕柯有伦录《娱百》 宥胜新年计划想造组合屋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699789.md#1" target="_blank">邵雨薇当“总编辑”推线上杂志 盼与众人聊天</a></h4></td></tr>
@@ -43,7 +43,7 @@
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/13/n12684722.md#1" target="_blank">杰尼斯NEWS新单曲销售亮眼 加藤成亮小说热卖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701773.md#1" target="_blank">TXT将推首张日文专辑 本月公开先行曲《Force》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701773.md#1" target="_blank">TXT推出首张日文专辑 本月公开先行曲《Force》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12698234.md#1" target="_blank">黄美珍庆生 1岁爱女扮卑南族公主亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank">朱海君直播卖货 见女儿暖心举动当场感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/18/n12695436.md#1" target="_blank">2年前暂别歌坛 安婕希生日宣告发行单曲回归</a></h4></td></tr>
