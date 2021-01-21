@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank">柯有伦自认女儿傻瓜 夸周杰伦超级奶爸</a><br></h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/33065f8c6488313600877b316c89c386-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank">辛晓琪首登台视《红白》 曝新单曲筹备进度</a><br></h3><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200444551487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101202327081487-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701773.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101202143091487-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12701010.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200708041487-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699972.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200354452122-320x200.jpg"></a>
 <a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/33065f8c6488313600877b316c89c386-320x200.jpg"></a>
-<a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700016.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101200444551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵依然能力抗毒枭集团！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12697482.md#1" target="_blank">允浩发新专辑 影帝黄晸玟跨刀无偿出演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12697391.md#1" target="_blank">GOT7登推特世界趋势榜冠军 粉丝祝福新发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/18/n12695711.md#1" target="_blank">TEEN TOP成员Ricky入伍 谈唱《叹息》原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank">看好“3Q哥”综艺潜力 澎恰恰力邀进演艺圈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank">偕柯有伦录《娱百》 宥胜新年计划想造组合屋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699789.md#1" target="_blank">邵雨薇当“总编辑”推线上杂志 盼与众人聊天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699619.md#1" target="_blank">罗比威廉斯惊传法国染疫 一家六口正隔离中</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/19/n12698196.md#1" target="_blank">李宣榕回归《女力》竟喊分手 让观众措手不及</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank">看好“3Q哥”综艺潜力 澎恰恰力邀进演艺圈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12701010.md#1" target="_blank">与母亲温馨合照曝光 古天乐孝顺事迹获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank">偕柯有伦录《娱百》 宥胜新年计划想造组合屋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12699972.md#1" target="_blank">林心如回忆创业遇撞墙：把鸟事化无事</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/20/n12700125.md#1" target="_blank">柯有伦自认女儿傻瓜 夸周杰伦超级奶爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/13/n12684997.md#1" target="_blank">“岚”二宫和也将当爸 太太预产期在春天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxwfq3540/djy/blob/master/gb/21/1/13/n12684797.md#1" target="_blank">与杰尼斯偶像合作 上白石萌音新剧恋上温柔男</a></h4></td></tr>
