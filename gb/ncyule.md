@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12703884.md#1" target="_blank">67岁“铁肺歌后”甄妮曝近况：我回来了</a><br></h3><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12703884.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2012/12/121227185538100486-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12705404.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101220752431487-320x200.jpg"></a>
-<a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12704835.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101220051052122-320x200.jpg"></a>
 <a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12705064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101220353252122-320x200.jpg"></a>
 <a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12705048.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101220449481487-320x200.jpg"></a>
 <a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12704844.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101220247141487-320x200.jpg"></a>
 <a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12704624.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101220123291487-320x200.jpg"></a>
+<a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12703884.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2012/12/121227185538100486-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵依然能力抗毒枭集团！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank">郑爽代孕风波引爆舆论 杨颖等女星无辜受牵连</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank">郑爽代孕弃养丑闻发酵 合作方纷纷解约和封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank">获章子怡热情颁奖 赵丽颖一动作引赞赏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12705648.md#1" target="_blank">2NE1齐聚CL工作室 寿星MINZY盼大家健康快乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12704102.md#1" target="_blank">MAMAMOO续约商议中 颂乐与玟星已完成续约</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/21/n12702544.md#1" target="_blank">GOT7段宜恩频道订阅破百万 2月12日推新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/21/n12702157.md#1" target="_blank">TXT日文正规一辑 空降公信榜单日专辑榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/19/n12698282.md#1" target="_blank">GOT7手写信谈解约：7人都会为粉丝继续做音乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12705404.md#1" target="_blank">江宏杰参录新节目 深入渔村成为“探索伙伴”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/22/n12704844.md#1" target="_blank">感慨医护友人染疫 胡宇威：对前线应多些关怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nbjhgz3458/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank">看好“3Q哥”综艺潜力 澎恰恰力邀进演艺圈</a></h4></td></tr>
