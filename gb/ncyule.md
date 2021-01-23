@@ -23,18 +23,18 @@
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/21/n12702157.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101202143091487-320x200.jpg"><br> TXT日文正规一辑 空降公信榜单日专辑榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101200708041487-320x200.jpg"><br> 偕柯有伦录《娱百》 宥胜新年计划想造组合屋</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12706385.md#1" target="_blank">章子怡首拍剧穿帮？古装裙下露出精品运动鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12705972.md#1" target="_blank">孙俪分享新手艺 自制乾花束纪念家庭幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/21/n12703464.md#1" target="_blank">梁朝伟与章子怡再同框 台上互喊戏中名字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank">郑爽代孕风波引爆舆论 杨颖等女星无辜受牵连</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank">郑爽代孕弃养丑闻发酵 合作方纷纷解约和封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12705648.md#1" target="_blank">2NE1齐聚CL工作室 寿星MINZY盼大家健康快乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12704102.md#1" target="_blank">MAMAMOO续约商议中 颂乐与玟星已完成续约</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/21/n12702544.md#1" target="_blank">GOT7段宜恩频道订阅破百万 2月12日推新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/21/n12702157.md#1" target="_blank">TXT日文正规一辑 空降公信榜单日专辑榜冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12706385.md#1" target="_blank">章子怡首拍剧穿帮？古装裙下露出精品运动鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12705404.md#1" target="_blank">江宏杰参录新节目 深入渔村成为“探索伙伴”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12704844.md#1" target="_blank">感慨医护友人染疫 胡宇威：对前线应多些关怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/21/n12701841.md#1" target="_blank">看好“3Q哥”综艺潜力 澎恰恰力邀进演艺圈</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/20/n12699939.md#1" target="_blank">偕柯有伦录《娱百》 宥胜新年计划想造组合屋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12706233.md#1" target="_blank">霍建华拍完《如懿传》后便沉寂？导演爆秘辛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12705404.md#1" target="_blank">江宏杰参录新节目 深入渔村成为“探索伙伴”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/22/n12704835.md#1" target="_blank">新人王振诺出道 外型被夸“胡歌加霍建华”</a></h4></td></tr>
@@ -49,8 +49,6 @@
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/18/n12695436.md#1" target="_blank">2年前暂别歌坛 安婕希生日宣告发行单曲回归</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank">获章子怡热情颁奖 赵丽颖一动作引赞赏</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/15/n12691080.md#1" target="_blank">刘嘉玲晒照为弟媳庆生 亿万财产或由侄子继承</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/15/n12691267.md#1" target="_blank">余苑绮少外食戒油炸仍罹癌 营养师点出关键</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/15/n12691425.md#1" target="_blank">59岁张学友近况曝光 胡须斑白双颊凹陷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank">郑爽代孕风波引爆舆论 杨颖等女星无辜受牵连</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/17/n12693952.md#1" target="_blank">杜汶泽调侃周杰伦身材发福 一张对比图引热议</a></h4></td></tr>
@@ -58,5 +56,7 @@
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank">郑爽代孕弃养丑闻发酵 合作方纷纷解约和封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/18/n12696414.md#1" target="_blank">华为二公主姚安娜出道 网友：拿钱砸开所有门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/21/n12703721.md#1" target="_blank">撑警陈百祥违反限聚令 5千港人联署促警严查</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank">《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kviega3199/djy/blob/master/gb/21/1/20/n12701010.md#1" target="_blank">与母亲温馨合照曝光 古天乐孝顺事迹获爆赞</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/kviega3199/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/kviega3199/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kviega3199/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/kviega3199/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
