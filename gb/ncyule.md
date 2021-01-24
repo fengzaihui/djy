@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12706385.md#1" target="_blank">章子怡首拍剧穿帮？古装裙下露出精品运动鞋</a><br></h3><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12706385.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/06/GettyImages-1151649583-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12705972.md#1" target="_blank">孙俪分享新手艺 自制乾花束纪念家庭幸福</a><br></h3><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12705972.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/12/GettyImages-172078025-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240237301487-320x200.jpg"></a>
+<a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708406.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240217041487-320x200.jpg"></a>
 <a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708262.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1710101141462275-320x200.jpg"></a>
 <a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101232117501487-320x200.jpg"></a>
 <a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/23/n12707260.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200707091035100707-320x200.jpg"></a>
 <a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12706385.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/GettyImages-1151649583-320x200.jpg"></a>
-<a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12705972.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/GettyImages-172078025-320x200.jpg"></a>
-<a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12706233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/1-16-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12705648.md#1" target="_blank">2NE1齐聚CL工作室 寿星MINZY盼大家健康快乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12704102.md#1" target="_blank">MAMAMOO续约商议中 颂乐与玟星已完成续约</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/21/n12702544.md#1" target="_blank">GOT7段宜恩频道订阅破百万 2月12日推新单曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank">《戒指流浪记》终章 宥胜跳机场求婚舞喊害羞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank">老萧8度登《红白》 着2021春夏男装华丽开场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12706385.md#1" target="_blank">章子怡首拍剧穿帮？古装裙下露出精品运动鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12705404.md#1" target="_blank">江宏杰参录新节目 深入渔村成为“探索伙伴”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12704844.md#1" target="_blank">感慨医护友人染疫 胡宇威：对前线应多些关怀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank">《戒指流浪记》终章 宥胜跳机场求婚舞喊害羞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708406.md#1" target="_blank">2020巡回演唱会重启 伍佰准备8月“攻蛋”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708262.md#1" target="_blank">与李荣浩分开300天“见面了” 杨丞琳甜晒抱抱照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank">老萧8度登《红白》 着2021春夏男装华丽开场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12706233.md#1" target="_blank">霍建华拍完《如懿传》后便沉寂？导演爆秘辛</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12705404.md#1" target="_blank">江宏杰参录新节目 深入渔村成为“探索伙伴”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/21/n12702452.md#1" target="_blank">《银魂》完结篇剧场版 在日本首周末票房摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/21/n12702350.md#1" target="_blank">对抗咽喉癌6年 坂本龙一又因直肠癌入院开刀</a></h4></td></tr>
@@ -49,8 +49,8 @@
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank">朱海君直播卖货 见女儿暖心举动当场感性落泪</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank">获章子怡热情颁奖 赵丽颖一动作引赞赏</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank">郑爽代孕风波引爆舆论 杨颖等女星无辜受牵连</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12706233.md#1" target="_blank">霍建华拍完《如懿传》后便沉寂？导演爆秘辛</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank">郑爽代孕风波引爆舆论 杨颖等女星无辜受牵连</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/22/n12705064.md#1" target="_blank">法比欧当台湾女婿 示范拿手菜满足未婚妻的胃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/17/n12693952.md#1" target="_blank">杜汶泽调侃周杰伦身材发福 一张对比图引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dljliw3319/djy/blob/master/gb/21/1/17/n12694119.md#1" target="_blank">邓超画婚照引孙俪吐槽 9岁儿一句话笑翻网友</a></h4></td></tr>
