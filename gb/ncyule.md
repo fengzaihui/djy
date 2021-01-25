@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank">老萧8度登《红白》 着2021春夏男装华丽开场</a><br></h3><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101232117501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708979.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/06/hujing-320x200.jpg"></a>
+<a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708753.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/Ralph-Macchio-and-web4-700x420-320x200.jpg"></a>
 <a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240704201487-320x200.jpg"></a>
 <a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240237301487-320x200.jpg"></a>
 <a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708406.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240217041487-320x200.jpg"></a>
 <a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708262.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1710101141462275-320x200.jpg"></a>
-<a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101232117501487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/22/n12705648.md#1" target="_blank">2NE1齐聚CL工作室 寿星MINZY盼大家健康快乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/22/n12704102.md#1" target="_blank">MAMAMOO续约商议中 颂乐与玟星已完成续约</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/21/n12702544.md#1" target="_blank">GOT7段宜恩频道订阅破百万 2月12日推新单曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708979.md#1" target="_blank">胡静不愿被称豪门阔太 自曝一身装扮仅五百元</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708753.md#1" target="_blank">好莱坞演员分享和青梅竹马33年婚姻秘诀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank">Darren分享开车必备法宝 减少行车纠纷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank">《戒指流浪记》终章 宥胜跳机场求婚舞喊害羞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank">老萧8度登《红白》 着2021春夏男装华丽开场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank">Darren分享开车必备法宝 减少行车纠纷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank">《戒指流浪记》终章 宥胜跳机场求婚舞喊害羞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/faflev3861/djy/blob/master/gb/21/1/24/n12708406.md#1" target="_blank">2020巡回演唱会重启 伍佰准备8月“攻蛋”</a></h4></td></tr>
