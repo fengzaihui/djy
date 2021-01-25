@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708753.md#1" target="_blank">好莱坞演员分享和青梅竹马33年婚姻秘诀</a><br></h3><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708753.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/Ralph-Macchio-and-web4-700x420-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank">Darren分享开车必备法宝 减少行车纠纷</a><br></h3><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240704201487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/25/n12709778.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101242252191487-320x200.jpg"></a>
 <a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/25/n12709734.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200109054058100707-320x200.jpg"></a>
 <a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12709154.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/01/1509181729531693-320x200.jpg"></a>
 <a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708979.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/06/hujing-320x200.jpg"></a>
 <a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708753.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/Ralph-Macchio-and-web4-700x420-320x200.jpg"></a>
 <a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240704201487-320x200.jpg"></a>
-<a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101240237301487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708753.md#1" target="_blank">好莱坞演员分享和青梅竹马33年婚姻秘诀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank">Darren分享开车必备法宝 减少行车纠纷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank">《戒指流浪记》终章 宥胜跳机场求婚舞喊害羞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/25/n12709778.md#1" target="_blank">李宣榕揪梁舒涵演绎新歌 展一秒落泪功力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708635.md#1" target="_blank">Darren分享开车必备法宝 减少行车纠纷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708424.md#1" target="_blank">《戒指流浪记》终章 宥胜跳机场求婚舞喊害羞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708406.md#1" target="_blank">2020巡回演唱会重启 伍佰准备8月“攻蛋”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708262.md#1" target="_blank">与李荣浩分开300天“见面了” 杨丞琳甜晒抱抱照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/21/n12702452.md#1" target="_blank">《银魂》完结篇剧场版 在日本首周末票房摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/21/n12702350.md#1" target="_blank">对抗咽喉癌6年 坂本龙一又因直肠癌入院开刀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/25/n12709778.md#1" target="_blank">李宣榕揪梁舒涵演绎新歌 展一秒落泪功力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/24/n12708205.md#1" target="_blank">老萧8度登《红白》 着2021春夏男装华丽开场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/21/n12701773.md#1" target="_blank">TXT推出首张日文专辑 本月公开先行曲《Force》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/19/n12698234.md#1" target="_blank">黄美珍庆生 1岁爱女扮卑南族公主亮相</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/19/n12697679.md#1" target="_blank">朱海君直播卖货 见女儿暖心举动当场感性落泪</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank">获章子怡热情颁奖 赵丽颖一动作引赞赏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vpdtpw317/djy/blob/master/gb/21/1/22/n12706233.md#1" target="_blank">霍建华拍完《如懿传》后便沉寂？导演爆秘辛</a></h4></td></tr>
