@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710797.md#1" target="_blank">庾澄庆卖零食试水温 笑称庾妈夸奖画错重点</a><br></h3><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710797.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101250741211487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710581.md#1" target="_blank">周华健开唱邀阿信当嘉宾 对桃园防疫有信心</a><br></h3><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710581.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101250326052122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12712454.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/200520041354100707-320x200.jpg"></a>
 <a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12712384.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101260049281487-320x200.jpg"></a>
 <a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12711960.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101252214401487-320x200.jpg"></a>
 <a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12711753.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1149320649-320x200.jpg"></a>
 <a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12711517.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/180914045434100707-320x200.jpg"></a>
 <a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12711313.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/1907180738392384-320x200.jpg"></a>
-<a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710797.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101250741211487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
@@ -27,16 +27,16 @@
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12711517.md#1" target="_blank">大陆山寨版IU爆红 真实相貌曝光惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12711313.md#1" target="_blank">演小龙女曾遭酸小笼包 陈妍希：若重来仍接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/24/n12709154.md#1" target="_blank">模仿邓超变谐星？孙俪同父异母妹妹晒照自黑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12712454.md#1" target="_blank">NCT 127将推《LOVEHOLIC》 先行曲27日公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12711517.md#1" target="_blank">大陆山寨版IU爆红 真实相貌曝光惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710410.md#1" target="_blank">《驱魔面馆》收视新高 世正：再次做梦很幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12709975.md#1" target="_blank">INFINITE金明洙下月入伍 20日将办线上见面会</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12709734.md#1" target="_blank">Rosé为粉丝备惊喜 31日演唱会将首唱Solo曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12712384.md#1" target="_blank">网友猜《全明星2》阵容 王家梁保守回应传闻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12711960.md#1" target="_blank">温妮献夜市美食被拒 黄秋生忧“胆固醇高”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12711960.md#1" target="_blank">台南人热情“捕获野生黄秋生” 本人处之泰然</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710493.md#1" target="_blank">15年《美食凤味》收摊转型 张凤书新节目首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710319.md#1" target="_blank">胡瓜2度欢送搭档待产 称白家绮刷新他主持纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12712384.md#1" target="_blank">网友猜《全明星2》阵容 王家梁保守回应传闻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12711960.md#1" target="_blank">温妮献夜市美食被拒 黄秋生忧“胆固醇高”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/26/n12711960.md#1" target="_blank">台南人热情“捕获野生黄秋生” 本人处之泰然</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12711313.md#1" target="_blank">演小龙女曾遭酸小笼包 陈妍希：若重来仍接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/25/n12710797.md#1" target="_blank">庾澄庆卖零食试水温 笑称庾妈夸奖画错重点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aoiepy3717/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
