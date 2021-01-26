@@ -50,9 +50,9 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/19/n12698651.md#1" target="_blank">获章子怡热情颁奖 赵丽颖一动作引赞赏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/22/n12706233.md#1" target="_blank">霍建华拍完《如懿传》后便沉寂？导演爆秘辛</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/25/n12711517.md#1" target="_blank">大陆山寨版IU爆红 真实相貌曝光惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/22/n12705064.md#1" target="_blank">法比欧当台湾女婿 示范拿手菜满足未婚妻的胃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/20/n12698979.md#1" target="_blank">郑爽代孕风波引爆舆论 杨颖等女星无辜受牵连</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/25/n12711517.md#1" target="_blank">大陆山寨版IU爆红 真实相貌曝光惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/24/n12709154.md#1" target="_blank">模仿邓超变谐星？孙俪同父异母妹妹晒照自黑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/19/n12698452.md#1" target="_blank">郑爽代孕弃养丑闻发酵 合作方纷纷解约和封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cjotkt3047/djy/blob/master/gb/21/1/22/n12706385.md#1" target="_blank">章子怡首拍剧穿帮？古装裙下露出精品运动鞋</a></h4></td></tr>
