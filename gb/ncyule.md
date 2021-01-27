@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714202.md#1" target="_blank">周润发夫妇恩爱日常曝光 吵架总是发哥认错</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714202.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/10/zhourunfa-chenhuilian-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12713983.md#1" target="_blank">黄子佼宣布取消盛大婚宴 孟耿如：简单即幸福</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12713983.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/463770-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101270710051487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715253.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101270347542122-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101010125501487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714827.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101110016321487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714768.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/201107020703100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714698.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101270052331487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714202.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/10/zhourunfa-chenhuilian-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715253.md#1" target="_blank">谢佳见一天一餐 过年放纵吃两餐 期许新年置产</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715171.md#1" target="_blank">因疫情升温 五月天台中演唱会延至12月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714954.md#1" target="_blank">跟着海牛下蚵田 浩子出外景体验渔村生活</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank">新片获日奥斯卡8项优秀奖 二宫和也再战影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702452.md#1" target="_blank">《银魂》完结篇剧场版 在日本首周末票房摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702350.md#1" target="_blank">对抗咽喉癌6年 坂本龙一又因直肠癌入院开刀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/14/n12687204.md#1" target="_blank">Hey! Say! JUMP新辑首周Oricon称冠 15日推台压版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715171.md#1" target="_blank">因疫情升温 五月天台中演唱会延至12月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714827.md#1" target="_blank">防疫关键期 许富凯宣告演唱会延期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12710587.md#1" target="_blank">吕蔷过年不怕长辈催婚 与秦宇子写创意春联</a></h4></td></tr>
