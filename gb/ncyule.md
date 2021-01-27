@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712893.md#1" target="_blank">D.O.都敬秀退伍准备Solo作 直播世勋也现身</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712893.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/1811060543591487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712838.md#1" target="_blank">减少出国工作却更忙 陈柏霖以咖啡诠释工作观</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712838.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101260302102122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714698.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101270052331487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714202.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/10/zhourunfa-chenhuilian-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12713983.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/10/463770-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714427.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/181018061629100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12713761.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-451535377-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712893.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1811060543591487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712838.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101260302102122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/3/n12663234.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/477604-320x200.jpg"><br>《莎宾娜的颤栗冒险4》影评：传奇要角的结局很有份量！</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714698.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101270052331487-320x200.jpg"><br> 林心如抱病为戏宣传 感谢另一半持家顾小孩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12710797.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101250741211487-320x200.jpg"><br> 庾澄庆卖零食试水温 笑称庾妈夸奖画错重点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12709975.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/1805210532081487-320x200.jpg"><br> INFINITE金明洙下月入伍 20日将办线上见面会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br> 《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br> 《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12711753.md#1" target="_blank">武汉封城周年零热搜 袁弘帖文钓出被噤声内幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12711517.md#1" target="_blank">大陆山寨版IU爆红 真实相貌曝光惊呆网友</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712633.md#1" target="_blank">禾浩辰接贺岁喜剧 扮外送员与卜学亮演父子</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712384.md#1" target="_blank">网友猜《全明星2》阵容 王家梁保守回应传闻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12711960.md#1" target="_blank">台南人热情“捕获野生黄秋生” 本人处之泰然</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714698.md#1" target="_blank">林心如抱病为戏宣传 感谢另一半持家顾小孩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714202.md#1" target="_blank">周润发夫妇恩爱日常曝光 吵架总是发哥认错</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12713983.md#1" target="_blank">黄子佼宣布取消盛大婚宴 孟耿如：简单即幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12713761.md#1" target="_blank">回应飞国外喂鸽子传闻 梁朝伟自称电脑白痴</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712782.md#1" target="_blank">被中国论坛传外遇 周杰伦：要黑也不看看对象</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702452.md#1" target="_blank">《银魂》完结篇剧场版 在日本首周末票房摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702350.md#1" target="_blank">对抗咽喉癌6年 坂本龙一又因直肠癌入院开刀</a></h4></td></tr>
