@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715253.md#1" target="_blank">谢佳见一天一餐 过年放纵吃两餐 期许新年置产</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715253.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101270347542122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714768.md#1" target="_blank">SJ正式发行《Star》 时隔7年推日文正规专辑</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714768.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/201107020703100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717346.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/1508300354152122-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717035.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2006080154071487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12716409.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/1907120853331487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12716197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101270710051487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715253.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101270347542122-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101010125501487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712784.md#1" target="_blank">台制作人筹拍SARS防疫故事 集资1天破250万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712633.md#1" target="_blank">禾浩辰接贺岁喜剧 扮外送员与卜学亮演父子</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712384.md#1" target="_blank">网友猜《全明星2》阵容 王家梁保守回应传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717346.md#1" target="_blank">邓福如晒宝宝照报喜 Howhow升格当爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717035.md#1" target="_blank">周子瑜老家遭窃 清洁员偷签名照等物网拍被逮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12716409.md#1" target="_blank">刘德华首开社交媒体账号 已吸引上千万粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715248.md#1" target="_blank">刘乐妍涉贿选3度不到庭 检察官建议发通缉令</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715253.md#1" target="_blank">谢佳见一天一餐 过年放纵吃两餐 期许新年置产</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank">新片获日奥斯卡8项优秀奖 二宫和也再战影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702452.md#1" target="_blank">《银魂》完结篇剧场版 在日本首周末票房摘冠</a></h4></td></tr>
