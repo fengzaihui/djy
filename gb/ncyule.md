@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12720129.md#1" target="_blank">周汤豪躲车上帮妈庆生 超暖心举动逼哭比莉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717641.md#1" target="_blank">唐绮阳录除夕节目 分析新年运势 难得开口唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714954.md#1" target="_blank">跟着海牛下蚵田 浩子出外景体验渔村生活</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719573.md#1" target="_blank">《孤味》、《想见你》登台湾2020网路热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12720317.md#1" target="_blank">澎恰恰跨足网路综艺节目 近期狂接通告曝光高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12720129.md#1" target="_blank">周汤豪躲车上帮妈庆生 超暖心举动逼哭比莉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719939.md#1" target="_blank">睽违19年的全词曲创作 孙燕姿公开全新单曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719559.md#1" target="_blank">周子瑜签名照专辑遭窃 母亲吁犯嫌做公益弥补</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717519.md#1" target="_blank">Snow Man全团隔离回归 新曲首周冲出80万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank">新片获日奥斯卡8项优秀奖 二宫和也再战影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
