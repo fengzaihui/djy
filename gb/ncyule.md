@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718843.md#1" target="_blank">唐嫣剧本全是笔记 佘诗曼暖心提醒导演讲国语</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718843.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/tang-yan-she-siman-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718640.md#1" target="_blank">孙俪下戏从不在片场待久 导演曝真相感动网友</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718640.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719939.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101290058071487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719868.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/201126025711100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719669.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/201123031100100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101282306381487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12719147.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/08/GettyImages-1153472756-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718843.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/10/tang-yan-she-siman-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718640.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br>《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/9/n12677645.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/478598-320x200.jpg"><br>《末世战疫：鸣鸟档案》影评：疫情危机下的浪漫爱情</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719939.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101290058071487-320x200.jpg"><br> 睽违19年的全词曲创作 孙燕姿公开全新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719669.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/201123031100100707-320x200.jpg"><br> XIUMIN退伍后首唱 31日公开《哲仁王后》OST</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714768.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/201107020703100707-320x200.jpg"><br> SJ正式发行《Star》 时隔7年推日文正规专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12710797.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101250741211487-320x200.jpg"><br> 庾澄庆卖零食试水温 笑称庾妈夸奖画错重点</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12709975.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/1805210532081487-320x200.jpg"><br> INFINITE金明洙下月入伍 20日将办线上见面会</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12719147.md#1" target="_blank">郎朗晒照官宣得子 意外遭医生点名犯了个错</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718843.md#1" target="_blank">唐嫣剧本全是笔记 佘诗曼暖心提醒导演讲国语</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714954.md#1" target="_blank">跟着海牛下蚵田 浩子出外景体验渔村生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712784.md#1" target="_blank">台制作人筹拍SARS防疫故事 集资1天破250万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12712633.md#1" target="_blank">禾浩辰接贺岁喜剧 扮外送员与卜学亮演父子</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719939.md#1" target="_blank">睽违19年的全词曲创作 孙燕姿公开全新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719559.md#1" target="_blank">周子瑜签名照专辑遭窃 母亲吁犯嫌做公益弥补</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718370.md#1" target="_blank">李佳颖与男友感情稳定 透露婚期最好选节日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718231.md#1" target="_blank">龙千玉分享开运秘诀 因过年活动延期乐当妈宝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717641.md#1" target="_blank">唐绮阳录除夕节目 分析新年运势 难得开口唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717519.md#1" target="_blank">Snow Man全团隔离回归 新曲首周冲出80万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank">新片获日奥斯卡8项优秀奖 二宫和也再战影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
