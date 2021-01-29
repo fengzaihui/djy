@@ -20,8 +20,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719939.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101290058071487-320x200.jpg"><br> 睽违19年的全词曲创作 孙燕姿公开全新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719669.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/201123031100100707-320x200.jpg"><br> XIUMIN退伍后首唱 31日公开《哲仁王后》OST</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br> 《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12714768.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/201107020703100707-320x200.jpg"><br> SJ正式发行《Star》 时隔7年推日文正规专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12710797.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101250741211487-320x200.jpg"><br> 庾澄庆卖零食试水温 笑称庾妈夸奖画错重点</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12719147.md#1" target="_blank">郎朗晒照官宣得子 意外遭医生点名犯了个错</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12718843.md#1" target="_blank">唐嫣剧本全是笔记 佘诗曼暖心提醒导演讲国语</a></h4></td></tr>
