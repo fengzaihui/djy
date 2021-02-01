@@ -10,7 +10,6 @@
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2101182113511487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102010056371487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724209.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/02/200214022334100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br>《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br>《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
@@ -35,10 +34,9 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank">《妈，别闹了！》杀青 比莉收下锦旗眼泪直流</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723875.md#1" target="_blank">陈芳语曝中国选秀内幕 痛揭生活遭监控没人权</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank">台职场爱情剧《创业》首播 林心如首集坠车顶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725352.md#1" target="_blank">过年遇催婚亲戚 王心恬丢下红包逃离现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725461.md#1" target="_blank">疫情期间暂时停飞 孙燕姿：更投入生活与创作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank">《全明星2》公布卡司 王家梁、范逸臣全在列</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank">《妈，别闹了！》杀青 比莉收下锦旗眼泪直流</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank">疫情期间团购被骗 台亲共艺人踢爆大陆假食品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725297.md#1" target="_blank">大久保麻梨子牛年开春 电影戏剧新作将推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717519.md#1" target="_blank">Snow Man全团隔离回归 新曲首周冲出80万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank">新片获日奥斯卡8项优秀奖 二宫和也再战影帝</a></h4></td></tr>
