@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank">台职场爱情剧《创业》首播 林心如首集坠车顶</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101310705091487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723561.md#1" target="_blank">朱孝天最爱猪油拌饭 自揭原因与F4往事有关</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723561.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101310212161487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2101182113511487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102010056371487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724209.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/02/200214022334100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723875.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2004182356481487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101310705091487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723596.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101310313521487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br>《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br>《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12720192.md#1" target="_blank">TWICE登《TIME》演唱：会持续带来正向能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719868.md#1" target="_blank">aespa将唱抒情单曲 2月5日发行《Forever》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719669.md#1" target="_blank">XIUMIN退伍后首唱 31日公开《哲仁王后》OST</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank">《全明星2》公布卡司 王家梁、范逸臣全在列</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank">《妈，别闹了！》杀青 比莉收下锦旗眼泪直流</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723875.md#1" target="_blank">陈芳语曝中国选秀内幕 痛揭生活遭监控没人权</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank">台职场爱情剧《创业》首播 林心如首集坠车顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723561.md#1" target="_blank">朱孝天最爱猪油拌饭 自揭原因与F4往事有关</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank">《全明星2》公布卡司 王家梁、范逸臣全在列</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank">《妈，别闹了！》杀青 比莉收下锦旗眼泪直流</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank">疫情期间团购被骗 台亲共艺人踢爆大陆假食品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723875.md#1" target="_blank">陈芳语曝中国选秀内幕 痛揭生活遭监控没人权</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank">台职场爱情剧《创业》首播 林心如首集坠车顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717519.md#1" target="_blank">Snow Man全团隔离回归 新曲首周冲出80万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank">新片获日奥斯卡8项优秀奖 二宫和也再战影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12702857.md#1" target="_blank">近畿小子新专辑《O Album》 空降公信榜周榜冠军</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12723159.md#1" target="_blank">周迅离婚后亮相节目 鼻梁受伤真相笑翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/25/n12711313.md#1" target="_blank">演小龙女曾遭酸小笼包 陈妍希：若重来仍接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/26/n12711753.md#1" target="_blank">武汉封城周年零热搜 袁弘帖文钓出被噤声内幕</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12716409.md#1" target="_blank">刘德华首开社交媒体账号 已吸引上千万粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12721641.md#1" target="_blank">睽违15年后再合作 姚晨与闫妮一度很生疏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12716409.md#1" target="_blank">刘德华首开社交媒体账号 已吸引上千万粉丝</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/yrsmsb310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
