@@ -3,13 +3,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank">疫情期间团购被骗 台亲共艺人踢爆大陆假食品</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724209.md#1" target="_blank">李英爱迎来50岁生日 保养六法维持冻龄美貌</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724209.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/02/200214022334100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723875.md#1" target="_blank">陈芳语曝中国选秀内幕 痛揭生活遭监控没人权</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723875.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2004182356481487-600x400.jpg"></a></td></tr>
-<tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank">台职场爱情剧《创业》首播 林心如首集坠车顶</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101310705091487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/181018061629100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725461.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102010444301487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725297.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102010319051487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2101182113511487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102010056371487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br>《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br>《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
@@ -17,19 +16,19 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725559.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/181018061629100707-320x200.jpg"><br> SHINee将携正规七辑及tvN综艺节目回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723759.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/2101310705091487-320x200.jpg"><br> 台职场爱情剧《创业》首播 林心如首集坠车顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br> 《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12720129.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/1604232352101487-320x200.jpg"><br> 周汤豪躲车上帮妈庆生 超暖心举动逼哭比莉</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719669.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/201123031100100707-320x200.jpg"><br> XIUMIN退伍后首唱 31日公开《哲仁王后》OST</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724329.md#1" target="_blank">疫情期间团购被骗 台亲共艺人踢爆大陆假食品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12723159.md#1" target="_blank">周迅离婚后亮相节目 鼻梁受伤真相笑翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12721469.md#1" target="_blank">节目中睡觉被好友偷拍 邓超打呼噜获称像唱歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12721641.md#1" target="_blank">睽违15年后再合作 姚晨与闫妮一度很生疏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725559.md#1" target="_blank">SHINee将携正规七辑及tvN综艺节目回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724209.md#1" target="_blank">李英爱迎来50岁生日 保养六法维持冻龄美貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12720192.md#1" target="_blank">TWICE登《TIME》演唱：会持续带来正向能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719868.md#1" target="_blank">aespa将唱抒情单曲 2月5日发行《Forever》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719669.md#1" target="_blank">XIUMIN退伍后首唱 31日公开《哲仁王后》OST</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank">《全明星2》公布卡司 王家梁、范逸臣全在列</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank">《妈，别闹了！》杀青 比莉收下锦旗眼泪直流</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12723875.md#1" target="_blank">陈芳语曝中国选秀内幕 痛揭生活遭监控没人权</a></h4></td></tr>
