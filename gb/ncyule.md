@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727142.md#1" target="_blank">为年初一节目热唱 康康首战网路称相见恨晚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank">金马影后马思纯疑患抑郁症 停工半年后首发声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank">《全明星2》公布卡司 王家梁、范逸臣全在列</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727804.md#1" target="_blank">导演喊话票房破亿想吃喜酒 吴慷仁：这个不行</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727766.md#1" target="_blank">老萧年终发百万红包 跨足副业多还想演戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727239.md#1" target="_blank">陈玺安：与其管别人的嘴 不如管好自己的修为</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727392.md#1" target="_blank">星妈咪为动画片配音 黄小柔出席首映自打90分</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727142.md#1" target="_blank">为年初一节目热唱 康康首战网路称相见恨晚</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12726563.md#1" target="_blank">身上一细节感动曾宝仪 隋棠为母风范获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727779.md#1" target="_blank">《乔瑟与虎与鱼群》台湾上映 获身障者共鸣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725297.md#1" target="_blank">大久保麻梨子牛年开春 电影戏剧新作将推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717519.md#1" target="_blank">Snow Man全团隔离回归 新曲首周冲出80万销量</a></h4></td></tr>
