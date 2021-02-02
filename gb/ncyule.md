@@ -4,6 +4,7 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12726330.md#1" target="_blank">51岁周传雄登陆综 22岁孟美岐当导师引狂批</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12726330.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/02/1602290225391487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725461.md#1" target="_blank">疫情期间暂时停飞 孙燕姿：更投入生活与创作</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725461.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102010444301487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727392.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102020104591487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727142.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102012246051487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/12/ma-sichun-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12726563.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
@@ -29,13 +30,13 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/31/n12724209.md#1" target="_blank">李英爱迎来50岁生日 保养六法维持冻龄美貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12720192.md#1" target="_blank">TWICE登《TIME》演唱：会持续带来正向能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719868.md#1" target="_blank">aespa将唱抒情单曲 2月5日发行《Forever》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727392.md#1" target="_blank">星妈咪为动画片配音 黄小柔出席首映自打90分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727142.md#1" target="_blank">为年初一节目热唱 康康首战网路称相见恨晚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank">金马影后马思纯疑患抑郁症 停工半年后首发声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725183.md#1" target="_blank">《全明星2》公布卡司 王家梁、范逸臣全在列</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725039.md#1" target="_blank">《妈，别闹了！》杀青 比莉收下锦旗眼泪直流</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727392.md#1" target="_blank">星妈咪为动画片配音 黄小柔出席首映自打90分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727142.md#1" target="_blank">为年初一节目热唱 康康首战网路称相见恨晚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12726563.md#1" target="_blank">身上一细节感动曾宝仪 隋棠为母风范获赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725352.md#1" target="_blank">过年遇催婚亲戚 王心恬丢下红包逃离现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725297.md#1" target="_blank">大久保麻梨子牛年开春 电影戏剧新作将推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/28/n12717519.md#1" target="_blank">Snow Man全团隔离回归 新曲首周冲出80万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/27/n12715350.md#1" target="_blank">新片获日奥斯卡8项优秀奖 二宫和也再战影帝</a></h4></td></tr>
