@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731188.md#1" target="_blank">林依晨聚餐提前离席 雷佳音得知背后原因惊呆</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731188.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/04/2004210719362384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730247.md#1" target="_blank">经营餐车只睡5小时 杨贵媚笑称忙到开骂</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730247.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102030344412122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732373.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102040154151487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102040100391487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732304.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/12/190211014608100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1911030134311487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731834.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200609221434100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731335.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/VCG111192984905_meitu_1-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731188.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/2004210719362384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br>《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br>《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731834.md#1" target="_blank">Jennie与Lisa个人YT频道 双双突破500万订阅</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730040.md#1" target="_blank">JB还没适应Mark离开 正式表明：GOT7没有解散</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12728025.md#1" target="_blank">姜丹尼尔时隔6个月回归 2月16日推新作</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732373.md#1" target="_blank">小甜甜安胎告假 熊熊代班首录《奇幻的旅程》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank">《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730726.md#1" target="_blank">《女力报到》办尾牙 演员互换角色秀经典桥段</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12729853.md#1" target="_blank">参与《黄金岁月》读本 陈美凤笑：像学生上课</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12728000.md#1" target="_blank">相隔7年再聚首 宋芸桦与禾浩辰萤幕同框</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732373.md#1" target="_blank">小甜甜安胎告假 熊熊代班首录《奇幻的旅程》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank">《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731775.md#1" target="_blank">韦礼安爆出新恋情 经纪公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731335.md#1" target="_blank">港姐李珊珊曾被嘲肥婆 获郑秀文帮助摆脱惊恐症</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731188.md#1" target="_blank">林依晨聚餐提前离席 雷佳音得知背后原因惊呆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727779.md#1" target="_blank">《乔瑟与虎与鱼群》台湾上映 获身障者共鸣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12725297.md#1" target="_blank">大久保麻梨子牛年开春 电影戏剧新作将推出</a></h4></td></tr>
