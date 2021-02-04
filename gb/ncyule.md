@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732588.md#1" target="_blank">韩国新女团TRI.BE将出道 7成员中2名台湾成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732304.md#1" target="_blank">BTS夺2020推特K-POP榜冠军 包揽十大歌曲6名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731834.md#1" target="_blank">Jennie与Lisa个人YT频道 双双突破500万订阅</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733238.md#1" target="_blank">《游牧人生》金球奖4提名 女主角奥斯卡封后有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732509.md#1" target="_blank">《父亲》问鼎金球奖戏剧类最佳影片等4大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732373.md#1" target="_blank">小甜甜安胎告假 熊熊代班首录《奇幻的旅程》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank">《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730726.md#1" target="_blank">《女力报到》办尾牙 演员互换角色秀经典桥段</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732509.md#1" target="_blank">《父亲》问鼎金球奖戏剧类最佳影片等4大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732373.md#1" target="_blank">小甜甜安胎告假 熊熊代班首录《奇幻的旅程》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank">《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
