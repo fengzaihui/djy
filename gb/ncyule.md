@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732509.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102040301381487-320x200.jpg"><br> 《父亲》问鼎金球奖戏剧类最佳影片等4大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102040100391487-320x200.jpg"><br> 《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732304.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/190211014608100707-320x200.jpg"><br> BTS夺2020推特K-POP榜冠军 包揽十大歌曲6名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12728000.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102020659561487-320x200.jpg"><br> 相隔7年再聚首 宋芸桦与禾浩辰萤幕同框</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12728025.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/190907063146100707-320x200.jpg"><br> 姜丹尼尔时隔6个月回归 2月16日推新作</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12728875.md#1" target="_blank">获陈坤夸赞阳光又漂亮 杨颖默默点赞视频自励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank">金马影后马思纯疑患抑郁症 停工半年后首发声</a></h4></td></tr>
