@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732509.md#1" target="_blank">《父亲》问鼎金球奖戏剧类最佳影片等4大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732373.md#1" target="_blank">小甜甜安胎告假 熊熊代班首录《奇幻的旅程》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank">《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733291.md#1" target="_blank">Bii当父亲后不一样 教养想法大转变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732509.md#1" target="_blank">《父亲》问鼎金球奖戏剧类最佳影片等4大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732373.md#1" target="_blank">小甜甜安胎告假 熊熊代班首录《奇幻的旅程》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank">《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731775.md#1" target="_blank">韦礼安爆出新恋情 经纪公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727779.md#1" target="_blank">《乔瑟与虎与鱼群》台湾上映 获身障者共鸣</a></h4></td></tr>
