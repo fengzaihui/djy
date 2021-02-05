@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733872.md#1" target="_blank">遭职场霸凌 刘乐妍爆中国演艺圈黑幕</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733872.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733732.md#1" target="_blank">【解密时分】诺查丹玛斯预言：君主制回归</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733732.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/1aaa4030bf7ed2cdb5a58ce08e0e965d-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735465.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102050719031487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735138.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/08/1708120819591487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735032.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102050233171487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734871.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102050122581487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734792.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102050053181487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734261.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/xin-zhilei-Song-Hye-kyo-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733872.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br>《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br>《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732709.md#1" target="_blank">IU《Celebrity》摘Gaon四冠 金秀贤也帮宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732588.md#1" target="_blank">韩国新女团TRI.BE将出道 7成员中2名台湾成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732304.md#1" target="_blank">BTS夺2020推特K-POP榜冠军 包揽十大歌曲6名</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735465.md#1" target="_blank">《全明星2》逾70艺人报名 网友看好曹佑宁实力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735032.md#1" target="_blank">楚宣挑大梁演妈妈 与“贵妇团”开箱奢华场景</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734792.md#1" target="_blank">李立群首与李元元同框 评女儿演技稚嫩要珍惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733374.md#1" target="_blank">《世界第一等》庆祝1000集 两主持人首次合录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733238.md#1" target="_blank">《游牧人生》金球奖4提名 女主角奥斯卡封后有望</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735465.md#1" target="_blank">《全明星2》逾70艺人报名 网友看好曹佑宁实力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735138.md#1" target="_blank">性骚风波 郑家纯要求对质 翁立友：我是受害人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735147.md#1" target="_blank">获颁法国荣誉勋章 李安：莫大荣幸 继续努力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735032.md#1" target="_blank">楚宣挑大梁演妈妈 与“贵妇团”开箱奢华场景</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734792.md#1" target="_blank">李立群首与李元元同框 评女儿演技稚嫩要珍惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727779.md#1" target="_blank">《乔瑟与虎与鱼群》台湾上映 获身障者共鸣</a></h4></td></tr>
