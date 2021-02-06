@@ -12,11 +12,11 @@
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735138.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102050819261487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735147.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/08/fe28161f6ad8002228e72786c403cb6b-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br>《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/29/n12719177.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/481819-320x200.jpg"><br>《Fate：魔法俏佳人传奇》影评：奇幻题材这回由仙子当主角！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/21/n12701582.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480538-320x200.jpg"><br>《捍卫救援》影评：退伍老兵仍能力抗毒枭集团</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/16/n12691628.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/479687-320x200.jpg"><br>《末日激战》影评：机器人元素 让核武危机更有看点</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732509.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102040301381487-320x200.jpg"><br> 《父亲》问鼎金球奖戏剧类最佳影片等4大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102040100391487-320x200.jpg"><br> 《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734261.md#1" target="_blank">获封“小宋慧乔” 辛芷蕾拍戏敬业挨真巴掌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12728875.md#1" target="_blank">获陈坤夸赞阳光又漂亮 杨颖默默点赞视频自励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank">金马影后马思纯疑患抑郁症 停工半年后首发声</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank">《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735865.md#1" target="_blank">国税局追缴漏税202亿韩圜 SM娱乐：仍会上诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734871.md#1" target="_blank">传Rain计划3月邀金请夏发表合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732709.md#1" target="_blank">IU《Celebrity》摘Gaon四冠 金秀贤也帮宣传</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732588.md#1" target="_blank">韩国新女团TRI.BE将出道 7成员中2名台湾成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735465.md#1" target="_blank">《全明星2》逾70艺人报名 网友看好曹佑宁实力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735032.md#1" target="_blank">楚宣挑大梁演妈妈 与“贵妇团”开箱奢华场景</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734792.md#1" target="_blank">李立群首与李元元同框 评女儿演技稚嫩要珍惜</a></h4></td></tr>
