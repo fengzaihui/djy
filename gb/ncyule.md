@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736214.md#1" target="_blank">刘德华开自媒体 传抖音将砸亿元吸引王菲进驻</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736214.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/10/1910220245501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736044.md#1" target="_blank">几天前胖到撞脸陈赫 周杰伦暴瘦近照震惊网友</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736044.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/12/zhoujielun-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738411.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102070108581487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738275.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102062317511487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738106.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102062143041487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736527.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736214.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/10/1910220245501487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736044.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/zhoujielun-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/30/n12721622.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/482028-320x200.jpg"><br>《智能社会：进退两难》影评：深度讨论手机、社媒依赖症的纪录片</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735465.md#1" target="_blank">《全明星2》逾70艺人报名 网友看好曹佑宁实力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735032.md#1" target="_blank">楚宣挑大梁演妈妈 与“贵妇团”开箱奢华场景</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734792.md#1" target="_blank">李立群首与李元元同框 评女儿演技稚嫩要珍惜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738411.md#1" target="_blank">黄明志贺岁歌带点悲伤 过年滞台找同事作伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738275.md#1" target="_blank">“每首歌都有它的命” 刘若英分享奇妙缘分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank">《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736214.md#1" target="_blank">刘德华开自媒体 传抖音将砸亿元吸引王菲进驻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736044.md#1" target="_blank">几天前胖到撞脸陈赫 周杰伦暴瘦近照震惊网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727779.md#1" target="_blank">《乔瑟与虎与鱼群》台湾上映 获身障者共鸣</a></h4></td></tr>
