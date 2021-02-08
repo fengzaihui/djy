@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738275.md#1" target="_blank">“每首歌都有它的命” 刘若英分享奇妙缘分</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738275.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102062317511487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738106.md#1" target="_blank">蔡灿得对古物着迷 探访老戏院搜藏大呼可怕</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738106.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102062143041487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739438.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/yang-zi-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739306.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050453241487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739063.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/08/2582b1b19bf9d2f79233c4d7c6b586d8-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738670.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2006100141142122-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738411.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102070108581487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738275.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102062317511487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738106.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102062143041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
@@ -23,18 +23,18 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732276.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102040100391487-320x200.jpg"><br> 《汤姆猫》推电影版 结合真人与经典动画</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732304.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/12/190211014608100707-320x200.jpg"><br> BTS夺2020推特K-POP榜冠军 包揽十大歌曲6名</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739438.md#1" target="_blank">获评流量与演技兼具 杨紫公开理想型四条件</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736527.md#1" target="_blank">陆官方发布违规艺人复出流程 范冰冰高调现身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734261.md#1" target="_blank">获封“小宋慧乔” 辛芷蕾拍戏敬业挨真巴掌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12728875.md#1" target="_blank">获陈坤夸赞阳光又漂亮 杨颖默默点赞视频自励</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank">金马影后马思纯疑患抑郁症 停工半年后首发声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank">《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735865.md#1" target="_blank">国税局追缴漏税202亿韩圜 SM娱乐：仍会上诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734871.md#1" target="_blank">传Rain计划3月邀金请夏发表合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732709.md#1" target="_blank">IU《Celebrity》摘Gaon四冠 金秀贤也帮宣传</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739438.md#1" target="_blank">获评流量与演技兼具 杨紫公开理想型四条件</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739063.md#1" target="_blank">拍《卧虎藏龙》被吊上天 发哥落地时吓傻李安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738670.md#1" target="_blank">徐乃麟颜面神经失调 扎针治疗逐渐康复</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738106.md#1" target="_blank">蔡灿得对古物着迷 探访老戏院搜藏大呼可怕</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735465.md#1" target="_blank">《全明星2》逾70艺人报名 网友看好曹佑宁实力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739306.md#1" target="_blank">控诉遭中共当局封杀 黄秋生长达六年零收入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739063.md#1" target="_blank">拍《卧虎藏龙》被吊上天 发哥落地时吓傻李安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738670.md#1" target="_blank">徐乃麟颜面神经失调 扎针治疗逐渐康复</a></h4></td></tr>
