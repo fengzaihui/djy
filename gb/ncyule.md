@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738670.md#1" target="_blank">徐乃麟颜面神经失调 扎针治疗逐渐康复</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738670.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2006100141142122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738275.md#1" target="_blank">“每首歌都有它的命” 刘若英分享奇妙缘分</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738275.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102062317511487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740245.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102080315011487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740087.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102080111351487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739812.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/201107020703100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739438.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/yang-zi-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739306.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050453241487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739063.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/08/2582b1b19bf9d2f79233c4d7c6b586d8-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12738670.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2006100141142122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank">《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735865.md#1" target="_blank">国税局追缴漏税202亿韩圜 SM娱乐：仍会上诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734871.md#1" target="_blank">传Rain计划3月邀金请夏发表合作曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740245.md#1" target="_blank">陈意涵逼问邱泽心意冲高收视 简嫚书演技圈粉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740087.md#1" target="_blank">为1日司机花9个月取职业驾照 55岁邰智源圈粉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739859.md#1" target="_blank">《废财》迎最终回 李国毅李亦捷过年充电待续</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739438.md#1" target="_blank">获评流量与演技兼具 杨紫公开理想型四条件</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739063.md#1" target="_blank">拍《卧虎藏龙》被吊上天 发哥落地时吓傻李安</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740245.md#1" target="_blank">陈意涵逼问邱泽心意冲高收视 简嫚书演技圈粉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740087.md#1" target="_blank">为1日司机花9个月取职业驾照 55岁邰智源圈粉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739859.md#1" target="_blank">《废财》迎最终回 李国毅李亦捷过年充电待续</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739306.md#1" target="_blank">控诉遭中共当局封杀 黄秋生长达六年零收入</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739063.md#1" target="_blank">拍《卧虎藏龙》被吊上天 发哥落地时吓傻李安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12727779.md#1" target="_blank">《乔瑟与虎与鱼群》台湾上映 获身障者共鸣</a></h4></td></tr>
@@ -53,9 +53,9 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12729203.md#1" target="_blank">黎姿携三个女儿行山 粉丝意外聚焦一双波鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731188.md#1" target="_blank">林依晨聚餐提前离席 雷佳音得知背后原因惊呆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733680.md#1" target="_blank">向周星驰讨天价佣金败诉 于文凤爆闪婚富三代</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739306.md#1" target="_blank">控诉遭中共当局封杀 黄秋生长达六年零收入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734261.md#1" target="_blank">获封“小宋慧乔” 辛芷蕾拍戏敬业挨真巴掌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank">金马影后马思纯疑患抑郁症 停工半年后首发声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739306.md#1" target="_blank">控诉遭中共当局封杀 黄秋生长达六年零收入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/1/n12726330.md#1" target="_blank">51岁周传雄登陆综 22岁孟美岐当导师引狂批</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/yrsmsb310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
