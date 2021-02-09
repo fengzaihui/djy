@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740348.md#1" target="_blank">过年包多少给太太？陈晓东：不可以问恐怖问题</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740348.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102080657171487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740087.md#1" target="_blank">为1日司机花9个月取职业驾照 55岁邰智源圈粉</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740087.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102080111351487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12741562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-502170172-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739234.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-123871741-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12741149.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1062739428-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102080737391487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740365.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1701191126241487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740348.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102080657171487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740418.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1708140323341487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
@@ -23,10 +23,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740245.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102080315011487-320x200.jpg"><br> 陈意涵逼问邱泽心意冲高收视 简嫚书演技圈粉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br> 《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12741562.md#1" target="_blank">与罗晋结婚后获赞旺夫 唐嫣收工照少女感十足</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12741149.md#1" target="_blank">晒与邓超不同年份纪念合照 孙俪获赞冻龄外表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739438.md#1" target="_blank">获评流量与演技兼具 杨紫公开理想型四条件</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736527.md#1" target="_blank">陆官方发布违规艺人复出流程 范冰冰高调现身</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734261.md#1" target="_blank">获封“小宋慧乔” 辛芷蕾拍戏敬业挨真巴掌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739812.md#1" target="_blank">SJ新作延期成员懂粉丝心 东海读信厉旭想剧透</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank">《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12735865.md#1" target="_blank">国税局追缴漏税202亿韩圜 SM娱乐：仍会上诉</a></h4></td></tr>
@@ -52,11 +52,11 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739306.md#1" target="_blank">控诉遭中共当局封杀 黄秋生长达六年零收入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733872.md#1" target="_blank">遭职场霸凌 刘乐妍爆中国演艺圈黑幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12729203.md#1" target="_blank">黎姿携三个女儿行山 粉丝意外聚焦一双波鞋</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731188.md#1" target="_blank">林依晨聚餐提前离席 雷佳音得知背后原因惊呆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/7/n12739063.md#1" target="_blank">拍《卧虎藏龙》被吊上天 发哥落地时吓傻李安</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12731188.md#1" target="_blank">林依晨聚餐提前离席 雷佳音得知背后原因惊呆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12733680.md#1" target="_blank">向周星驰讨天价佣金败诉 于文凤爆闪婚富三代</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12734261.md#1" target="_blank">获封“小宋慧乔” 辛芷蕾拍戏敬业挨真巴掌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/2/n12726845.md#1" target="_blank">金马影后马思纯疑患抑郁症 停工半年后首发声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736044.md#1" target="_blank">几天前胖到撞脸陈赫 周杰伦暴瘦近照震惊网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/5/n12736214.md#1" target="_blank">刘德华开自媒体 传抖音将砸亿元吸引王菲进驻</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/yrsmsb310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
