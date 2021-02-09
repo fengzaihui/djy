@@ -19,9 +19,9 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/1/23/n12707413.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/01/480964-320x200.jpg"><br>《约定的梦幻岛》影评：温馨的孤儿院 暗藏惊人真相</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102080737391487-320x200.jpg"><br> 松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740365.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1701191126241487-320x200.jpg"><br> 小甜甜公布胎儿性别 “欢迎米苔目光临”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740245.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102080315011487-320x200.jpg"><br> 陈意涵逼问邱泽心意冲高收视 简嫚书演技圈粉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br> 《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732509.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102040301381487-320x200.jpg"><br> 《父亲》问鼎金球奖戏剧类最佳影片等4大奖</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12741562.md#1" target="_blank">与罗晋结婚后获赞旺夫 唐嫣收工照少女感十足</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12741149.md#1" target="_blank">晒与邓超不同年份纪念合照 孙俪获赞冻龄外表</a></h4></td></tr>
