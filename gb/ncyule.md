@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742725.md#1" target="_blank">面对BTS成名 j-hope：永怀感恩 承担一切前行</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742725.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/201123021900100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742507.md#1" target="_blank">《阮三个2》任务难度高 考验四人明星光环</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742507.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102090405421487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102100134371487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744539.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1906110803331487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744084.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/06/200610091054100311-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12743788.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-1145305822-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12743479.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/wu-mengda-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742725.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/201123021900100707-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742507.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102090405421487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742459.md#1" target="_blank">韩团WEi年后回归 将发行迷你二辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739812.md#1" target="_blank">SJ新作延期成员懂粉丝心 东海读信厉旭想剧透</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank">《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744636.md#1" target="_blank">“56”分享最爱年菜 团员谈红包让孙协志紧张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744539.md#1" target="_blank">蓝心湄浴室滑倒头昏想吐 就医已无碍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742507.md#1" target="_blank">《阮三个2》任务难度高 考验四人明星光环</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12741791.md#1" target="_blank">周兴哲MV加入科幻元素 宥胜林予晞诠释凄美爱情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740418.md#1" target="_blank">遭女导演控性骚 曾国城自省“会更谨慎小心”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744636.md#1" target="_blank">“56”分享最爱年菜 团员谈红包让孙协志紧张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744539.md#1" target="_blank">蓝心湄浴室滑倒头昏想吐 就医已无碍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744084.md#1" target="_blank">推出黄圈品牌红包袋和卫衣 王宗尧寄语手足不散</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12743479.md#1" target="_blank">69岁吴孟达被爆心脏病发 片场捂胸表情痛苦</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742507.md#1" target="_blank">《阮三个2》任务难度高 考验四人明星光环</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
