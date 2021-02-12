@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12746043.md#1" target="_blank">一众明星齐挺《缉魂》 张钧甯获赞好人缘</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12746043.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/junningchen-yihan-zhang-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12745615.md#1" target="_blank">赵丽颖新剧杀青照曝光 瘦的令人震惊</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12745615.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/170323102148100694-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748253.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102112203191487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/11/n12747753.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/03/linqingxia-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/11/n12747529.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/06/2006250740361487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/11/n12747378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/06/sunli-_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731924.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102032313251487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12745090.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2101280349511487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739716.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102072213381487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742459.md#1" target="_blank">韩团WEi年后回归 将发行迷你二辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739812.md#1" target="_blank">SJ新作延期成员懂粉丝心 东海读信厉旭想剧透</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank">《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748253.md#1" target="_blank">言承旭录《极岛冒险》 餐馆露脸 游客惊喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731924.md#1" target="_blank">《房产兄弟》挑战网路购屋 竞赛获利捐公益　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12745090.md#1" target="_blank">31组艺人接力表演 台湾《红白》陪观众围炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739716.md#1" target="_blank">3综艺主持群同录《龙虎斗》 曾宝仪加入阵容</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12744881.md#1" target="_blank">杨小黎拍政治剧诠释名嘴 与蔡灿得双姝对骂</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748253.md#1" target="_blank">言承旭录《极岛冒险》 餐馆露脸 游客惊喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/11/n12747753.md#1" target="_blank">林青霞仨女新年收特大红包 金额曝光惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/11/n12747529.md#1" target="_blank">刘真离世近一年 辛龙除夕夜更新动态获网友打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12731924.md#1" target="_blank">《房产兄弟》挑战网路购屋 竞赛获利捐公益　</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12745090.md#1" target="_blank">31组艺人接力表演 台湾《红白》陪观众围炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
