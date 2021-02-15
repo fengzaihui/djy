@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12751300.md#1" target="_blank">不擅唱跳紧张到哭 53岁那英参加选秀节目惹议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/11/n12747378.md#1" target="_blank">孙俪晒手写春联迎新年 网友喊话邓超跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/10/n12745615.md#1" target="_blank">赵丽颖新剧杀青照曝光 瘦的令人震惊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754183.md#1" target="_blank">Epik High成员Mithra Jin喜曝妻子权多贤怀孕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753500.md#1" target="_blank">EXO成员D.O.将演韩版《不能说的秘密》男主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742725.md#1" target="_blank">面对BTS成名 j-hope：永怀感恩 承担一切前行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742459.md#1" target="_blank">韩团WEi年后回归 将发行迷你二辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12739812.md#1" target="_blank">SJ新作延期成员懂粉丝心 东海读信厉旭想剧透</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753626.md#1" target="_blank">吴慷仁和导演快闪戏院 过年期间从南到北谢票</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752503.md#1" target="_blank">朱俐静廖文强选秀出身 不愿回忆当年黑历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751824.md#1" target="_blank">《房客》上架 陈淑芳率“儿孙”向观众拜年</a></h4></td></tr>
