@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752503.md#1" target="_blank">朱俐静廖文强选秀出身 不愿回忆当年黑历史</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752503.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102140723131487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12751495.md#1" target="_blank">孙俪着大红花袄拜年 与邓超甜蜜牵手秀恩爱</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12751495.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1062739428-1-1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753704.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102150242481487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753626.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102150146031487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753500.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1811060543591487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752824.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/11/1_meitu_1-25-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752503.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102140723131487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751824.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102132240471487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751783.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102132155491487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12750152.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483893-320x200.jpg"><br>《爱的过去进行式：真爱永远》影评：远距离恋情 是可克服的挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752503.md#1" target="_blank">朱俐静廖文强选秀出身 不愿回忆当年黑历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751824.md#1" target="_blank">《房客》上架 陈淑芳率“儿孙”向观众拜年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751783.md#1" target="_blank">刘冠廷大霈挥毫庆牛年 金马导演甘当书僮磨墨</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753704.md#1" target="_blank">陈随意过年砸30万包车 带家族25人花东走春</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753626.md#1" target="_blank">吴慷仁和导演快闪戏院 过年期间从南到北谢票</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752824.md#1" target="_blank">初二回不了娘家直呼想妈 杨丞琳感念别样孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752503.md#1" target="_blank">朱俐静廖文强选秀出身 不愿回忆当年黑历史</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751824.md#1" target="_blank">《房客》上架 陈淑芳率“儿孙”向观众拜年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
