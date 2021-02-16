@@ -32,9 +32,9 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742725.md#1" target="_blank">面对BTS成名 j-hope：永怀感恩 承担一切前行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/9/n12742459.md#1" target="_blank">韩团WEi年后回归 将发行迷你二辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753626.md#1" target="_blank">吴慷仁和导演快闪戏院 过年期间从南到北谢票</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753103.md#1" target="_blank">《星战》女星挺川“获罪” 遭解雇后宣布复出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12752503.md#1" target="_blank">朱俐静廖文强选秀出身 不愿回忆当年黑历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751824.md#1" target="_blank">《房客》上架 陈淑芳率“儿孙”向观众拜年</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/14/n12751783.md#1" target="_blank">刘冠廷大霈挥毫庆牛年 金马导演甘当书僮磨墨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753761.md#1" target="_blank">玖壹壹4月登北流开唱 期间限定以乐团形式演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753839.md#1" target="_blank">高尔宣陈芳语高情商抗酸民 摆脱负能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753704.md#1" target="_blank">陈随意过年砸30万包车 带家族25人花东走春</a></h4></td></tr>
