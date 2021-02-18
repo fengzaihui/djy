@@ -913,7 +913,4 @@ Santa Barbara十年老店生意稳定，东主退休回国，廉价出售。
 
 　　
 以下是有感染病例的国内航班信息及受影响.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月16日 6:35 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754779.md#1" target="_blank">穆迪港居民后院惊现四只美洲狮同行</a><br></h3>?2月12日早上7点，穆迪港的一户居民家的摄像头拍摄到了一个美洲狮家庭。录像显示：一只美洲狮妈妈和她的三只小美洲狮宝宝正在跨过该男子家的围栏。
-
-这位不愿透露姓名的穆迪港居民告诉《三联市新闻》：自己差点儿撞上美洲狮一家。这不是该男子第一次拍到猫科动物家族。2020年12月，他的相机拍下了它们穿过他所在Ioco社区靠.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月16日 6:28 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yrsmsb310/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/yrsmsb310/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yrsmsb310/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/yrsmsb310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
