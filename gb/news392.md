@@ -36,7 +36,9 @@
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12758205.md#1" target="_blank">杨威：美国还能担纲G7抗共领头羊吗？</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12758205.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/02/GettyImages-965619114-150x120.jpg" align ="left"></a>2月19日，英国首相约翰逊（Boris Johnson）将主持G7国家领导人的一次视频会议，讨论共同应对中共病毒疫情的五点计划。美国、加拿大、法国、德国、意大利、日本政府首脑都将参加，也包括欧盟领导人。
 
 这次，美国似乎并未有主导之意，无形中透出了隐忧，美国还能继续成为自由世界的领导者吗？美国新政府不断表示，要联合.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 4:45 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12757926.md#1" target="_blank">保守的民族主义与美国外交政策</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12757926.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/02/Siege-of-Yorktown_Auguste-Couder_crop-1200x750-150x120.jpg" align ="left"></a>保守的民族主义最具示范性，是一种以民主为导向的公民形式的爱国主义，一种对特定地方的热爱，主张世界最好由独立的民族国家治理，只有在这些国家的范围内，自由的公民才能尝试宪法形式的自治。在外交政策上，保守的民族主义者注重维护和促进自己国家的利益、权利、价值观、安全、传统和生活方式，且相信这样做完全合法。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 4:00 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763411.md#1" target="_blank">王友群：黄克诚庐山讲真话 被整得死去活来</a><br></h3>黄克诚在《自述》中写道：“我平生受过无数次斗争，感到最严重、使我难以支持的，还是庐山会议这一次。我一向有失眠症，经常吃安眠药，但最多不过吃两粒，这时每晚吃到六粒，还是不能入睡。”
+
+黄克诚，湖南永兴人，中共大将，当过湖南省委书记、中央书记处书记、中央军委秘书长、中央军委总参谋长。1959年庐山会议上，因讲真话，被打.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 6:22 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762161.md#1" target="_blank">晓风：传统与信仰是现代文明的基础</a><br></h3>1. 维系道德有两个支柱：一个是传统；一个是信仰。
 这两个支柱打掉了，道德沦丧迟早的事。
 尔后滋生、盛行的只能是丛林法则。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月19日 4:44 PM			</td></tr>
