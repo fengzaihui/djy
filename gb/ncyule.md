@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760935.md#1" target="_blank">状告网民获赔6万人民币 范冰冰撂话警告</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760935.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank">刘德华罕见谈妻小 自曝辅导女儿功课说这句话</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/08/1708100618112384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762142.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102190322261487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761987.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1910110244051487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761819.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102190052301487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761490.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/20210218PHO0127l-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760790.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-470080198-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760935.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/08/1708100618112384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754291.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483954-320x200.jpeg"><br>《汤姆猫与杰利鼠》影评：经典卡通拍成电影也很成功</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12750152.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483893-320x200.jpg"><br>《爱的过去进行式：真爱永远》影评：远距离恋情 是可克服的挑战</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759162.md#1" target="_blank">Big Hit娱乐环球音乐合推男团 明年办全球选秀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12757716.md#1" target="_blank">韩国新人女团TRI.BE 今公开新曲MV正式出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12757677.md#1" target="_blank">太妍与差9岁的妹不曾吵架 夏妍：听姊的不会错</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762142.md#1" target="_blank">曾子余搭档名厨拍实境秀 直击明星们的厨房</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760790.md#1" target="_blank">周迅离婚后回家过年 真实素颜照惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12758895.md#1" target="_blank">艾成联手赖芊合开直播节目 王瞳送新年三宝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753626.md#1" target="_blank">吴慷仁和导演快闪戏院 过年期间从南到北谢票</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753103.md#1" target="_blank">《星战》女星挺川“获罪” 遭解雇后宣布复出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762142.md#1" target="_blank">曾子余搭档名厨拍实境秀 直击明星们的厨房</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761987.md#1" target="_blank">41岁赵小侨宣布怀孕 求子路艰辛终如愿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761819.md#1" target="_blank">丁当音乐剧延期 年后投入新作 期待新恋情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761490.md#1" target="_blank">《梨泰院》有台版 《与恶2》《做工的人》推新作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank">刘德华罕见谈妻小 自曝辅导女儿功课说这句话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
