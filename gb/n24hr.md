@@ -618,7 +618,7 @@ Anchi来自台湾，父母经常带她去教会。虽然台湾也有许多佛...
 厚颜相迎。
 厚颜相迎，
 却道我党适国情。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 6:50 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764216.md#1" target="_blank">中共两会将至 上海当局严控访民上访</a><br></h3>中共两会将于3月上旬召开，近日各地维稳已经开始。今（20）日，到北京国家信访局、中纪委的访民比起前两日已经少了相当多。有访民说，“可能都被控制在当地了。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 6:17 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764216.md#1" target="_blank">中共两会将至 上海当局严控访民上访</a><br></h3>中共两会将于3月上旬召开，近日各地维稳已经开始。今（20）日，到北京国家信访局、中纪委的访民数量比起前两日已经少了相当多。有访民说，“可能都被控制在当地了。”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 6:17 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764031.md#1" target="_blank">诚聘厨师</a><br></h3>
 
 1. 家庭厨师-上下班制-尔湾煮午晚2餐-纯做饭-不做家事-口味淡会煲汤
