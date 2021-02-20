@@ -1009,14 +1009,4 @@ QFC除了这两家将要关闭的超市，在西雅图市还有.........<br><img
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12758632.md#1" target="_blank">维州解封首日无本地病例 新限制将持续9天</a><br></h3>周四，维州结束5天全面封锁的首日，没有出现本地传播的中共病毒（武汉肺炎）感染病例。但政府仍要求居民遵守新的防疫限制规定，该规定将至少延续9天，到2月26日（下周五）才可能放松。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 9:57 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12758848.md#1" target="_blank">入境新规即将生效 雪鸟族争先恐后回“加”</a><br></h3>由于加拿大政府颁布了新的国际旅客入境防疫规则，为避免在返回加拿大时被强制在酒店自费隔离检疫，不少在美国南方过冬的雪鸟族不得不缩短行程，提前返回。大概一个月前，一名米逊（Mission）女子前往亚利桑那州，为避免支付2000元的酒店住宿费，不得不争分夺秒的赶回家。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 9:37 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12758844.md#1" target="_blank">2月17日：单日新增427宗确诊 3人死</a><br></h3>2月17日（周三），卑诗省首席卫生官邦妮?亨利 (Bonnie Henry) 医生公布本省疫情的最新情况，在过去的24小时内，省内录得427宗新增确诊个案。新增3宗死亡个案，死亡总数达到1,317人。目前有232名住院患者，当中63人在深切治疗部，本省目前有4,150宗现存个案，另有7,238人因确认接触过已知个案正接.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 9:31 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12758834.md#1" target="_blank">雪地摩托车手遇雪崩  开启安全气囊终幸存</a><br></h3>卑诗省搜索和救援协会（B.C. Search and Rescue Association）的报告称，由于天气转暖和COVID-19大流行使更多的人前往偏远地区（探险）,与去年同期相比，今年的求助人数增加了48％。
-
-2月5日早晨8时左右， 37岁的布莱恩．彭纳（Blaine Penner）在库特尼（Kootena.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 9:27 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12758821.md#1" target="_blank">加拿大1月租金下降8.7% 温哥华仍居榜首</a><br></h3>数据显示，去年全加拿大的租房成本下降，温哥华仍为最贵的城市。
-
-根据Rentals.ca的数据，全国的平均租金下降了8.7%，1月份平均租金为每月1714元。
-
-温哥华在全国租金最贵的城市中名列前茅，在下降了5%的情况下，一居室的租金为1901元，两居室的租金为2153元。
-
-卑诗省1月份的平均租金为1,9.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 9:22 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yrsmsb310/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/yrsmsb310/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yrsmsb310/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/yrsmsb310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
