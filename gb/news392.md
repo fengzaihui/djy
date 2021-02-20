@@ -29,7 +29,15 @@
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759647.md#1" target="_blank">袁斌：中共为何禁止民众给李文亮扫墓？</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759647.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/02/GettyImages-1199131214-600x400-1-150x120.jpg" align ="left"></a>今年2月7日，是李文亮殉职一周年纪念日。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 5:03 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759599.md#1" target="_blank">陈思敏：G7高峰会前 中共被多边强硬针对</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759599.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1135018602-2-150x120.jpg" align ="left"></a>此前消息，今年七大工业国集团（G7）高峰会6月将在英国举行，2月19日登场的视讯会议会先大谈联合抗疫、世界经济、对中国问题等关键议题。而在G7这场预备会议的前夕，从公开报导可知，对中问题隐隐成为议题核心，作为G7今年的主席国，英国更是明显对中共释出强硬信号。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 4:25 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12758577.md#1" target="_blank">《转法轮》中提及的史前文明案例：刻石</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12758577.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/02/2021-2-6-historical-evidence_11-150x120.jpg" align ="left"></a>1966年5月13日，秘鲁伊卡省（ICA）的卡布雷拉博士（Javier Cabrera Darquea）收到了一块奇特的石头。对史前历史颇有研究的他，很快认出上面雕刻的动物是数百万年前已经灭绝的鱼类。激动的他找到了售卖石头的人——农民巴西勒?乌斯秋亚（Basilio Uschuya）。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 2:30 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12758981.md#1" target="_blank">邢天行：麦克阿瑟的链锁赤龙与“不沉航母”（上）</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12758981.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/06/Tu5_GettyImages-2633240-150x120.jpg" align ="left"></a>麦克阿瑟将军对亚洲的深远影响无人能及，尤其在今天美国重返亚太战略中，更显示出将军独具的慧眼与天才般的才干。他早就洞穿共产党是人类最大的敌人和威胁，美国和世界要想在反击共产中获胜，就必须重视太平洋战略。美国虽然有强大的海军，但需要有长期坚定稳固的亚洲盟国作为立足之地，才能实现“跳岛战术”，避免远程作战的弊端。日本、台湾和.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月18日 1:15 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764204.md#1" target="_blank">祝君安：丑奴儿?国情论（外一篇）</a><br></h3>妖共不关百姓苦，
+爱秀亲民。
+爱秀亲民，
+为证合法强脱贫。
+
+专制常遭媒诟病，
+厚颜相迎。
+厚颜相迎，
+却道我党适国情。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 6:50 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763411.md#1" target="_blank">王友群：黄克诚庐山讲真话 被整得死去活来</a><br></h3>黄克诚在《自述》中写道：“我平生受过无数次斗争，感到最严重、使我难以支持的，还是庐山会议这一次。我一向有失眠症，经常吃安眠药，但最多不过吃两粒，这时每晚吃到六粒，还是不能入睡。”
 
 黄克诚，湖南永兴人，中共大将，当过湖南省委书记、中央书记处书记、中央军委秘书长、中央军委总参谋长。1959年庐山会议上，因讲真话，被打.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 6:22 AM			</td></tr>
