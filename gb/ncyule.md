@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763516.md#1" target="_blank">沈殿霞逝世13周年 郑欣宜发长文纪念母亲</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763516.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/06/180627082233100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763226.md#1" target="_blank">刘嘉玲晒与章子怡合照：天涯海角也能相连</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763226.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/zhang-ziyi-liu-jialing-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765157.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200420232657100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765033.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/20210221-yuling-tw-03-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765068.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/180611033448100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12764971.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102202136441487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763516.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/06/180627082233100311-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763226.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/zhang-ziyi-liu-jialing-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763107.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/06/a958187416c69946335cbb646ed56f17-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754291.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483954-320x200.jpeg"><br>《汤姆猫与杰利鼠》影评：经典卡通拍成电影也很成功</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760935.md#1" target="_blank">状告网民获赔6万人民币 范冰冰撂话警告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754732.md#1" target="_blank">过年真被催婚怎么办？万茜给网友支招引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12751495.md#1" target="_blank">孙俪着大红花袄拜年 与邓超甜蜜牵手秀恩爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765157.md#1" target="_blank">GOT7为粉丝齐唱《ENCORE》 42区iTunes榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765068.md#1" target="_blank">MAMAMOO颂乐生日献新歌慰人心：我会在你身边</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762527.md#1" target="_blank">N.Flying全员皆完成续约 继续开展多方面活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762389.md#1" target="_blank">少女时代将以8人形式回归？ SM娱乐：未确定</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762275.md#1" target="_blank">旧合约禁韩国Solo 王嘉尔曝GOT7多人准备专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765033.md#1" target="_blank">《一杯热奶茶的等待》开镜 连晨翔担纲男主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12764971.md#1" target="_blank">巴钰二胎确定怀女娃 代言照遭盗用吁别受骗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762441.md#1" target="_blank">38岁华裔女导《游牧人生》获奖多 再问鼎奥斯卡</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760790.md#1" target="_blank">周迅离婚后回家过年 真实素颜照惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/16/n12756186.md#1" target="_blank">未来与周星驰再搭档？吴孟达的回答感动网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753103.md#1" target="_blank">《星战》女星挺川“获罪” 遭解雇后宣布复出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761987.md#1" target="_blank">41岁赵小侨宣布怀孕 求子路艰辛终如愿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12753103.md#1" target="_blank">《星战》女星挺川“获罪” 遭解雇后宣布复出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank">刘德华罕见谈妻小 自曝辅导女儿功课说这句话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754732.md#1" target="_blank">过年真被催婚怎么办？万茜给网友支招引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763516.md#1" target="_blank">沈殿霞逝世13周年 郑欣宜发长文纪念母亲</a></h4></td></tr>
