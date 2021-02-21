@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12736752.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483322-320x200.jpg"><br>《胜利号》影评：拯救地球的英雄 这回由韩国人当！</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1912010403011487-320x200.jpg"><br> 陈亚兰歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765068.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/180611033448100707-320x200.jpg"><br> MAMAMOO颂乐生日献新歌慰人心：我会在你身边</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761819.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102190052301487-320x200.jpg"><br> 丁当音乐剧延期 年后投入新作 期待新恋情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759095.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2006140251171487-320x200.jpg"><br> 万芳牛年开工筹备开唱 小巨蛋票房几近完售</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754291.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483954-320x200.jpeg"><br> 《汤姆猫与杰利鼠》影评：经典卡通拍成电影也很成功</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760790.md#1" target="_blank">周迅离婚后回家过年 真实素颜照惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760935.md#1" target="_blank">状告网民获赔6万人民币 范冰冰撂话警告</a></h4></td></tr>
