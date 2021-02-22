@@ -25,7 +25,13 @@
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12763590.md#1" target="_blank">【有冇搞错】2+2≠4？荒谬教育背后的共产主义</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12763590.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/02/36337c8f2a5d3c328801a591d65ccc58-150x120.jpg" align ="left"></a>美国教育界面对很多问题。最新的问题是2加2到底等于多少？这个荒谬的背后，共产主义的阴影挥之不去。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 10:30 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764299.md#1" target="_blank">颜纯钩：你要和一个邪恶政权争夺自己的孩子</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764299.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2012/03/1203302037262039-150x120.jpg" align ="left"></a>对于大多数留港的市民来说，未来最重要的，便是如何抵制中共对你孩子的洗脑。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 7:58 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764177.md#1" target="_blank">【网海拾贝】独裁国家崛起是人类的灾难</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764177.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2007/02/702250138341898-150x120.jpg" align ="left"></a>独裁国家一旦崛起，将是人类的灾难。远的如纳粹德国、苏联，近的如中共国。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 5:03 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764106.md#1" target="_blank">袁斌：呼伦贝尔市原信访局局长为何被免职</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764106.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/02/65a080afdb2ff1b491580a773fb7f804-800x450-150x120.jpg" align ="left"></a>“呼伦贝尔市原信访局局长被免职” ，这是大陆党媒今天的一则报导。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月20日 4:38 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768381.md#1" target="_blank">吐为快：浣溪沙（外一篇）</a><br></h3>吏拥独裁图保身，
+党清异己官失魂。
+作恶苦酒品伤神。
+
+点火缅甸冀纾困，
+肇事印疆徒丢人。
+欺负蜡笔聊解恨。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月23日 6:31 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12767271.md#1" target="_blank">理悟：跳车</a><br></h3>百年破车车甩箱
 一步三摇直晃当。
 向左马毛僵尸挺，
