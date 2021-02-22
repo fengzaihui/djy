@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank">陈亚兰歌仔戏《嘉庆君》 龙劭华接演喊传承</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/1912010403011487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765033.md#1" target="_blank">《一杯热奶茶的等待》开镜 连晨翔担纲男主角</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765033.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/20210221-yuling-tw-03-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766962.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/190405072300100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766864.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102220048021487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766535.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102212205451487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766316.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765995.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/04/1511300236011487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/wu-mengda-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765280.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102210413091487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765995.md#1" target="_blank">入住《琅琊榜》剧集主题房 刘涛直呼会睡不着</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760790.md#1" target="_blank">周迅离婚后回家过年 真实素颜照惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760935.md#1" target="_blank">状告网民获赔6万人民币 范冰冰撂话警告</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766962.md#1" target="_blank">SJ希澈《熊孩子》曝：我妈希望我今年结婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765157.md#1" target="_blank">GOT7为粉丝齐唱《ENCORE》 42区iTunes榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765068.md#1" target="_blank">MAMAMOO颂乐生日献新歌慰人心：我会在你身边</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762527.md#1" target="_blank">N.Flying全员皆完成续约 继续开展多方面活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12762389.md#1" target="_blank">少女时代将以8人形式回归？ SM娱乐：未确定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766864.md#1" target="_blank">陈零九孙盛希谱写戏剧音乐 重返儿时心中记忆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765280.md#1" target="_blank">从“田径王者”回归 张庭瑚准备投入戏剧演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank">陈亚兰歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
