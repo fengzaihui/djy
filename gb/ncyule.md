@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank">演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-600x364.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank">吴孟达确诊罹患肝癌 手术后不能说话</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/wu-mengda-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200309062700100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769604.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102230437211487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769489.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/8e70cd31fde6943c53b0b21caf14d8f2-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769463.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/201123055906100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769411.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102230312591487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/210223022145100707-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
