@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12750152.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483893-320x200.jpg"><br>《爱的过去进行式：真爱永远》影评：远距离恋情 是可克服的挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-320x200.jpg"><br> 演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1912010403011487-320x200.jpg"><br> 陈亚兰推歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765068.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/180611033448100707-320x200.jpg"><br> MAMAMOO颂乐生日献新歌慰人心：我会在你身边</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761819.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102190052301487-320x200.jpg"><br> 丁当音乐剧延期 年后投入新作 期待新恋情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759095.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2006140251171487-320x200.jpg"><br> 万芳牛年开工筹备开唱 小巨蛋票房几近完售</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768556.md#1" target="_blank">被拍到与冯绍峰游三亚 赵丽颖高情商称呼婆婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank">本名被视为韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
