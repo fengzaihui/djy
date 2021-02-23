@@ -3,7 +3,7 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769411.md#1" target="_blank">张庭瑚因实境秀爆红 4月挑战人生首场个唱</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769411.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102230312591487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769378.md#1" target="_blank">SHINee忆台湾说中文贺元宵 正规七辑获佳绩</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769378.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/210223022145100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank">演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-600x364.jpg"></a></td></tr>
-<tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank">吴孟达确诊罹患肝癌 手术后不能说话</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/wu-mengda-600x400.jpg"></a></td></tr>
+<tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank">吴孟达确诊罹患肝癌 手术后没力气说话</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/wu-mengda-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200309062700100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769604.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102230437211487-320x200.jpg"></a>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/16/n12756186.md#1" target="_blank">未来与周星驰再搭档？吴孟达的回答感动网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766316.md#1" target="_blank">孙俪维持体重45公斤 常年坚持一饮食习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761987.md#1" target="_blank">41岁赵小侨宣布怀孕 求子路艰辛终如愿</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank">刘德华罕见谈妻小 自曝辅导女儿功课说这句话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765995.md#1" target="_blank">入住《琅琊榜》剧集主题房 刘涛直呼会睡不着</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank">刘德华罕见谈妻小 自曝辅导女儿功课说这句话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763516.md#1" target="_blank">沈殿霞逝世13周年 郑欣宜发长文纪念母亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763226.md#1" target="_blank">刘嘉玲晒与章子怡合照：天涯海角也能相连</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754732.md#1" target="_blank">过年真被催婚怎么办？万茜给网友支招引热议</a></h4></td></tr>
