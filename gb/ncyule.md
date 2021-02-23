@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank">本名被视为韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766316.md#1" target="_blank">孙俪维持体重45公斤 常年坚持一饮食习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765995.md#1" target="_blank">入住《琅琊榜》剧集主题房 刘涛直呼会睡不着</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769764.md#1" target="_blank">NCT 127《LOVEHOLIC》 空降公信榜单周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769463.md#1" target="_blank">刘在锡等人节目特辑 邀来防弹少年团全员出演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769378.md#1" target="_blank">SHINee忆台湾说中文贺元宵 正规七辑获佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768937.md#1" target="_blank">Super Junior正规十辑今日预售 共有13种版本</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12767776.md#1" target="_blank">SHINee推新作：一起工作很幸福 允浩东海支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769604.md#1" target="_blank">“鱼丁糸”小威澎湖录节目 烈日下体验晒鱼干</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank">演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768903.md#1" target="_blank">郭书瑶禾浩辰演不孕夫妻 剧情写实引观众共鸣</a></h4></td></tr>
