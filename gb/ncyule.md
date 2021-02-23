@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12750152.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483893-320x200.jpg"><br>《爱的过去进行式：真爱永远》影评：远距离恋情 是可克服的挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/6/n12737401.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483374-320x200.jpg"><br>《诺亚方舟大冒险》影评：西方经典传说 改由动物当主角</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1912010403011487-320x200.jpg"><br> 陈亚兰歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765068.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/180611033448100707-320x200.jpg"><br> MAMAMOO颂乐生日献新歌慰人心：我会在你身边</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12761819.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102190052301487-320x200.jpg"><br> 丁当音乐剧延期 年后投入新作 期待新恋情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12759095.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2006140251171487-320x200.jpg"><br> 万芳牛年开工筹备开唱 小巨蛋票房几近完售</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/15/n12754291.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483954-320x200.jpeg"><br> 《汤姆猫与杰利鼠》影评：经典卡通拍成电影也很成功</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank">被视为撞韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766316.md#1" target="_blank">孙俪维持体重45公斤 常年坚持一饮食习惯</a></h4></td></tr>
@@ -34,7 +34,7 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12767351.md#1" target="_blank">魏德圣筹拍新片《台湾三部曲》 征外籍演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766864.md#1" target="_blank">陈零九孙盛希谱写戏剧音乐 重返儿时心中记忆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765280.md#1" target="_blank">从“田径王者”回归 张庭瑚准备投入戏剧演出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank">陈亚兰歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank">陈亚兰推歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank">吴孟达确诊罹患肝癌 手术后不能说话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12767312.md#1" target="_blank">何润东新片谈婚姻“我很幸福” 感谢妻子体谅</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12767354.md#1" target="_blank">余苑绮年前发现癌症复发 将勇敢面对治疗</a></h4></td></tr>
