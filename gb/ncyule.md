@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank">本名被视为韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766316.md#1" target="_blank">孙俪维持体重45公斤 常年坚持一饮食习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765995.md#1" target="_blank">入住《琅琊榜》剧集主题房 刘涛直呼会睡不着</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771257.md#1" target="_blank">GD权志龙与BLACKPINK JENNIE爆热恋 公司回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769764.md#1" target="_blank">NCT 127《LOVEHOLIC》 空降公信榜单周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769463.md#1" target="_blank">刘在锡等人节目特辑 邀来防弹少年团全员出演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769378.md#1" target="_blank">SHINee忆台湾说中文贺元宵 正规七辑获佳绩</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768937.md#1" target="_blank">Super Junior正规十辑今日预售 共有13种版本</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770557.md#1" target="_blank">在国王面前演奏大提琴 吴尊10岁女儿获夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769604.md#1" target="_blank">“鱼丁糸”小威澎湖录节目 烈日下体验晒鱼干</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank">演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
@@ -54,9 +54,9 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765995.md#1" target="_blank">入住《琅琊榜》剧集主题房 刘涛直呼会睡不着</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763516.md#1" target="_blank">沈殿霞逝世13周年 郑欣宜发长文纪念母亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760556.md#1" target="_blank">刘德华罕见谈妻小 自曝辅导女儿功课说这句话</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768556.md#1" target="_blank">被拍到与冯绍峰游三亚 赵丽颖高情商称呼婆婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/19/n12763226.md#1" target="_blank">刘嘉玲晒与章子怡合照：天涯海角也能相连</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/18/n12760935.md#1" target="_blank">状告网民获赔6万人民币 范冰冰撂话警告</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768556.md#1" target="_blank">被拍到与冯绍峰游三亚 赵丽颖高情商称呼婆婆</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/17/n12757677.md#1" target="_blank">太妍与差9岁的妹不曾吵架 夏妍：听姊的不会错</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769489.md#1" target="_blank">林志玲夫妇首度合体代言 AKIRA全程中文应答</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yrsmsb310/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/yrsmsb310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
