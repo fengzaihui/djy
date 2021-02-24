@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770447.md#1" target="_blank">吴孟达遭谣传罹癌去世 友人田启文斥陆媒缺德</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770447.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/wu-mengda-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769457.md#1" target="_blank">Janet速产二胎不到3小时“来不及打无痛分娩”</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769457.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/06/1706220739582384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200518021321100707-320x200.jpg"></a>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771620.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102240145591487-320x200.jpg"></a>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1501190735212384-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770876.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/03/1507311830261693-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771257.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102232344231487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/10/PO_X2915_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770447.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/wu-mengda-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200309062700100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770876.md#1" target="_blank">汤唯被假冒开IG账号 李冰冰等众星错误关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771257.md#1" target="_blank">GD权志龙与BLACKPINK JENNIE爆热恋 公司回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769764.md#1" target="_blank">NCT 127《LOVEHOLIC》 空降公信榜单周榜冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771620.md#1" target="_blank">艾怡良首部电影上映开红盘 剧组规划快闪演唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770557.md#1" target="_blank">在国王面前演奏大提琴 吴尊10岁女儿获夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769604.md#1" target="_blank">“鱼丁糸”小威澎湖录节目 烈日下体验晒鱼干</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank">演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768903.md#1" target="_blank">郭书瑶禾浩辰演不孕夫妻 剧情写实引观众共鸣</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771620.md#1" target="_blank">艾怡良首部电影上映开红盘 剧组规划快闪演唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770447.md#1" target="_blank">吴孟达遭谣传罹癌去世 友人田启文斥陆媒缺德</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769604.md#1" target="_blank">“鱼丁糸”小威澎湖录节目 烈日下体验晒鱼干</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769457.md#1" target="_blank">Janet速产二胎不到3小时“来不及打无痛分娩”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769489.md#1" target="_blank">林志玲夫妇首度合体代言 AKIRA全程中文应答</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
