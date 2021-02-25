@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771823.md#1" target="_blank">《寻龙使者》神龙西苏 依奥卡菲娜量身打造</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771620.md#1" target="_blank">艾怡良首部电影上映开红盘 剧组规划快闪演唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770557.md#1" target="_blank">在国王面前演奏大提琴 吴尊10岁女儿获夸赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774572.md#1" target="_blank">与邱泽拍恋爱戏 许玮甯自招喜欢诚恳的追求</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774385.md#1" target="_blank">心疼妻求子辛苦 刘亮佐告诫先生们要当神队友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774291.md#1" target="_blank">林明祯来台6年 开心秀健保卡“可以看医生了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774018.md#1" target="_blank">李翊君在家不慎滑倒 脸遭重击“整片发黑”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12773699.md#1" target="_blank">吴朋奉银幕最后身影 《东经北纬》演寻宝慈父</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
