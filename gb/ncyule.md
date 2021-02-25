@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772908.md#1" target="_blank">自曝1岁女儿兴趣广泛 唐嫣开工分享育儿观</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772908.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-502170172-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank">休团8年奇迹式回归 “棉花糖”抛出两喜讯</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102240811071487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774291.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250341141487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774059.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/180109015731100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774018.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250120271487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12773699.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102242349281487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12773132.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/06/sunli-_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772908.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-502170172-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102240811071487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771823.md#1" target="_blank">《寻龙使者》神龙西苏 依奥卡菲娜量身打造</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771620.md#1" target="_blank">艾怡良首部电影上映开红盘 剧组规划快闪演唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770557.md#1" target="_blank">在国王面前演奏大提琴 吴尊10岁女儿获夸赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774291.md#1" target="_blank">林明祯来台6年 开心秀健保卡“可以看医生了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774018.md#1" target="_blank">李翊君在家不慎滑倒 脸遭重击“整片发黑”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12773699.md#1" target="_blank">吴朋奉银幕最后身影 《东经北纬》演寻宝慈父</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank">休团8年奇迹式回归 “棉花糖”抛出两喜讯</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772042.md#1" target="_blank">孙其君帮李国毅代打 被追问“好友”郭雪芙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
