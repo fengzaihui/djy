@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775005.md#1" target="_blank">《全明星2》卡司亮相 钱薇娟江宏杰争抢队员</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775005.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250918001487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774299.md#1" target="_blank">网红称重复做奇怪的梦 或解前世死因</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774299.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/Fotolia_74765550_Subscription_L-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774930.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250846301487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/09/1_meitu_1-3-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250721411487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775481.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2015/03/1503210356182560-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775361.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1411182214281470-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775005.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250918001487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774385.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250426041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771557.md#1" target="_blank">“97”手镯有谦每天戴 车银优BTS柾国等人合送</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770876.md#1" target="_blank">汤唯被假冒开IG账号 李冰冰等众星错误关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771257.md#1" target="_blank">GD权志龙与BLACKPINK JENNIE爆热恋 公司回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774930.md#1" target="_blank">周思洁睽违乐坛25年开个唱 历疫情延期终圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank">陆综将赛琳娜换肾手术照P图 网友怒斥无底线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank">简嫚书装可爱压力大 演《创业》3度现圆形秃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775005.md#1" target="_blank">《全明星2》卡司亮相 钱薇娟江宏杰争抢队员</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12773699.md#1" target="_blank">吴朋奉银幕最后身影 《东经北纬》演寻宝慈父</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774930.md#1" target="_blank">周思洁睽违乐坛25年开个唱 历疫情延期终圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank">简嫚书装可爱压力大 演《创业》3度现圆形秃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775481.md#1" target="_blank">照料83岁罹癌母亲 林立洋与妻已分别四个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775361.md#1" target="_blank">周星驰焦急询问吴孟达病情 破除两人不合传闻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775005.md#1" target="_blank">《全明星2》卡司亮相 钱薇娟江宏杰争抢队员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
