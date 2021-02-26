@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775481.md#1" target="_blank">照料83岁罹癌母亲 林立洋与妻已分别四个月</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775481.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2015/03/1503210356182560-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775361.md#1" target="_blank">周星驰焦急询问吴孟达病情 破除两人不合传闻</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775361.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/1411182214281470-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102260522071487-320x200.jpg"></a>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776736.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/190416002001100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12775969.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/20200325-WeTV-03-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776597.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/180813012350100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774930.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250846301487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/09/1_meitu_1-3-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102250721411487-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775481.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2015/03/1503210356182560-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772908.md#1" target="_blank">自曝1岁女儿兴趣广泛 唐嫣开工分享育儿观</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12770876.md#1" target="_blank">汤唯被假冒开IG账号 李冰冰等众星错误关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768556.md#1" target="_blank">被拍到与冯绍峰游三亚 赵丽颖高情商称呼婆婆</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776730.md#1" target="_blank">韩实境综艺开播 车太铉赵寅成下乡当超市老板</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776736.md#1" target="_blank">EXO灿烈3月29日将入伍 时间地点不公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776597.md#1" target="_blank">Apink惊喜推新作 十周年粉丝曲4月19日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776258.md#1" target="_blank">DAY6时隔1年回归 将以完整团体形式推新作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774059.md#1" target="_blank">珉豪乐谈为海兵队赢自尊 很尊敬TWICE等女团</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12771557.md#1" target="_blank">“97”手镯有谦每天戴 车银优BTS柾国等人合送</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774930.md#1" target="_blank">周思洁睽违乐坛25年开个唱 历疫情延期终圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank">陆综将赛琳娜换肾手术照P图 网友怒斥无底线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank">简嫚书装可爱压力大 演《创业》3度现圆形秃</a></h4></td></tr>
