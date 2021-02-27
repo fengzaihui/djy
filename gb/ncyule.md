@@ -19,9 +19,9 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12750152.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483893-320x200.jpg"><br>《爱的过去进行式：真爱永远》影评：远距离恋情 是可克服的挑战</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102250721411487-320x200.jpg"><br> 简嫚书装可爱压力大 演《创业》3度现圆形秃</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102240811071487-320x200.jpg"><br> 休团8年奇迹式回归 “棉花糖”抛出两喜讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-320x200.jpg"><br> 演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-463588712-320x200.jpg"><br> 本名被视为韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1912010403011487-320x200.jpg"><br> 陈亚兰推歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank">范冰冰贴角色合集庆元宵 风格搞怪等待复出？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777907.md#1" target="_blank">谢娜元宵节剪头发 疑为生二胎做准备</a></h4></td></tr>
