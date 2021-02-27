@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12775969.md#1" target="_blank">胎儿保不住 赵小侨与刘亮佐心痛：16周宝宝胎停</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12775969.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/20200325-WeTV-03-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776597.md#1" target="_blank">Apink惊喜推新作 十周年粉丝曲4月19日发行</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776597.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/04/180813012350100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778963.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200925091929100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777907.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/04/1704261700132669-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777025.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102260721101487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102260522071487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776736.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/190416002001100707-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12775969.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/20200325-WeTV-03-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
@@ -19,18 +19,18 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/13/n12750152.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/483893-320x200.jpg"><br>《爱的过去进行式：真爱永远》影评：远距离恋情 是可克服的挑战</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102250721411487-320x200.jpg"><br> 简嫚书装可爱压力大 演《创业》3度现圆形秃</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12773699.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102242349281487-320x200.jpg"><br> 吴朋奉银幕最后身影 《东经北纬》演寻宝慈父</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/2102240811071487-320x200.jpg"><br> 休团8年奇迹式回归 “棉花糖”抛出两喜讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-320x200.jpg"><br> 演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-463588712-320x200.jpg"><br> 本名被视为韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank">范冰冰贴角色合集庆元宵 风格搞怪等待复出？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777907.md#1" target="_blank">谢娜元宵节剪头发 疑为生二胎做准备</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12773132.md#1" target="_blank">孙俪获好友赠二手童装 小花真实反应感动网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772908.md#1" target="_blank">自曝1岁女儿兴趣广泛 唐嫣开工分享育儿观</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778963.md#1" target="_blank">SuperM齐聚支持SHINee 泰容KAI赞美感动泰民</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776730.md#1" target="_blank">韩实境综艺开播 车太铉赵寅成下乡当超市老板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776736.md#1" target="_blank">EXO灿烈3月29日将入伍 时间地点不公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776597.md#1" target="_blank">Apink惊喜推新作 十周年粉丝曲4月19日发行</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776258.md#1" target="_blank">DAY6时隔1年回归 将以完整团体形式推新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777025.md#1" target="_blank">钟欣凌曝过年另类度假 保管女儿红包当周转金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774930.md#1" target="_blank">周思洁睽违乐坛25年开个唱 历疫情延期终圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank">陆综将赛琳娜换肾手术照P图 网友怒斥无底线</a></h4></td></tr>
@@ -43,16 +43,16 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778963.md#1" target="_blank">SuperM齐聚支持SHINee 泰容KAI赞美感动泰民</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank">陆综将赛琳娜换肾手术照P图 网友怒斥无底线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774018.md#1" target="_blank">李翊君在家不慎滑倒 脸遭重击“整片发黑”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank">休团8年奇迹式回归 “棉花糖”抛出两喜讯</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769411.md#1" target="_blank">张庭瑚因实境秀爆红 4月挑战人生首场个唱</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768556.md#1" target="_blank">被拍到与冯绍峰游三亚 赵丽颖高情商称呼婆婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766316.md#1" target="_blank">孙俪维持体重45公斤 常年坚持一饮食习惯</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12775969.md#1" target="_blank">胎儿保不住 赵小侨与刘亮佐心痛：16周宝宝胎停</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12768344.md#1" target="_blank">吴孟达确诊罹患肝癌 手术后没力气说话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12769489.md#1" target="_blank">林志玲夫妇首度合体代言 AKIRA全程中文应答</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12775969.md#1" target="_blank">胎儿保不住 赵小侨与刘亮佐心痛：16周宝宝胎停</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/21/n12765995.md#1" target="_blank">入住《琅琊榜》剧集主题房 刘涛直呼会睡不着</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774018.md#1" target="_blank">李翊君在家不慎滑倒 脸遭重击“整片发黑”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775481.md#1" target="_blank">照料83岁罹癌母亲 林立洋与妻已分别四个月</a></h4></td></tr>
