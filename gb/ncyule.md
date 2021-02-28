@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777907.md#1" target="_blank">谢娜元宵节剪头发 疑为生二胎做准备</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777907.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/04/1704261700132669-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776730.md#1" target="_blank">韩实境综艺开播 车太铉赵寅成下乡当超市老板</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776730.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102260522071487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779827.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102272348121487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779682.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102272149441487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779516.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/11/191106074656100311-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778947.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/1411182214281470-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778963.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/200925091929100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777907.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/04/1704261700132669-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774930.md#1" target="_blank">周思洁睽违乐坛25年开个唱 历疫情延期终圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank">陆综将赛琳娜换肾手术照P图 网友怒斥无底线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774704.md#1" target="_blank">简嫚书装可爱压力大 演《创业》3度现圆形秃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779827.md#1" target="_blank">展荣展瑞新单曲MV上线 练舞惨被跳绳甩脸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779682.md#1" target="_blank">挺作家妈妈出书 张钧甯赠水壶预祝大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779516.md#1" target="_blank">杜汶泽狠酸中共 呼吁港人挺台湾凤梨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778947.md#1" target="_blank">吴孟达病逝 周星驰、刘德华作出回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777025.md#1" target="_blank">钟欣凌曝过年另类度假 保管女儿红包当周转金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/3/n12730339.md#1" target="_blank">石原聪美被曝感染中共肺炎 新戏开拍急喊卡</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779827.md#1" target="_blank">展荣展瑞新单曲MV上线 练舞惨被跳绳甩脸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778963.md#1" target="_blank">SuperM齐聚支持SHINee 泰容KAI赞美感动泰民</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775727.md#1" target="_blank">陆综将赛琳娜换肾手术照P图 网友怒斥无底线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12774018.md#1" target="_blank">李翊君在家不慎滑倒 脸遭重击“整片发黑”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12772397.md#1" target="_blank">休团8年奇迹式回归 “棉花糖”抛出两喜讯</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/23/n12768556.md#1" target="_blank">被拍到与冯绍峰游三亚 赵丽颖高情商称呼婆婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766316.md#1" target="_blank">孙俪维持体重45公斤 常年坚持一饮食习惯</a></h4></td></tr>
