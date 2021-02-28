@@ -554,6 +554,7 @@ FDA官员在周三公布的文件中指出，强生单剂疫苗在试验中似�
 省府新条例将于2021年3月8日生效。根据新条例：
 
 省府将为被授权的休闲类托儿服务提供者（authorized recreational provider）取消最多3小时服务.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月28日 8:58 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779528.md#1" target="_blank">【探索时分】军情速递 美最新隐身轰炸机B21</a><br></h3>美国航空飞行员在科罗拉多偶遇UFO，FBI正在调查；美国开发最新型无人机，极速赛车手，具体性能仍属于机密；法国开发新一代战略导弹核潜艇，预计2035年下水，服役到2090年。美国空军首次将B1B超音速隐形轰炸机部署到挪威地区。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月28日 8:42 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779550.md#1" target="_blank">悉尼警察办案时被恶犬咬成重伤</a><br></h3>周日凌晨，悉尼一名男警官在出警时面部被一条恶犬咬成重伤，需要接受手术。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月28日 7:56 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779418.md#1" target="_blank">中小留学生之家</a><br></h3>
 
