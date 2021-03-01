@@ -36,13 +36,12 @@
 
 2月23日，蓬佩奥和余茂春联名在《华尔街日报》发表文章谈到这个问题。2月21日，博明接受美国媒体CBS采访时，也谈到了这个问题。1月15日，美国国务院专门发表一份关于武汉.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月26日 8:11 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775636.md#1" target="_blank">谢田：美国保守主义捍卫者真正的敌人</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/25/n12775636.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/02/Trump-CPAC-2020-GettyImages-1204216597-150x120.jpg" align ="left"></a>美国保守主义者的年度大会——著名的保守派政治行动大会（CPAC），今年将于这个星期（2月25-28日）在佛罗里达的奥兰多举行。让美国人民最关心的，是川普总统将再次出席大会并发表演讲。人们关注于川普自从1月份离开白宫之后，这一个多月来基本上没有系统的发声，也没有表示他下一步的安排，所以对这次演讲充满了期待。川普从2017.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月26日 7:02 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780738.md#1" target="_blank">从中国大陆传出的七首狱中诗</a><br></h3>编者注：以下诗篇的作者是一位法轮功修炼者，她因不放弃信仰真、善、忍而遭中共迫害，目前身陷囹圄，作者在狱中作诗数十首。近期，这位法轮功学员通过民间渠道，突破网络封锁，将其中七首诗传到海外，委托大纪元发表。
+<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780738.md#1" target="_blank">从中国大陆传出的七首狱中诗</a><br></h3>编者注：以下诗篇的作者是一位女性法轮功修炼者，她因不放弃信仰真、善、忍而遭中共迫害，目前身陷囹圄，作者化名白云，在狱中作诗数十首。近期，这位法轮功学员通过民间渠道，突破网络封锁，将其中七首诗传到海外，委托大纪元发表。
 
 诗中表达了作者虽身在冤狱，但对法轮大法坚信不移的正信，以及对亲人的思念。
 
 1
-一尺椽下六尺单
-容膝之.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月01日 4:36 AM			</td></tr>
+一尺椽下六.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月01日 4:36 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778501.md#1" target="_blank">田云：中共冬奥会遇抵制声浪 难掩尴尬</a><br></h3>中共因瞒疫而处于追责和调查的聚焦镜下，此时，它急于扭转劣势、转移视线。2022冬奥会当然是它需要的一张牌。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年02月27日 2:51 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777952.md#1" target="_blank">毛泽东的大笔杆子姚文元被关秦城监狱20年</a><br></h3>姚文元因替毛泽东发动文化大革命打头阵，获提拔重用，35岁成为中央文革小组成员，38岁成为中共政治局委员，39岁成为中共意识形态总管，一度红得发紫。
 
