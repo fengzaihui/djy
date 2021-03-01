@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780646.md#1" target="_blank">陈惠敏中风罹癌后渐康复 即将复出自认辛苦命</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780646.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/chen-huimin01-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780287.md#1" target="_blank">Ella熬夜读本争取女一 ?《听见歌》展内敛演技</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780287.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102280726041487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782015.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1806260648432384-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782121.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103010458221487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782045.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2007300631081487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781874.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210301023952100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781703.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2012162303091487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781241.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/201123055906100707-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780937.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-542769440-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782045.md#1" target="_blank">中共突禁台湾凤梨 许杰辉晒剧照挺台农</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781703.md#1" target="_blank">金球奖得奖名单 最佳动画《灵魂急转弯》抱2奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780646.md#1" target="_blank">陈惠敏中风罹癌后渐康复 即将复出自认辛苦命</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782015.md#1" target="_blank">渡边直美与美国公司签约 移居当地展开国际活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781874.md#1" target="_blank">东京奥运圣火传递者接连请辞 常盘贵子也退出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/8/n12740708.md#1" target="_blank">松本穗香为戏拜师学艺 好手艺连老师都夸赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/4/n12732884.md#1" target="_blank">荣仓奈奈报喜生下二宝“家里更热闹了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782121.md#1" target="_blank">台原民歌手马晓安首开个唱 邀柯泯薰同台唱和</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779933.md#1" target="_blank">艾怡良台片票房庆功 快闪演唱引人群围观</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779827.md#1" target="_blank">展荣展瑞新单曲MV上线 练舞惨被跳绳甩脸</a></h4></td></tr>
