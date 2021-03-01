@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779682.md#1" target="_blank">挺作家妈妈出书 张钧甯赠水壶预祝大卖</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779682.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/2102272149441487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779516.md#1" target="_blank">杜汶泽狠酸中共 呼吁港人挺台湾凤梨</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779516.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/11/191106074656100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781241.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/201123055906100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780937.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-542769440-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780646.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/chen-huimin01-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780287.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102280726041487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/2102280144141487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776649.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/08/1907150124232275-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776726.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/10/2010160522511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank">范冰冰贴角色合集庆元宵 风格搞怪等待复出？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777907.md#1" target="_blank">谢娜元宵节剪头发 疑为生二胎做准备</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/24/n12773132.md#1" target="_blank">孙俪获好友赠二手童装 小花真实反应感动网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781241.md#1" target="_blank">BTS摘KMA两奖 成唯一两度夺年度歌曲奖歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776726.md#1" target="_blank">《神隐少女》真人版 桥本环奈上白石萌音双主演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12779733.md#1" target="_blank">Stray Kids铉辰霸凌争议 公司：暂停活动自省</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778963.md#1" target="_blank">SuperM齐聚支持SHINee 泰容KAI赞美感动泰民</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776730.md#1" target="_blank">韩实境综艺开播 车太铉赵寅成下乡当超市老板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780287.md#1" target="_blank">Ella熬夜读本争取女一 ?《听见歌》展内敛演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776649.md#1" target="_blank">《蜘蛛人3》正式定名 汤姆霍兰德挥别漫威宇宙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777025.md#1" target="_blank">钟欣凌曝过年另类度假 保管女儿红包当周转金</a></h4></td></tr>
