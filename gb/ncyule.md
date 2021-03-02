@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782045.md#1" target="_blank">中共突禁台湾凤梨 许杰辉晒剧照挺台农</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782045.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2007300631081487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781703.md#1" target="_blank">金球奖得奖名单 最佳动画《灵魂急转弯》抱2奖</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781703.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2012162303091487-600x335.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784173.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103020250551487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12783589.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/191208221433100707-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12783918.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1703021040142384-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783227.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/161222084141100311-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783059.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-474615232-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782835.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/zhang-meng-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782594.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2007071127461470-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12783409.md#1" target="_blank">Rosé个人作12日发行 BLACKPINK成员IG帮宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782187.md#1" target="_blank">ONF正规专辑主打歌 登美国iTunes K-POP榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781582.md#1" target="_blank">APRIL传团内霸凌 公司：难以断言受害与加害者</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784173.md#1" target="_blank">《全明星2》开红盘 “大黑马”抽筋仍破纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781919.md#1" target="_blank">继李安后第2位亚裔金球导演 赵婷问鼎奥斯卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781917.md#1" target="_blank">“黑豹”查德维克夺金球影帝 遗孀领奖落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781703.md#1" target="_blank">金球奖得奖名单 最佳动画《灵魂急转弯》抱2奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780287.md#1" target="_blank">Ella熬夜读本争取女一 ?《听见歌》展内敛演技</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784173.md#1" target="_blank">《全明星2》开红盘 “大黑马”抽筋仍破纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12783918.md#1" target="_blank">“校花”简廷芮当妈了！ 产下双鱼宝宝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783227.md#1" target="_blank">刘嘉玲释当经理人原因：梁朝伟很自闭需保护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783059.md#1" target="_blank">44岁舒淇满头现白发 网友难接受为她支招</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782528.md#1" target="_blank">陈零九曾当街头艺人 娄峻硕：认识他很久了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782594.md#1" target="_blank">多部未华子宣布怀上第一胎 已进入安定期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782015.md#1" target="_blank">渡边直美与美国公司签约 移居当地展开国际活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781874.md#1" target="_blank">东京奥运圣火传递者接连请辞 常盘贵子也退出</a></h4></td></tr>
