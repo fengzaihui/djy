@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12783589.md#1" target="_blank">j-hope于纪念日公开新歌：盼展现自身成长样貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12783409.md#1" target="_blank">Rosé个人作12日发行 BLACKPINK成员IG帮宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782187.md#1" target="_blank">ONF正规专辑主打歌 登美国iTunes K-POP榜冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784417.md#1" target="_blank">黄文星演反派悬吊七楼外 Gino忍惧高跳楼对戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784173.md#1" target="_blank">《全明星2》开红盘 “大黑马”抽筋仍破纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781919.md#1" target="_blank">继李安后第2位亚裔金球导演 赵婷问鼎奥斯卡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781917.md#1" target="_blank">“黑豹”查德维克夺金球影帝 遗孀领奖落泪</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781703.md#1" target="_blank">金球奖得奖名单 最佳动画《灵魂急转弯》抱2奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784417.md#1" target="_blank">黄文星演反派悬吊七楼外 Gino忍惧高跳楼对戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784173.md#1" target="_blank">《全明星2》开红盘 “大黑马”抽筋仍破纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12783918.md#1" target="_blank">“校花”简廷芮当妈了！ 产下双鱼宝宝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783227.md#1" target="_blank">刘嘉玲释当经理人原因：梁朝伟很自闭需保护</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783059.md#1" target="_blank">44岁舒淇满头现白发 网友难接受为她支招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782594.md#1" target="_blank">多部未华子宣布怀上第一胎 已进入安定期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782015.md#1" target="_blank">渡边直美与美国公司签约 移居当地展开国际活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781874.md#1" target="_blank">东京奥运圣火传递者接连请辞 常盘贵子也退出</a></h4></td></tr>
