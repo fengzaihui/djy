@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782835.md#1" target="_blank">穿收腰裙走红毯后看骨科 张萌自嘲拿命换身材</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780937.md#1" target="_blank">杨颖上台走秀 黄晓明坐观众席拍照登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank">范冰冰贴角色合集庆元宵 风格搞怪等待复出？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789365.md#1" target="_blank">穗珍因霸凌争议暂停活动 (G)I-DLE暂成五人体制</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank">Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788413.md#1" target="_blank">SHINee正规七辑周榜夺冠 泰民获颁模范纳税人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788354.md#1" target="_blank">IU正规五辑《LILAC》25日发行 半年前就已透露</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/3/n12786725.md#1" target="_blank">“少时”秀英演爱情片 与刘太旿配对谱恋曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788848.md#1" target="_blank">米可白演国语剧不适应 与周孝安互揶揄有乡音</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788306.md#1" target="_blank">《听见台湾》首映 导演崔永徽买凤梨挺台农</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788126.md#1" target="_blank">莫允雯开春接新戏 发现吴念轩有双重人格</a></h4></td></tr>
