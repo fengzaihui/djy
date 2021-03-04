@@ -42,6 +42,7 @@
 …… ……”
 
 是凡关注去年武汉疫情的网民，几乎没人不知道.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月01日 12:57 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12787948.md#1" target="_blank">夏林: 你是穷人还是富人？</a><br></h3>你是穷人还是富人？在COVID-19也就是中共病毒肺炎在世界上大流行之前，这个问题根本就不是一个问题。每个人都知道自己大约是富人还是穷人，还是不穷不富的中产。麻烦的是，在中共病毒跑了几趟全球马拉松之后，很难有人搞得清自己在财富链的什么地方。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月04日 8:37 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/3/n12786801.md#1" target="_blank">祝君安：菩萨蛮·题两会（外一篇）</a><br></h3>恐怖笼罩两会戏，
 糟蹋民脂多少亿。
 述职向上级，
@@ -53,12 +54,5 @@
 三退浪潮急。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月03日 6:44 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/3/n12786775.md#1" target="_blank">颜纯钩：岑子杰的道歉与周庭的眼泪</a><br></h3>47名民主派人士被警方正式落案控以“串谋颠覆国家政权罪”，上庭之前，所有被控人士都做好身陷囹圄的心理准备。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月03日 6:37 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12784266.md#1" target="_blank">【网海拾贝】绝不能信任中共及与之谈判</a><br></h3>Thayer教授和我今在《国会山》报发文，呼吁美国绝不能信任中共及与之谈判；中共要求重启谈判旨在拖延时间争取战略机遇以击败美国，即便达成协议中共随时可撕毁，因为为达目的不择手段、无耻背叛和欺骗是中共的本性，深深嵌入其政治基因。——韩连潮......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月02日 4:20 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781393.md#1" target="_blank">吐为快：浣溪沙·全国人民热爱刃总</a><br></h3>学刃小组有新规，
-热爱刃总避尊讳，
-革除陋刃头一回。
-
-刃刃妖风隐翠字，
-家家商号禁碧翡，
-学而时刃好悲摧。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月01日 11:27 AM			</td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yrsmsb310/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/yrsmsb310/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yrsmsb310/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/yrsmsb310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
