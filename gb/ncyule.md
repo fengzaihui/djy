@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12785364.md#1" target="_blank">当年用心良苦拒借钱 周润发一句话悼念吴孟达</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12785364.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/12/wumemgda-zhourunfa-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789047.md#1" target="_blank">张信哲苦熬多时推新作 砸千万打造实体专辑</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789047.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103040640211487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791699.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200621230153100707-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050634441487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050441051487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050210131487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791164.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050102521487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12790564.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2014/11/1411182214281470-320x200.jpg"></a>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12790203.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-495707928-320x200.jpg"></a>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12785364.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/wumemgda-zhourunfa-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782835.md#1" target="_blank">穿收腰裙走红毯后看骨科 张萌自嘲拿命换身材</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780937.md#1" target="_blank">杨颖上台走秀 黄晓明坐观众席拍照登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank">范冰冰贴角色合集庆元宵 风格搞怪等待复出？</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791699.md#1" target="_blank">张根硕时隔3年半唱新歌《Star》 5月发行新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12790863.md#1" target="_blank">BTS登IFPI国际艺人冠军 非英语圈歌手首例</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791271.md#1" target="_blank">朴宝英《社长》当工读生搞乌龙 遭客人投诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12790719.md#1" target="_blank">BamBam签约新公司开设多平台 与宣美成同门</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789365.md#1" target="_blank">穗珍因霸凌争议暂停活动 (G)I-DLE暂成五人体制</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791164.md#1" target="_blank">易智言接任台北电影节主席 未来专注培育新人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12790203.md#1" target="_blank">朱莉高价拍卖皮特赠名画 清走旧爱礼物并吸金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788848.md#1" target="_blank">米可白演国语剧不适应 与周孝安互揶揄有乡音</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788306.md#1" target="_blank">《听见台湾》首映 导演崔永徽买凤梨挺台农</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791464.md#1" target="_blank">林韦君苦练八家将见血 张勋杰、杨子仪也铁腿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank">陈昇证实罹口腔癌 唯一挂念跟妻子的约定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791164.md#1" target="_blank">易智言接任台北电影节主席 未来专注培育新人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791699.md#1" target="_blank">张根硕时隔3年半唱新歌《Star》 5月发行新单曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12790564.md#1" target="_blank">与周星驰合作《破坏之王》 吴孟达一语成谶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782594.md#1" target="_blank">多部未华子宣布怀上第一胎 已进入安定期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782015.md#1" target="_blank">渡边直美与美国公司签约 移居当地展开国际活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12781874.md#1" target="_blank">东京奥运圣火传递者接连请辞 常盘贵子也退出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/12/n12748843.md#1" target="_blank">福原爱与同学合组公司 想圆三代桌球对打梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789569.md#1" target="_blank">卢广仲变换医师等造型 新曲MV大玩角色扮演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789358.md#1" target="_blank">范怡文首次直播开唱 曝当年与张清芳配唱内幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789047.md#1" target="_blank">张信哲苦熬多时推新作 砸千万打造实体专辑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788613.md#1" target="_blank">李玖哲筹备4月开唱 号召圈内好友上台助唱</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783059.md#1" target="_blank">44岁舒淇满头现白发 网友难接受为她支招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776649.md#1" target="_blank">《蜘蛛人3》正式定名 汤姆霍兰德挥别漫威宇宙</a></h4></td></tr>
