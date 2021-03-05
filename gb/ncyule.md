@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789047.md#1" target="_blank">张信哲苦熬多时推新作 砸千万打造实体专辑</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789047.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103040640211487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank">Rain郑智薰出道20年再添名言：坚持就能胜出</a><br></h3><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050210131487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791164.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050102521487-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12790564.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2014/11/1411182214281470-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12790203.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-495707928-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/2/n12785364.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/wumemgda-zhourunfa-320x200.jpg"></a>
 <a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789464.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/1907261013532384-320x200.jpg"></a>
-<a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103040735561487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12782835.md#1" target="_blank">穿收腰裙走红毯后看骨科 张萌自嘲拿命换身材</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/28/n12780937.md#1" target="_blank">杨颖上台走秀 黄晓明坐观众席拍照登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12777755.md#1" target="_blank">范冰冰贴角色合集庆元宵 风格搞怪等待复出？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12790863.md#1" target="_blank">BTS登IFPI国际艺人冠军 非英语圈歌手首例</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791271.md#1" target="_blank">朴宝英《社长》当工读生搞乌龙 遭客人投诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12790719.md#1" target="_blank">BamBam签约新公司开设多平台 与宣美成同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789365.md#1" target="_blank">穗珍因霸凌争议暂停活动 (G)I-DLE暂成五人体制</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank">Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788413.md#1" target="_blank">SHINee正规七辑周榜夺冠 泰民获颁模范纳税人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/5/n12791164.md#1" target="_blank">易智言接任台北电影节主席 未来专注培育新人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12790203.md#1" target="_blank">朱莉高价拍卖皮特赠名画 清走旧爱礼物并吸金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12788848.md#1" target="_blank">米可白演国语剧不适应 与周孝安互揶揄有乡音</a></h4></td></tr>
@@ -52,7 +52,7 @@
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12776649.md#1" target="_blank">《蜘蛛人3》正式定名 汤姆霍兰德挥别漫威宇宙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/3/n12785644.md#1" target="_blank">唐嫣披罗晋西装外套 夫妻俩牵手下班秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/26/n12775969.md#1" target="_blank">胎儿保不住 赵小侨与刘亮佐心痛：16周宝宝胎停</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/3/n12786688.md#1" target="_blank">粗口霸凌？外遇？江宏杰福原爱被爆协议离婚中</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/3/n12786688.md#1" target="_blank">疑遭粗口霸凌而外遇 福原爱被爆协议离婚中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/2/27/n12779516.md#1" target="_blank">杜汶泽狠酸中共 呼吁港人挺台湾凤梨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/1/n12783227.md#1" target="_blank">刘嘉玲释当经理人原因：梁朝伟很自闭需保护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yrsmsb310/djy/blob/master/gb/21/3/4/n12789464.md#1" target="_blank">福原爱两度致歉 江宏杰发声：对她的爱至今不变</a></h4></td></tr>
