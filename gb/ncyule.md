@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank">陈昇证实罹口腔癌 唯一挂念跟妻子的约定</a><br></h3><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050441051487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12790564.md#1" target="_blank">与周星驰合作《破坏之王》 吴孟达一语成谶</a><br></h3><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12790564.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2014/11/1411182214281470-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/6/n12793650.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210306034026100707-320x200.jpg"></a>
 <a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12792743.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-1145305822-320x200.jpg"></a>
 <a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12792373.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/1906252259561487-320x200.jpg"></a>
 <a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12792579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-926891040-320x200.jpg"></a>
 <a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791948.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2101270710051487-320x200.jpg"></a>
 <a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791699.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200621230153100707-320x200.jpg"></a>
-<a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103050634441487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791464.md#1" target="_blank">林韦君苦练八家将见血 张勋杰、杨子仪也铁腿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank">陈昇证实罹口腔癌 唯一挂念跟妻子的约定</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/6/n12793650.md#1" target="_blank">逾30人请辞东奥圣火传递 TOKIO洼田正孝也退出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791948.md#1" target="_blank">“ARASHI岚”二宫和也女儿出生：松了一口气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791699.md#1" target="_blank">张根硕时隔3年半唱新歌《Star》 5月发行新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/1/n12782594.md#1" target="_blank">多部未华子宣布怀上第一胎 已进入安定期</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/1/n12782015.md#1" target="_blank">渡边直美与美国公司签约 移居当地展开国际活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/4/n12789569.md#1" target="_blank">卢广仲变换医师等造型 新曲MV大玩角色扮演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/4/n12789358.md#1" target="_blank">范怡文首次直播开唱 曝当年与张清芳配唱内幕</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/2/26/n12776649.md#1" target="_blank">《蜘蛛人3》正式定名 汤姆霍兰德挥别漫威宇宙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12790564.md#1" target="_blank">与周星驰合作《破坏之王》 吴孟达一语成谶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/3/n12785644.md#1" target="_blank">唐嫣披罗晋西装外套 夫妻俩牵手下班秀恩爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/4/n12789464.md#1" target="_blank">福原爱两度致歉 江宏杰发声：对她的爱至今不变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank">陈昇证实罹口腔癌 唯一挂念跟妻子的约定</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/4/n12789464.md#1" target="_blank">福原爱两度致歉 江宏杰发声：对她的爱至今不变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/3/n12786688.md#1" target="_blank">福原爱江宏杰感情不睦 被爆协议离婚中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/3/1/n12783227.md#1" target="_blank">刘嘉玲释当经理人原因：梁朝伟很自闭需保护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oajitf372/djy/blob/master/gb/21/2/27/n12779516.md#1" target="_blank">杜汶泽狠酸中共 呼吁港人挺台湾凤梨</a></h4></td></tr>
