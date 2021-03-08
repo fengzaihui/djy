@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796616.md#1" target="_blank">BTS连三年参与葛莱美奖 今年演出《Dynamite》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796023.md#1" target="_blank">DAY6晟镇本日入伍：当兵回来后会更好更健康</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12794855.md#1" target="_blank">INFINITE圣圭离开Woollim娱乐 11年合约告终</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796789.md#1" target="_blank">莎剧翻拍电影谢沛恩诠释男性 下戏狂买粉色衣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796617.md#1" target="_blank">楚宣抱病出席杀青宴 直夸搭档蓝苇华专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank">2020邱宇辰逢低潮年 今甩偶像包袱拼转型</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12794728.md#1" target="_blank">连静雯归零再出发 跨界YouTuber自称零包袱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12794521.md#1" target="_blank">台片《哈勇他们家》杀青 小薰挑战扮中年妇女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796198.md#1" target="_blank">合作“星级”作词人 朱俐静：过程犹如大冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796853.md#1" target="_blank">金曲得主布朗开启音乐实境秀 新歌遭宥胜吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank">2020邱宇辰逢低潮年 今甩偶像包袱拼转型</a></h4></td></tr>
