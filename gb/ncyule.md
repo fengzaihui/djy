@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12795073.md#1" target="_blank">周星驰现身吴孟达告别式 亲送好友最后一程</a><br></h3><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12795073.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/1411182214281470-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/6/n12793835.md#1" target="_blank">TWICE线上演唱会定延甜笑欢唱 5月发行新歌</a><br></h3><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/6/n12793835.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/190115102726100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/8/n12796023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/190801081734100707-320x200.jpg"></a>
 <a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103080053291487-320x200.jpg"></a>
 <a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12795765.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2101172046292563-320x200.jpg"></a>
 <a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12795603.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-320x200.jpg"></a>
 <a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12795392.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/09/1805300633292384-320x200.jpg"></a>
 <a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12795073.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1411182214281470-320x200.jpg"></a>
-<a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/6/n12793835.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/190115102726100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12795603.md#1" target="_blank">出道18年体重维持45公斤 孙俪公开晚餐菜单</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/5/n12792743.md#1" target="_blank">汪峰携女儿助阵章子怡 小苹果现身荧屏喊妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/5/n12792579.md#1" target="_blank">说中共国充满谎言 赵婷新片中国版海报被撤</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/8/n12796023.md#1" target="_blank">DAY6晟镇本日入伍：当兵回来后会更好更健康</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12794855.md#1" target="_blank">INFINITE圣圭离开Woollim娱乐 11年合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/6/n12793835.md#1" target="_blank">TWICE线上演唱会定延甜笑欢唱 5月发行新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/5/n12791364.md#1" target="_blank">李钟硕盼人生无愧于己 做个比昨天更好的人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/5/n12791699.md#1" target="_blank">张根硕时隔3年半唱新歌《Star》 5月发行新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank">2020邱宇辰逢低潮年 今甩偶像包袱拼转型</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12794728.md#1" target="_blank">连静雯归零再出发 跨界YouTuber自称零包袱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wwofwt369/djy/blob/master/gb/21/3/7/n12794521.md#1" target="_blank">台片《哈勇他们家》杀青 小薰挑战扮中年妇女</a></h4></td></tr>
