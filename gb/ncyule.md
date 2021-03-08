@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795603.md#1" target="_blank">出道18年体重维持45公斤 孙俪公开晚餐菜单</a><br></h3><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795603.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795392.md#1" target="_blank">一台车开13年不补刮痕 王力宏曝原因网友惊呆</a><br></h3><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795392.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/09/1805300633292384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796198.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103080456011487-320x200.jpg"></a>
 <a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796853.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103080430331487-320x200.jpg"></a>
 <a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796616.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200127014621100707-320x200.jpg"></a>
 <a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/190801081734100707-320x200.jpg"></a>
 <a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103080053291487-320x200.jpg"></a>
 <a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795765.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2101172046292563-320x200.jpg"></a>
-<a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795603.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
@@ -35,26 +35,26 @@
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank">2020邱宇辰逢低潮年 今甩偶像包袱拼转型</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12794728.md#1" target="_blank">连静雯归零再出发 跨界YouTuber自称零包袱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12794521.md#1" target="_blank">台片《哈勇他们家》杀青 小薰挑战扮中年妇女</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796198.md#1" target="_blank">合作“星级”作词人 朱俐静：过程犹如大冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796853.md#1" target="_blank">金曲得主布朗开启音乐实境秀 新歌遭宥胜吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank">2020邱宇辰逢低潮年 今甩偶像包袱拼转型</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795392.md#1" target="_blank">一台车开13年不补刮痕 王力宏曝原因网友惊呆</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795073.md#1" target="_blank">周星驰现身吴孟达告别式 亲送好友最后一程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/6/n12793835.md#1" target="_blank">TWICE线上演唱会定延甜笑欢唱 5月发行新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/6/n12793650.md#1" target="_blank">逾30人请辞东奥圣火传递 TOKIO洼田正孝也退出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12791948.md#1" target="_blank">“ARASHI岚”二宫和也女儿出生：松了一口气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12791699.md#1" target="_blank">张根硕时隔3年半唱新歌《Star》 5月发行新单曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/8/n12796198.md#1" target="_blank">合作“星级”作词人 朱俐静：过程犹如大冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/4/n12789569.md#1" target="_blank">卢广仲变换医师等造型 新曲MV大玩角色扮演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/4/n12789358.md#1" target="_blank">范怡文首次直播开唱 曝当年与张清芳配唱内幕</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/4/n12789047.md#1" target="_blank">张信哲苦熬多时推新作 砸千万打造实体专辑</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/2/n12785364.md#1" target="_blank">当年用心良苦拒借钱 周润发一句话悼念吴孟达</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/1/n12783059.md#1" target="_blank">44岁舒淇满头现白发 网友难接受为她支招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12790564.md#1" target="_blank">与周星驰合作《破坏之王》 吴孟达一语成谶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12792373.md#1" target="_blank">周杰伦夫妇富养女儿 豪宅地板撒满绘画颜料</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank">陈昇证实罹口腔癌 唯一挂念跟妻子的约定</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/3/n12785644.md#1" target="_blank">唐嫣披罗晋西装外套 夫妻俩牵手下班秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12792743.md#1" target="_blank">汪峰携女儿助阵章子怡 小苹果现身荧屏喊妈妈</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/3/n12785644.md#1" target="_blank">唐嫣披罗晋西装外套 夫妻俩牵手下班秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/4/n12789464.md#1" target="_blank">福原爱两度致歉 江宏杰发声：对她的爱至今不变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/3/n12786688.md#1" target="_blank">福原爱江宏杰感情不睦 被爆协议离婚中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
