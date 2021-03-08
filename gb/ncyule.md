@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12796617.md#1" target="_blank">楚宣抱病出席杀青宴 直夸搭档蓝苇华专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12796458.md#1" target="_blank">2020邱宇辰逢低潮年 今甩偶像包袱拼转型</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/7/n12794728.md#1" target="_blank">连静雯归零再出发 跨界YouTuber自称零包袱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12798034.md#1" target="_blank">吴孟达告别式当天 昔日老搭档罹癌离世</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12797749.md#1" target="_blank">大病初愈复出拍戏 69岁洪金宝拄拐杖现身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12796783.md#1" target="_blank">澎恰恰抢救债务 与小彬彬共同担任执行长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12796198.md#1" target="_blank">合作“星级”作词人 朱俐静：过程犹如大冒险</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12796853.md#1" target="_blank">金曲得主布朗开启音乐实境秀 新歌遭宥胜吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793835.md#1" target="_blank">TWICE线上演唱会定延甜笑欢唱 5月发行新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793650.md#1" target="_blank">逾30人请辞东奥圣火传递 TOKIO洼田正孝也退出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/5/n12791948.md#1" target="_blank">“ARASHI岚”二宫和也女儿出生：松了一口气</a></h4></td></tr>
