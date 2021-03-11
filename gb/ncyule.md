@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12800458.md#1" target="_blank">叹“再见了熟悉的陌生人”范冰冰疑喊话李晨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/7/n12795765.md#1" target="_blank">首次主演剧集遭负评 章子怡直呼像被判死刑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/7/n12795603.md#1" target="_blank">出道18年体重维持45公斤 孙俪公开晚餐菜单</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803461.md#1" target="_blank">EXO伯贤再推出个人专辑 《Bambi》30日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803318.md#1" target="_blank">Wendy将Solo出道：托大家的福才能走到这里</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802078.md#1" target="_blank">IZ*ONE企划确定4月告终 本周线上演唱会开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801362.md#1" target="_blank">Wendy准备4月发行个人专辑 Red Velvet第一人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800948.md#1" target="_blank">知英因疫情影响结束日本合约 专注于韩国事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801901.md#1" target="_blank">李国毅《废财2》变身多金霸总 展多层次演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801759.md#1" target="_blank">侯佩岑携母提黑历史赚钱 蔡诗萍分析为何众怒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12799418.md#1" target="_blank">《饥饿》找女主持人 网友点名意外钓出众女星</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12798034.md#1" target="_blank">吴孟达告别式当天 昔日老搭档罹癌离世</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/4/n12789464.md#1" target="_blank">福原爱两度致歉 江宏杰发声：对她的爱至今不变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12797749.md#1" target="_blank">病愈后复出拍戏 69岁洪金宝叹香港无望</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801759.md#1" target="_blank">侯佩岑携母提黑历史赚钱 蔡诗萍分析为何众怒</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/5/n12791708.md#1" target="_blank">5小时前才发IG动态 台21岁女歌手返母校坠楼亡</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/boyqsg391/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
