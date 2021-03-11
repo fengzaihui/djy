@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802687.md#1" target="_blank">刘诗诗晒自拍照庆生 吴奇隆别样秀恩爱</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802687.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/liu-shishi-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801767.md#1" target="_blank">13年来赚20亿 萧敬腾续约当“终身大事”办</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801767.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103100357482122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804390.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103110602281487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803901.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103110158081487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803626.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103110043141487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12803112.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/190220051424100311-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802919.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/zhangweijian-320x200.jpg"></a>
-<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802687.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/liu-shishi-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
@@ -31,22 +31,22 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803461.md#1" target="_blank">EXO伯贤再推出个人专辑 《Bambi》30日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803318.md#1" target="_blank">Wendy将Solo出道：托大家的福才能走到这里</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804382.md#1" target="_blank">《哥吉拉大战金刚》小栗旬首度进军好莱坞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803901.md#1" target="_blank">“叮咚五坚情”推第3季 5成员将前进农村</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803626.md#1" target="_blank">与陈昭荣断了合作 叶全真首次接演偶像剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801901.md#1" target="_blank">李国毅《废财2》变身多金霸总 展多层次演技</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801759.md#1" target="_blank">侯佩岑携母提黑历史赚钱 蔡诗萍分析为何众怒</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804390.md#1" target="_blank">李宣榕备唱自嘲“金鱼脑”邀师兄曾昱嘉助阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804163.md#1" target="_blank">台湾网红进军Podcast 瑀熙及路路合开新节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803901.md#1" target="_blank">“叮咚五坚情”推第3季 5成员将前进农村</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803626.md#1" target="_blank">与陈昭荣断了合作 叶全真首次接演偶像剧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12803112.md#1" target="_blank">李施嬅未婚夫身份曝光 是周润发的健身教练</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800948.md#1" target="_blank">知英因疫情影响结束日本合约 专注于韩国事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12800306.md#1" target="_blank">志村健染疫离世周年 粉丝筹建等身大铜像纪念</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793835.md#1" target="_blank">TWICE线上演唱会定延甜笑欢唱 5月发行新歌</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804390.md#1" target="_blank">李宣榕备唱自嘲“金鱼脑”邀师兄曾昱嘉助阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802197.md#1" target="_blank">台湾新人女团培训3年出道 4团员皆学生歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801260.md#1" target="_blank">王心凌曝新曲邀歌迷神游冒险  5月高雄开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12798998.md#1" target="_blank">詹雅雯新歌反映人生观 自认感性因此能创作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12796198.md#1" target="_blank">合作“星级”作词人 朱俐静：过程犹如大冒险</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/2/n12785364.md#1" target="_blank">当年用心良苦拒借钱 周润发一句话悼念吴孟达</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/5/n12792373.md#1" target="_blank">周杰伦夫妇富养女儿 豪宅地板撒满绘画颜料</a></h4></td></tr>
