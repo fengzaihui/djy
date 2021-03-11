@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12800458.md#1" target="_blank">叹“再见了熟悉的陌生人”范冰冰疑喊话李晨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/7/n12795765.md#1" target="_blank">首次主演剧集遭负评 章子怡直呼像被判死刑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/7/n12795603.md#1" target="_blank">出道18年体重维持45公斤 孙俪公开晚餐菜单</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803318.md#1" target="_blank">Wendy将Solo出道：托大家的福才能走到这里</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802078.md#1" target="_blank">IZ*ONE企划确定4月告终 本周线上演唱会开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801362.md#1" target="_blank">Wendy准备4月发行个人专辑 Red Velvet第一人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800948.md#1" target="_blank">知英因疫情影响结束日本合约 专注于韩国事业</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800920.md#1" target="_blank">允浩为违反防疫规定致歉：既惭愧又气自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801901.md#1" target="_blank">李国毅《废财2》变身多金霸总 展多层次演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801759.md#1" target="_blank">侯佩岑携母提黑历史赚钱 蔡诗萍分析为何众怒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12799418.md#1" target="_blank">《饥饿》找女主持人 网友点名意外钓出众女星</a></h4></td></tr>
