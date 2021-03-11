@@ -34,7 +34,18 @@
 众所周知，中共反腐不是真反腐，而是选择性反腐，即以反腐作为权力斗争的工具，打击政敌。那么，习咬住内蒙的腐败问题不放，穷追不舍，到底剑指谁？
 
 近年来，习近平在内.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月09日 8:30 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12798222.md#1" target="_blank">【财经话题】美元悄悄上涨意味着什么？</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12798222.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/08/c1a7799da809e539b1172ba9dc57d3c4-150x120.jpg" align ="left"></a>去年最拥挤的交易是放空美元，美元指数从去年3月的高峰102.99跌到今年1月的低谷89.21，跌幅超过13%，成为去年表现最差的金融资产。据此，年初专家们一面倒地预测美元今年将持续贬值，乐观的估计是贬值5%～10%，悲观者甚至估贬35%。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月09日 8:26 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805365.md#1" target="_blank">李春草：永遇乐 · 红朝空壳</a><br></h3>楼市泡沫，
+幻彩难觅、
+科技轴芯。
+财富热情，
+国力耗于、
+全民炼妖精。
+好大喜功，
+斗争魔性，
+铸就魔孙危境。
+百年劫，
+掏心摘肺，
+只剩粗痞党情。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月12日 3:46 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801601.md#1" target="_blank">金浴凤：宴清都?哭春</a><br></h3>皮影两会唱。
 造末神，
 鼓手咚咚锵锵。
