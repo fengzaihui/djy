@@ -9,8 +9,8 @@
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807011.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120525231487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120438411487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806128.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210312034024100707-320x200.jpg"></a>
+<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120323271487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806529.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120153151487-320x200.jpg"></a>
-<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/01/1601070558462384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
