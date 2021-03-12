@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804382.md#1" target="_blank">《哥吉拉大战金刚》小栗旬首度进军好莱坞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803901.md#1" target="_blank">“叮咚五坚情”推第3季 5成员将前进农村</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803626.md#1" target="_blank">与陈昭荣断了合作 叶全真首次接演偶像剧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806390.md#1" target="_blank">翁立友推新作 舌头因2字歌词打结 录音卡关2天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank">情牵夏克立15年 黄嘉千分享异国婚姻保鲜秘笈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805460.md#1" target="_blank">郭富城紧急捐款 助38岁港星治疗肺癌第四期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805654.md#1" target="_blank">组明星行山队当金牌教练 发哥一句话感时伤怀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804368.md#1" target="_blank">谈许维恩新恋情 KID：大家要给她祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800948.md#1" target="_blank">知英因疫情影响结束日本合约 专注于韩国事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12800306.md#1" target="_blank">志村健染疫离世周年 粉丝筹建等身大铜像纪念</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806390.md#1" target="_blank">翁立友推新作 舌头因2字歌词打结 录音卡关2天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804390.md#1" target="_blank">李宣榕备唱自嘲“金鱼脑”邀师兄曾昱嘉助阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802197.md#1" target="_blank">台湾新人女团培训3年出道 4团员皆学生歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801260.md#1" target="_blank">王心凌曝新曲邀歌迷神游冒险  5月高雄开唱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12798998.md#1" target="_blank">詹雅雯新歌反映人生观 自认感性因此能创作</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/5/n12792373.md#1" target="_blank">周杰伦夫妇富养女儿 豪宅地板撒满绘画颜料</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/5/n12791483.md#1" target="_blank">陈昇证实罹口腔癌 唯一挂念跟妻子的约定</a></h4></td></tr>
