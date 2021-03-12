@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/2/20/n12764402.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484612-320x200.jpg"><br>《回路追杀令》影评：打破时间轮回 才能拯救爱人</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805654.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/03/1903070110461487-320x200.jpg"><br> 组明星行山队当金牌教练 发哥一句话感时伤怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-320x200.jpg"><br> 演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-463588712-320x200.jpg"><br> 本名被视为韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1912010403011487-320x200.jpg"><br> 陈亚兰推歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802687.md#1" target="_blank">刘诗诗晒自拍照庆生 吴奇隆别样秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12800458.md#1" target="_blank">叹“再见了熟悉的陌生人”范冰冰疑喊话李晨</a></h4></td></tr>
