@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804368.md#1" target="_blank">谈许维恩新恋情 KID：大家要给她祝福</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804368.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103110638311487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803626.md#1" target="_blank">与陈昭荣断了合作 叶全真首次接演偶像剧</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803626.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103110043141487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806529.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120153151487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/01/1601070558462384-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805460.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/08/20170816-dongxin-guofucheng-01_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805654.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/03/1903070110461487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804306.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200813040025100707-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804368.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103110638311487-320x200.jpg"></a>
-<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804390.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103110602281487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804382.md#1" target="_blank">《哥吉拉大战金刚》小栗旬首度进军好莱坞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803901.md#1" target="_blank">“叮咚五坚情”推第3季 5成员将前进农村</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803626.md#1" target="_blank">与陈昭荣断了合作 叶全真首次接演偶像剧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806529.md#1" target="_blank">4月受邀屏东音乐节  田馥甄预告想登这座山</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806390.md#1" target="_blank">翁立友推新作 舌头因2字歌词打结 录音卡关2天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank">情牵夏克立15年 黄嘉千分享异国婚姻保鲜秘笈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805460.md#1" target="_blank">郭富城紧急捐款 助38岁港星治疗肺癌第四期</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805654.md#1" target="_blank">组明星行山队当金牌教练 发哥一句话感时伤怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800948.md#1" target="_blank">知英因疫情影响结束日本合约 专注于韩国事业</a></h4></td></tr>
