@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank">情牵夏克立15年 黄嘉千分享异国婚姻保鲜秘笈</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/01/1601070558462384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805460.md#1" target="_blank">郭富城紧急捐款 助38岁港星治疗肺癌第四期</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805460.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/08/20170816-dongxin-guofucheng-01_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120904531487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200515071808100707-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807011.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120525231487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120438411487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806128.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210312034024100707-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120323271487-320x200.jpg"></a>
-<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806529.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120153151487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806128.md#1" target="_blank">Rosé谈Solo作：需要的都在内在 无须向外寻求</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12805846.md#1" target="_blank">SHINee线上演唱会4月开唱 时隔三年专场演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank">曹瑞原执导作《斯卡罗》盼重现台湾关键历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806755.md#1" target="_blank">黄嘉千于子育认识30年 舞台剧首次同台演母女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804995.md#1" target="_blank">《未来妈妈》将迎最终回 角色讨骂周丹薇开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804382.md#1" target="_blank">《哥吉拉大战金刚》小栗旬首度进军好莱坞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803901.md#1" target="_blank">“叮咚五坚情”推第3季 5成员将前进农村</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank">曹瑞原执导作《斯卡罗》盼重现台湾关键历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807011.md#1" target="_blank">潘裕文4月回归舞台 开个唱同时发表新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806833.md#1" target="_blank">Jolin结束3个月年假 4月第7度小巨蛋开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806841.md#1" target="_blank">陪赵小侨引产  刘亮佐坦言自己感性 哭比较惨</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806755.md#1" target="_blank">黄嘉千于子育认识30年 舞台剧首次同台演母女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank">森田刚离社 V6今年将解散：不是6人就不是V6</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
