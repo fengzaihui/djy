@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank">森田刚离社 V6今年将解散：不是6人就不是V6</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/200515071808100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806841.md#1" target="_blank">陪赵小侨引产  刘亮佐坦言自己感性 哭比较惨</a><br></h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806841.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120438411487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/13/n12808791.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210312034024100707-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12808151.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-844128014-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12808054.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807879.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-451535377-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120904531487-320x200.jpg"></a>
 <a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200515071808100707-320x200.jpg"></a>
-<a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807011.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103120525231487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/6/n12793030.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486509-320x200.jpg"><br>《噪反》影评：双重创意设定 成观赏性保证</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802687.md#1" target="_blank">刘诗诗晒自拍照庆生 吴奇隆别样秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12800458.md#1" target="_blank">叹“再见了熟悉的陌生人”范冰冰疑喊话李晨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/7/n12795765.md#1" target="_blank">首次主演剧集遭负评 章子怡直呼像被判死刑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/13/n12808791.md#1" target="_blank">Rosé新作夺台港澳美等51区iTunes歌曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12808151.md#1" target="_blank">买得越多单价越贵 陆女星戚薇惊觉网购被坑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807324.md#1" target="_blank">允浩被指于酒店遭盘查试图逃跑 公司：非事实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806844.md#1" target="_blank">珉奎遭控霸凌 Pledis娱乐逐步调查 态度获赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806128.md#1" target="_blank">Rosé谈Solo作：需要的都在内在 无须向外寻求</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank">曹瑞原执导作《斯卡罗》盼重现台湾关键历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806755.md#1" target="_blank">黄嘉千于子育认识30年 舞台剧首次同台演母女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804995.md#1" target="_blank">《未来妈妈》将迎最终回 角色讨骂周丹薇开心</a></h4></td></tr>
@@ -43,12 +43,11 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800948.md#1" target="_blank">知英因疫情影响结束日本合约 专注于韩国事业</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/13/n12808791.md#1" target="_blank">Rosé新作夺台港澳美等51区iTunes歌曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807011.md#1" target="_blank">潘裕文4月回归舞台 开个唱同时发表新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806390.md#1" target="_blank">翁立友推新作 舌头因2字歌词打结 录音卡关2天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804390.md#1" target="_blank">李宣榕备唱自嘲“金鱼脑”邀师兄曾昱嘉助阵</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802197.md#1" target="_blank">台湾新人女团培训3年出道 4团员皆学生歌手</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/5/n12792743.md#1" target="_blank">汪峰携女儿助阵章子怡 小苹果现身荧屏喊妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801759.md#1" target="_blank">侯佩岑携母提黑历史赚钱 蔡诗萍分析为何众怒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12798034.md#1" target="_blank">吴孟达告别式当天 昔日老搭档罹癌离世</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12797749.md#1" target="_blank">病愈后复出拍戏 69岁洪金宝叹香港无望</a></h4></td></tr>
@@ -57,6 +56,7 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12798378.md#1" target="_blank">刘德华片酬数字曝光 与大陆00后女星持平</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805460.md#1" target="_blank">郭富城紧急捐款 助38岁港星治疗肺癌第四期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/9/n12800458.md#1" target="_blank">叹“再见了熟悉的陌生人”范冰冰疑喊话李晨</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank">情牵夏克立15年 黄嘉千分享异国婚姻保鲜秘笈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12802687.md#1" target="_blank">刘诗诗晒自拍照庆生 吴奇隆别样秀恩爱</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/boyqsg391/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/boyqsg391/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
