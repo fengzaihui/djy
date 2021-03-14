@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank">曹瑞原执导作《斯卡罗》盼重现台湾关键历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806755.md#1" target="_blank">黄嘉千于子育认识30年 舞台剧首次同台演母女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804995.md#1" target="_blank">《未来妈妈》将迎最终回 角色讨骂周丹薇开心</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/14/n12810333.md#1" target="_blank">42岁台湾男星舞台旁猝逝 民众以为“在表演”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/14/n12810014.md#1" target="_blank">吴俊宏补办婚礼面子大 台语歌坛大咖齐聚祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/14/n12809909.md#1" target="_blank">郁方妙喻婚姻像本存折 谢祖武曝“让步”秘招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12808054.md#1" target="_blank">古天乐自曝拍片出意外 右眼受伤眼球缝八针</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807879.md#1" target="_blank">梁朝伟拍戏曾不眠不休 躺长凳吐白沫吓傻众人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank">森田刚离社 V6今年将解散：不是6人就不是V6</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
