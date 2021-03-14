@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank">曹瑞原执导作《斯卡罗》盼重现台湾关键历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806755.md#1" target="_blank">黄嘉千于子育认识30年 舞台剧首次同台演母女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804995.md#1" target="_blank">《未来妈妈》将迎最终回 角色讨骂周丹薇开心</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/14/n12810014.md#1" target="_blank">吴俊宏补办婚礼面子大 台语歌坛大咖齐聚祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/14/n12809909.md#1" target="_blank">郁方妙喻婚姻像本存折 谢祖武曝“让步”秘招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12808054.md#1" target="_blank">古天乐自曝拍片出意外 右眼受伤眼球缝八针</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807879.md#1" target="_blank">梁朝伟拍戏曾不眠不休 躺长凳吐白沫吓傻众人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank">曹瑞原执导作《斯卡罗》盼重现台湾关键历史</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank">森田刚离社 V6今年将解散：不是6人就不是V6</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12803622.md#1" target="_blank">传IZ*ONE宫胁咲良签约Big Hit娱乐 掀粉丝热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12800948.md#1" target="_blank">知英因疫情影响结束日本合约 专注于韩国事业</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/14/n12810014.md#1" target="_blank">吴俊宏补办婚礼面子大 台语歌坛大咖齐聚祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/13/n12808791.md#1" target="_blank">Rosé新作夺台港澳美等51区iTunes歌曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12807011.md#1" target="_blank">潘裕文4月回归舞台 开个唱同时发表新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/12/n12806390.md#1" target="_blank">翁立友推新作 舌头因2字歌词打结 录音卡关2天</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/11/n12804390.md#1" target="_blank">李宣榕备唱自嘲“金鱼脑”邀师兄曾昱嘉助阵</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/10/n12801759.md#1" target="_blank">侯佩岑携母提黑历史赚钱 蔡诗萍分析为何众怒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boyqsg391/djy/blob/master/gb/21/3/8/n12798034.md#1" target="_blank">吴孟达告别式当天 昔日老搭档罹癌离世</a></h4></td></tr>
