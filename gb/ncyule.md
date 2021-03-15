@@ -18,10 +18,10 @@
 <tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/2/27/n12778202.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/485599-320x200.jpg"><br>《100%小狼人》影评：狼人题材也能变得很讨喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/2/22/n12766300.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/484705-320x200.jpg"><br>《明日欧洲争霸战》影评：未来的欧洲 也可能面目皆非</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-320x200.jpg"><br> 演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/2/22/n12768104.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-463588712-320x200.jpg"><br> 本名被视为韩国人名 江疏影发古典诗歌回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/2/21/n12765209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1912010403011487-320x200.jpg"><br> 陈亚兰推歌仔戏《嘉庆君》 龙劭华接演喊传承</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/3/14/n12811023.md#1" target="_blank">患抑郁症身材发福遭酸 马思纯高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mzixql3530/djy/blob/master/gb/21/3/14/n12810818.md#1" target="_blank">杨紫着曳地长裙走红毯 裙?下露出黑色马丁靴</a></h4></td></tr>
