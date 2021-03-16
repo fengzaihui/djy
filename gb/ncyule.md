@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/14/n12810818.md#1" target="_blank">杨紫着曳地长裙走红毯 裙?下露出黑色马丁靴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/12/n12808151.md#1" target="_blank">买得越多单价越贵 陆女星戚薇惊觉网购被坑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/10/n12802687.md#1" target="_blank">刘诗诗晒自拍照庆生 吴奇隆别样秀恩爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814429.md#1" target="_blank">PENTAGON迷你11辑摘音源冠军 出道来首次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814083.md#1" target="_blank">Rosé创韩Solo歌手MV纪录 BLACKPINK粉丝倍增</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812809.md#1" target="_blank">TXT、SEVENTEEN与Stray Kids 日本金唱片获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812632.md#1" target="_blank">Rosé《R》预购破50万张 创韩国女Solo新纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12811591.md#1" target="_blank">BTS登葛莱美演出 SUGA也参与：朝下个目标迈进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814344.md#1" target="_blank">林柏宏新戏苦练钢琴3个月 笑言完成童年遗憾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812955.md#1" target="_blank">奥斯卡公布提名 赵婷入围最佳导演等6奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812166.md#1" target="_blank">新版《正义联盟》蝙蝠侠小丑对决 片长4小时</a></h4></td></tr>
