@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12813109.md#1" target="_blank">刘德华晒被隔离视频 紧皱眉头直呼很想家</a><br></h3><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12813109.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/190318093405100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812955.md#1" target="_blank">奥斯卡公布提名 赵婷入围最佳导演等6奖</a><br></h3><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812955.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-926890056-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1605081008011487-320x200.jpg"></a>
 <a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"></a>
 <a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814596.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103160501102122-320x200.jpg"></a>
 <a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103160322351487-320x200.jpg"></a>
 <a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2101120314391487-320x200.jpg"></a>
 <a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12813556.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
-<a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12813109.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/190318093405100311-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814596.md#1" target="_blank">法比欧头长脂肪瘤开刀 术后现身赞台湾医疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814511.md#1" target="_blank">深夜运动主动脉剥离 凯渥23岁男模猝逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814344.md#1" target="_blank">林柏宏新戏苦练钢琴3个月 笑言完成童年遗憾</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank">佐藤健、神木隆之介、ONE OK ROCK离社独立</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814047.md#1" target="_blank">《东大特训班2》新阵容 平手友梨奈演羽球选手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812809.md#1" target="_blank">TXT、SEVENTEEN与Stray Kids 日本金唱片获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank">森田刚离社 V6今年将解散：不是6人就不是V6</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814600.md#1" target="_blank">打疫苗不忘拉琴 马友友疗愈人心的即兴演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank">刘若英阔别6年新专辑 用11首歌给出新体悟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlcjgi318/djy/blob/master/gb/21/3/15/n12812136.md#1" target="_blank">张信哲新碟发行摘2冠 CD夹附盖瑞巴洛手写信</a></h4></td></tr>
