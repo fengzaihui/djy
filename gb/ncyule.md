@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12811591.md#1" target="_blank">BTS登葛莱美演出 SUGA也参与：朝下个目标迈进</a><br></h3><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12811591.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/210315034653100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12811388.md#1" target="_blank">身兼多职坚持都做好 连静雯：这就是态度</a><br></h3><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12811388.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103142319391487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2101120314391487-320x200.jpg"></a>
 <a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12813556.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
 <a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12813109.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/190318093405100311-320x200.jpg"></a>
 <a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12812955.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-926890056-320x200.jpg"></a>
 <a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12811591.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210315034653100707-320x200.jpg"></a>
 <a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12812136.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103150440581487-320x200.jpg"></a>
-<a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12811755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103142348361487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12812166.md#1" target="_blank">新版《正义联盟》蝙蝠侠小丑对决 片长4小时</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/14/n12809909.md#1" target="_blank">郁方妙喻婚姻像本存折 谢祖武曝“让步”秘招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/12/n12807468.md#1" target="_blank">曹瑞原执导作《斯卡罗》盼重现台湾关键历史</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank">刘若英阔别6年新专辑 用11首歌给出新体悟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12813556.md#1" target="_blank">Bo妞4岁生日扮公主 贾静雯称完成女儿心愿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12813109.md#1" target="_blank">刘德华晒被隔离视频 紧皱眉头直呼很想家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12812256.md#1" target="_blank">纪言恺运动形象吸金 续任服饰品牌代言</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12812179.md#1" target="_blank">林俊逸自曝气喘狂咳 下台急戴氧气筒送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/16/n12814047.md#1" target="_blank">《东大特训班2》新阵容 平手友梨奈演羽球选手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12812809.md#1" target="_blank">TXT、SEVENTEEN与Stray Kids 日本金唱片获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/12/n12807136.md#1" target="_blank">森田刚离社 V6今年将解散：不是6人就不是V6</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/11/n12804680.md#1" target="_blank">松井珠理奈忆韩国选秀 谈IZ*ONE解散：好可惜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank">刘若英阔别6年新专辑 用11首歌给出新体悟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12812136.md#1" target="_blank">张信哲新碟发行摘2冠 CD夹附盖瑞巴洛手写信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/15/n12811755.md#1" target="_blank">谢金燕为4月全中运备唱 演出将结合在地元素</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/14/n12810014.md#1" target="_blank">吴俊宏补办婚礼面子大 台语歌坛大咖齐聚祝贺</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/13/n12808791.md#1" target="_blank">Rosé新作夺台港澳美等51区iTunes歌曲榜冠军</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/10/n12801759.md#1" target="_blank">侯佩岑携母提黑历史赚钱 蔡诗萍分析为何众怒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sieieg340/djy/blob/master/gb/21/3/14/n12810014.md#1" target="_blank">吴俊宏补办婚礼面子大 台语歌坛大咖齐聚祝贺</a></h4></td></tr>
