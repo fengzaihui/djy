@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank">赖雅妍演“破产小猪”王传一挑战另类高富帅</a><br></h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103160858211487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank">佐藤健、神木隆之介、ONE OK ROCK离社独立</a><br></h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/1605081008011487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816741.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170404301487-320x200.jpg"></a>
+<a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816116.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210317024107100707-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816478.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170211271487-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815836.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1062739428-1-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-498135728-1-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815466.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-1178721772-320x200.jpg"></a>
-<a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103160858211487-320x200.jpg"></a>
-<a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814834.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1809290825331487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815466.md#1" target="_blank">陈可辛电影《李娜》更名 胡歌和郝蕾主演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/14/n12811023.md#1" target="_blank">患抑郁症身材发福遭酸 马思纯高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/14/n12810818.md#1" target="_blank">杨紫着曳地长裙走红毯 裙?下露出黑色马丁靴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816706.md#1" target="_blank">抢购专辑网站瘫痪 Super Junior肉麻话献台湾粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816116.md#1" target="_blank">SJ正规十辑20区iTunes夺冠 回归秀逗趣感性忆今昔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814429.md#1" target="_blank">PENTAGON迷你11辑摘音源冠军 出道来首次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814083.md#1" target="_blank">Rosé创韩Solo歌手MV纪录 BLACKPINK粉丝倍增</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812809.md#1" target="_blank">TXT、SEVENTEEN与Stray Kids 日本金唱片获奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812632.md#1" target="_blank">Rosé《R》预购破50万张 创韩国女Solo新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816478.md#1" target="_blank">陈美凤赞闺蜜贴心有默契 接戏前天天约吃大餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank">赖雅妍演“破产小猪”王传一挑战另类高富帅</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814344.md#1" target="_blank">林柏宏新戏苦练钢琴3个月 笑言完成童年遗憾</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815655.md#1" target="_blank">郭富城3岁女儿正脸首曝光 模样获赞超可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank">赖雅妍演“破产小猪”王传一挑战另类高富帅</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank">贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816741.md#1" target="_blank">与桥本环奈合演电影 佐藤大树片头开场先挨打</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814834.md#1" target="_blank">水树奈奈第一个孩子出生 抱孩子感动落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank">佐藤健、神木隆之介、ONE OK ROCK离社独立</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814047.md#1" target="_blank">《东大特训班2》新阵容 平手友梨奈演羽球选手</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812809.md#1" target="_blank">TXT、SEVENTEEN与Stray Kids 日本金唱片获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814600.md#1" target="_blank">打疫苗不忘拉琴 马友友疗愈人心的即兴演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank">刘若英阔别6年新专辑 用11首歌给出新体悟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812136.md#1" target="_blank">张信哲新碟发行摘2冠 CD夹附盖瑞巴洛手写信</a></h4></td></tr>
