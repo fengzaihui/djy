@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank">赖雅妍演“破产小猪”王传一挑战另类高富帅</a><br></h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103160858211487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank">佐藤健、神木隆之介、ONE OK ROCK离社独立</a><br></h3><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/1605081008011487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816478.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170211271487-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815836.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1062739428-1-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-498135728-1-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815466.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-1178721772-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103160858211487-320x200.jpg"></a>
 <a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814834.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1809290825331487-320x200.jpg"></a>
-<a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1605081008011487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814083.md#1" target="_blank">Rosé创韩Solo歌手MV纪录 BLACKPINK粉丝倍增</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812809.md#1" target="_blank">TXT、SEVENTEEN与Stray Kids 日本金唱片获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812632.md#1" target="_blank">Rosé《R》预购破50万张 创韩国女Solo新纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816478.md#1" target="_blank">陈美凤赞闺蜜贴心有默契 接戏前天天约吃大餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank">赖雅妍演“破产小猪”王传一挑战另类高富帅</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814344.md#1" target="_blank">林柏宏新戏苦练钢琴3个月 笑言完成童年遗憾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812955.md#1" target="_blank">奥斯卡公布提名 赵婷入围最佳导演等6奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/15/n12812166.md#1" target="_blank">新版《正义联盟》蝙蝠侠小丑对决 片长4小时</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/17/n12816478.md#1" target="_blank">陈美凤赞闺蜜贴心有默契 接戏前天天约吃大餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12815655.md#1" target="_blank">郭富城3岁女儿正脸首曝光 模样获赞超可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank">赖雅妍演“破产小猪”王传一挑战另类高富帅</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank">贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814596.md#1" target="_blank">法比欧头长脂肪瘤开刀 术后现身赞台湾医疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814834.md#1" target="_blank">水树奈奈第一个孩子出生 抱孩子感动落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank">佐藤健、神木隆之介、ONE OK ROCK离社独立</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ctcgfp309/djy/blob/master/gb/21/3/16/n12814047.md#1" target="_blank">《东大特训班2》新阵容 平手友梨奈演羽球选手</a></h4></td></tr>
