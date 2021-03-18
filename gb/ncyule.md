@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816948.md#1" target="_blank">林依晨克服远距婚姻 3年没新作常“犯戏瘾”</a><br></h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816948.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170411532122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816868.md#1" target="_blank">媒体报导郭雪芙答应求婚 经纪公司声明否认</a><br></h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816868.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/2009151043141470-ss1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819411.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103180451311487-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819152.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103180241101487-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103180025361487-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12818085.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/11/161222084240100311-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816750.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210317043844100707-320x200.jpg"></a>
-<a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12817367.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170914231487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12815836.md#1" target="_blank">邓超错把萝卜当红薯 孙俪徒手干农活超麻利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12815466.md#1" target="_blank">陈可辛电影《李娜》更名 胡歌和郝蕾主演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/14/n12811023.md#1" target="_blank">患抑郁症身材发福遭酸 马思纯高EQ回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818549.md#1" target="_blank">BTS再添纪录 《Dynamite》获RIAA双白金认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816750.md#1" target="_blank">Eric与烔完争执落幕：为守护神话而齐心协力吧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816926.md#1" target="_blank">Rain家庭幸福演艺事业热烈 下一步提携后辈</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816706.md#1" target="_blank">抢购专辑网站瘫痪 Super Junior肉麻话献台湾粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819411.md#1" target="_blank">《饥饿》主持群携眷同台 赵孟姿产后录影饿坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12817367.md#1" target="_blank">方志友加入《女力》 黄靖伦英雄救美惨被揍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816478.md#1" target="_blank">陈美凤赞闺蜜贴心有默契 接戏前天天约吃大餐</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819152.md#1" target="_blank">“不老骑士”环台追梦 卢广仲热血陪骑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12818085.md#1" target="_blank">熊黛林双胞胎女儿 无缘与郭富城大女儿同学</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816741.md#1" target="_blank">与桥本环奈合演电影 佐藤大树片头开场先挨打</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814834.md#1" target="_blank">水树奈奈第一个孩子出生 抱孩子感动落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank">佐藤健、神木隆之介、ONE OK ROCK离社独立</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814047.md#1" target="_blank">《东大特训班2》新阵容 平手友梨奈演羽球选手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814600.md#1" target="_blank">打疫苗不忘拉琴 马友友疗愈人心的即兴演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank">刘若英阔别6年新专辑 用11首歌给出新体悟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/15/n12812136.md#1" target="_blank">张信哲新碟发行摘2冠 CD夹附盖瑞巴洛手写信</a></h4></td></tr>
@@ -51,12 +51,12 @@
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/14/n12810014.md#1" target="_blank">吴俊宏补办婚礼面子大 台语歌坛大咖齐聚祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/11/n12805292.md#1" target="_blank">情牵夏克立15年 黄嘉千分享异国婚姻保鲜秘笈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/11/n12805460.md#1" target="_blank">郭富城紧急捐款 助38岁港星治疗肺癌第四期</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/14/n12811023.md#1" target="_blank">患抑郁症身材发福遭酸 马思纯高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12815655.md#1" target="_blank">郭富城3岁女儿正脸首曝光 模样获赞超可爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/14/n12811023.md#1" target="_blank">患抑郁症身材发福遭酸 马思纯高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/12/n12808151.md#1" target="_blank">买得越多单价越贵 陆女星戚薇惊觉网购被坑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/14/n12810818.md#1" target="_blank">杨紫着曳地长裙走红毯 裙?下露出黑色马丁靴</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/11/n12805654.md#1" target="_blank">组明星行山队当金牌教练 发哥一句话感时伤怀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/14/n12810333.md#1" target="_blank">42岁台湾男星舞台旁猝逝 民众以为“在表演”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/15/n12813109.md#1" target="_blank">刘德华晒被隔离视频 紧皱眉头直呼很想家</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/11/n12805654.md#1" target="_blank">组明星行山队当金牌教练 发哥一句话感时伤怀</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/cxovwc3509/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/cxovwc3509/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cxovwc3509/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/cxovwc3509/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
