@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12815836.md#1" target="_blank">邓超错把萝卜当红薯 孙俪徒手干农活超麻利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12815466.md#1" target="_blank">陈可辛电影《李娜》更名 胡歌和郝蕾主演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/14/n12811023.md#1" target="_blank">患抑郁症身材发福遭酸 马思纯高EQ回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12820110.md#1" target="_blank">姜昇润推正规专辑包揽全曲制作 艺人好友祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818549.md#1" target="_blank">BTS再添纪录 《Dynamite》获RIAA双白金认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816750.md#1" target="_blank">Eric与烔完争执落幕：为守护神话而齐心协力吧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816926.md#1" target="_blank">Rain家庭幸福演艺事业热烈 下一步提携后辈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819652.md#1" target="_blank">身体出状况达半年 莎莎确定请辞《食尚》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819411.md#1" target="_blank">《饥饿》主持群携眷同台 赵孟姿产后录影饿坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12817367.md#1" target="_blank">方志友加入《女力》 黄靖伦英雄救美惨被揍</a></h4></td></tr>
