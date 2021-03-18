@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816948.md#1" target="_blank">林依晨克服远距婚姻 3年没新作常“犯戏瘾”</a><br></h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816948.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170411532122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816868.md#1" target="_blank">媒体报导郭雪芙答应求婚 经纪公司声明否认</a><br></h3><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816868.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/2009151043141470-ss1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819411.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103180451311487-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819152.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103180241101487-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103180025361487-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12818085.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/11/161222084240100311-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816750.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210317043844100707-320x200.jpg"></a>
 <a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12817367.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170914231487-320x200.jpg"></a>
-<a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816948.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170411532122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816750.md#1" target="_blank">Eric与烔完争执落幕：为守护神话而齐心协力吧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816926.md#1" target="_blank">Rain家庭幸福演艺事业热烈 下一步提携后辈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816706.md#1" target="_blank">抢购专辑网站瘫痪 Super Junior肉麻话献台湾粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819411.md#1" target="_blank">《饥饿》主持群携眷同台 赵孟姿产后录影饿坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12817367.md#1" target="_blank">方志友加入《女力》 黄靖伦英雄救美惨被揍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816478.md#1" target="_blank">陈美凤赞闺蜜贴心有默契 接戏前天天约吃大餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814885.md#1" target="_blank">赖雅妍演“破产小猪”王传一挑战另类高富帅</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814344.md#1" target="_blank">林柏宏新戏苦练钢琴3个月 笑言完成童年遗憾</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819411.md#1" target="_blank">《饥饿》主持群携眷同台 赵孟姿产后录影饿坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12819152.md#1" target="_blank">“不老骑士”环台追梦 卢广仲热血陪骑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12818085.md#1" target="_blank">熊黛林双胞胎女儿 无缘与郭富城大女儿同学</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12817367.md#1" target="_blank">方志友加入《女力》 黄靖伦英雄救美惨被揍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/17/n12816741.md#1" target="_blank">与桥本环奈合演电影 佐藤大树片头开场先挨打</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814834.md#1" target="_blank">水树奈奈第一个孩子出生 抱孩子感动落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cxovwc3509/djy/blob/master/gb/21/3/16/n12814731.md#1" target="_blank">佐藤健、神木隆之介、ONE OK ROCK离社独立</a></h4></td></tr>
