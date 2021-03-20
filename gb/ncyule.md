@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/17/n12816741.md#1" target="_blank">与桥本环奈合演电影 佐藤大树片头开场先挨打</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821797.md#1" target="_blank">戴爱玲演唱会主视觉 由“珊比芭”A-Lin掌镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/18/n12820280.md#1" target="_blank">跨越文化藩篱 东南亚移工与台湾乐团同台演唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/16/n12814600.md#1" target="_blank">打疫苗不忘拉琴 马友友疗愈人心的即兴演出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/16/n12814223.md#1" target="_blank">刘若英阔别6年新专辑 用11首歌给出新体悟</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/14/n12810014.md#1" target="_blank">吴俊宏补办婚礼面子大 台语歌坛大咖齐聚祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
