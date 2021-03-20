@@ -10,7 +10,7 @@
 <a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12822618.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1611030734242384-320x200.jpg"></a>
 <a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12822018.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103190518232122-320x200.jpg"></a>
 <a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12821797.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103190400291487-320x200.jpg"></a>
-<a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12821587.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/20210319-yuling-tw-01-320x200.jpg"></a>
+<a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12821518.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/201020070253100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/6/n12793901.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/486565-320x200.jpg"><br>《寻龙使者：拉雅》影评：再度信任他人 才能克服危机</a></h4></td></tr>
