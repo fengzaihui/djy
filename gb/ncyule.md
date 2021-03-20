@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/18/n12820636.md#1" target="_blank">与邓超天天早晚问安 孙俪甜蜜自曝被家人黏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/17/n12817914.md#1" target="_blank">欠债4千万官司再败诉 李亚鹏求饶录音曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/16/n12815836.md#1" target="_blank">邓超错把萝卜当红薯 孙俪徒手干农活超麻利</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821208.md#1" target="_blank">(G)I-DLE穗珍被控霸凌 公司最终宣布对簿公堂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821817.md#1" target="_blank">EXO灿烈演《逐梦练习曲》有成长 对音乐更着迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821518.md#1" target="_blank">Big Hit娱乐宣布改名“HYBE” 房时爀说明原由</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12822322.md#1" target="_blank">美喜剧女星为事业焦虑 扪心自问找回人生价值</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12822618.md#1" target="_blank">李安谈退休时机 叹“这世界越活越搞不清楚”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/18/n12819652.md#1" target="_blank">身体出状况达半年 莎莎确定请辞《食尚》</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12822618.md#1" target="_blank">李安谈退休时机 叹“这世界越活越搞不清楚”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12822018.md#1" target="_blank">萧煌奇减肥冷到发抖又饿 为“鲑鱼”寿司破戒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821797.md#1" target="_blank">戴爱玲演唱会主视觉 由“珊比芭”A-Lin掌镜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/17/n12816741.md#1" target="_blank">与桥本环奈合演电影 佐藤大树片头开场先挨打</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/16/n12814834.md#1" target="_blank">水树奈奈第一个孩子出生 抱孩子感动落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/19/n12821797.md#1" target="_blank">戴爱玲演唱会主视觉 由“珊比芭”A-Lin掌镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/18/n12820280.md#1" target="_blank">跨越文化藩篱 东南亚移工与台湾乐团同台演唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xoroci336/djy/blob/master/gb/21/3/16/n12814600.md#1" target="_blank">打疫苗不忘拉琴 马友友疗愈人心的即兴演出</a></h4></td></tr>
