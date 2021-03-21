@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a><br></h3><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-491953209-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822322.md#1" target="_blank">美喜剧女星为事业焦虑 扪心自问找回人生价值</a><br></h3><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822322.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-1153140098-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12825219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103210258201487-320x200.jpg"></a>
 <a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12825025.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2102221055061470-320x200.jpg"></a>
 <a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12824970.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103202155151487-320x200.jpg"></a>
 <a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822994.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/2009160309582122-320x200.jpg"></a>
 <a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-491953209-320x200.jpg"></a>
 <a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822618.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1611030734242384-320x200.jpg"></a>
-<a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12821208.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200721003342100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12824970.md#1" target="_blank">张信哲新辑拿9冠 新歌搭动画剧集声势创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822322.md#1" target="_blank">美喜剧女星为事业焦虑 扪心自问找回人生价值</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822618.md#1" target="_blank">李安谈退休时机 叹“这世界越活越搞不清楚”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12825219.md#1" target="_blank">李宣榕开唱战胜“金鱼脑” 三岁甥一句话惹爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12825025.md#1" target="_blank">《餐车》回到原点 黄秋生因KID一句话走心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12824970.md#1" target="_blank">张信哲新辑拿9冠 新歌搭动画剧集声势创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12823322.md#1" target="_blank">参演逾200部剧 资深港星患肺癌4期遭亲友离弃</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822994.md#1" target="_blank">徐若瑄46岁生日不庆生 原因曝光感动众人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/17/n12816741.md#1" target="_blank">与桥本环奈合演电影 佐藤大树片头开场先挨打</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/21/n12825219.md#1" target="_blank">李宣榕开唱战胜“金鱼脑” 三岁甥一句话惹爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/19/n12821797.md#1" target="_blank">戴爱玲演唱会主视觉 由“珊比芭”A-Lin掌镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/18/n12820280.md#1" target="_blank">跨越文化藩篱 东南亚移工与台湾乐团同台演唱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/16/n12814600.md#1" target="_blank">打疫苗不忘拉琴 马友友疗愈人心的即兴演出</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/18/n12820891.md#1" target="_blank">黄秋生返港完成隔离 自拍短片《EXIT》表心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eoqoyb3190/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
