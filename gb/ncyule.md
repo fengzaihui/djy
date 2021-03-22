@@ -10,7 +10,6 @@
 <a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12825535.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2012011028061470-320x200.jpg"></a>
 <a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12825219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103210258201487-320x200.jpg"></a>
 <a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12825025.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2102221055061470-320x200.jpg"></a>
-<a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12824970.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103202155151487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
@@ -38,7 +37,6 @@
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12826073.md#1" target="_blank">感佩台湾垃圾分类 杜汶泽：爱一地犹如爱一人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12825535.md#1" target="_blank">Ella回乡扫墓力荐在地美食 “钓出”县长分享吃法</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12825219.md#1" target="_blank">李宣榕开唱战胜“金鱼脑” 三岁甥一句话惹爆笑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12825025.md#1" target="_blank">《餐车》回到原点 黄秋生因KID一句话走心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
@@ -46,7 +44,6 @@
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/21/n12825219.md#1" target="_blank">李宣榕开唱战胜“金鱼脑” 三岁甥一句话惹爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/19/n12821797.md#1" target="_blank">戴爱玲演唱会主视觉 由“珊比芭”A-Lin掌镜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/18/n12820280.md#1" target="_blank">跨越文化藩篱 东南亚移工与台湾乐团同台演唱</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/18/n12820891.md#1" target="_blank">黄秋生返港完成隔离 自拍短片《EXIT》表心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jrrskq3218/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
