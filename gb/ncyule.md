@@ -43,9 +43,9 @@
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/23/n12830642.md#1" target="_blank">棉花糖新歌预告暗藏彩蛋 实力派演员现身其中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/23/n12829765.md#1" target="_blank">荒山亮生涯首唱邀歌后飙歌 打造布袋戏经典秀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827272.md#1" target="_blank">为刘若英单曲跨刀 张孝全林依晨内敛诠释MV</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/21/n12825219.md#1" target="_blank">李宣榕开唱战胜“金鱼脑” 三岁甥一句话惹爆笑</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/18/n12820891.md#1" target="_blank">黄秋生返港完成隔离 自拍短片《EXIT》表心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
