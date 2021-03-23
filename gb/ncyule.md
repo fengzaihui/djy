@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827709.md#1" target="_blank">罗时丰大港开唱：纵使过气，也不要丧气</a><br></h3><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827709.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103220537312122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827069.md#1" target="_blank">从不抽烟 台前主播萧彤雯罹肺腺癌零期</a><br></h3><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827069.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2002170332101487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/23/n12829199.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1804302145451487-320x200.jpg"></a>
 <a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/23/n12828972.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/09/160125070453100615-320x200.jpg"></a>
 <a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1149115921-320x200.jpg"></a>
 <a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12828426.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/170419134104100311-320x200.jpg"></a>
 <a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827709.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103220537312122-320x200.jpg"></a>
 <a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827454.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103220508561487-320x200.jpg"></a>
-<a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103220344161487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/18/n12820636.md#1" target="_blank">与邓超天天早晚问安 孙俪甜蜜自曝被家人黏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/17/n12817914.md#1" target="_blank">欠债4千万官司再败诉 李亚鹏求饶录音曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/23/n12829145.md#1" target="_blank">Rosé告示牌Global榜登顶 韩国Solo歌手新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12822176.md#1" target="_blank">灿烈演电影获赵达焕称赞 导演自曝是EXO粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12821208.md#1" target="_blank">(G)I-DLE穗珍被控霸凌 公司最终宣布对簿公堂</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12821817.md#1" target="_blank">EXO灿烈演《逐梦练习曲》有成长 对音乐更着迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827454.md#1" target="_blank">戏中常被失忆母教训 李国毅曝私下孝顺一面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/21/n12825025.md#1" target="_blank">《餐车》回到原点 黄秋生因KID一句话走心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/21/n12824970.md#1" target="_blank">张信哲新辑拿9冠 新歌搭动画剧集声势创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12822322.md#1" target="_blank">美喜剧女星为事业焦虑 扪心自问找回人生价值</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/23/n12829199.md#1" target="_blank">李亮瑾顺利产子 张峰奇感动报喜“老婆辛苦”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/23/n12828972.md#1" target="_blank">谢霆锋被爆投资失利 近亿港元店租金大跌五成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12828426.md#1" target="_blank">港星廖启智罹患胃癌入院 去年曾与周润发行山</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827709.md#1" target="_blank">罗时丰大港开唱：纵使过气，也不要丧气</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827454.md#1" target="_blank">戏中常被失忆母教训 李国毅曝私下孝顺一面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/22/n12827069.md#1" target="_blank">从不抽烟 台前主播萧彤雯罹肺腺癌零期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/16/n12815655.md#1" target="_blank">郭富城3岁女儿正脸首曝光 模样获赞超可爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/17/n12818085.md#1" target="_blank">熊黛林双胞胎女儿 无缘与郭富城大女儿同学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/21/n12826073.md#1" target="_blank">感佩台湾垃圾分类 杜汶泽：爱一地犹如爱一人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/17/n12818085.md#1" target="_blank">熊黛林双胞胎女儿 无缘与郭富城大女儿同学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/17/n12816948.md#1" target="_blank">林依晨克服远距婚姻 3年没新作常“犯戏瘾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/16/n12815466.md#1" target="_blank">陈可辛电影《李娜》更名 胡歌和郝蕾主演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qblrme335/djy/blob/master/gb/21/3/16/n12815836.md#1" target="_blank">邓超错把萝卜当红薯 孙俪徒手干农活超麻利</a></h4></td></tr>
