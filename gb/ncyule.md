@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12831013.md#1" target="_blank">撞脸狗狗图片被制成课件 李荣浩回应网友笑翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/24/n12831780.md#1" target="_blank">Wendy Solo出道在即 4月5日推出《Like Water》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829595.md#1" target="_blank">NCT DREAM准备4月回归乐坛 Mark将归队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829145.md#1" target="_blank">Rosé告示牌Global榜登顶 韩国Solo歌手新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/19/n12822176.md#1" target="_blank">灿烈演电影获赵达焕称赞 导演自曝是EXO粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12830749.md#1" target="_blank">首次体验“挽脸”李明璁脸部特写怕没形象</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/22/n12827454.md#1" target="_blank">戏中常被失忆母教训 李国毅曝私下孝顺一面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/21/n12825025.md#1" target="_blank">《餐车》回到原点 黄秋生因KID一句话走心</a></h4></td></tr>
