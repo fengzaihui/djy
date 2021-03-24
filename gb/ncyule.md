@@ -10,7 +10,7 @@
 <a href="https://github.com/rlilro332/djy/blob/master/gb/21/3/24/n12832315.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2102210244221487-320x200.jpg"></a>
 <a href="https://github.com/rlilro332/djy/blob/master/gb/21/3/24/n12832224.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103240310381487-320x200.jpg"></a>
 <a href="https://github.com/rlilro332/djy/blob/master/gb/21/3/24/n12832089.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103240204401487-320x200.jpg"></a>
-<a href="https://github.com/rlilro332/djy/blob/master/gb/21/3/23/n12831411.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
+<a href="https://github.com/rlilro332/djy/blob/master/gb/21/3/24/n12831780.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210310041614100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rlilro332/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlilro332/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
