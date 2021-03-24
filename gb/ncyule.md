@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12830004.md#1" target="_blank">立威廉遭爱女踢伤 左眼视网膜剥离术后复原中</a><br></h3><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12830004.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103230527391487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829199.md#1" target="_blank">李亮瑾顺利产子 张峰奇感动报喜“老婆辛苦”</a><br></h3><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829199.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/1804302145451487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/24/n12832089.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103240204401487-320x200.jpg"></a>
 <a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12831411.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
 <a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/12/GettyImages-957419286-320x200.jpg"></a>
 <a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12831013.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/09/1909090301321487-320x200.jpg"></a>
 <a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12830004.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103230527391487-320x200.jpg"></a>
 <a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829765.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103230332061487-320x200.jpg"></a>
-<a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829605.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103230201181487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/13/n12808248.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/487788-320x200.jpg"><br>《今天决定我爱你》影评：4段良缘造就一部好电影</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12831013.md#1" target="_blank">撞脸狗狗图片被制成课件 李荣浩回应网友笑翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/24/n12832089.md#1" target="_blank">《尽孝》养生菜单吸睛 获金惠秀等名人喜爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/24/n12831780.md#1" target="_blank">Wendy Solo出道在即 4月5日推出《Like Water》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829595.md#1" target="_blank">NCT DREAM准备4月回归乐坛 Mark将归队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829145.md#1" target="_blank">Rosé告示牌Global榜登顶 韩国Solo歌手新纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/19/n12822176.md#1" target="_blank">灿烈演电影获赵达焕称赞 导演自曝是EXO粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12830749.md#1" target="_blank">首次体验“挽脸”李明璁脸部特写怕没形象</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/22/n12827454.md#1" target="_blank">戏中常被失忆母教训 李国毅曝私下孝顺一面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/21/n12825025.md#1" target="_blank">《餐车》回到原点 黄秋生因KID一句话走心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/21/n12824970.md#1" target="_blank">张信哲新辑拿9冠 新歌搭动画剧集声势创新高</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/24/n12832089.md#1" target="_blank">《尽孝》养生菜单吸睛 获金惠秀等名人喜爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12831411.md#1" target="_blank">纪念结婚6周年 隋棠分享夫君平凡浪漫事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12830061.md#1" target="_blank">蔡黄汝备战5月个人演唱会 歌单列2百首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829993.md#1" target="_blank">邱泽颠覆形象演台客 示爱逼哭许玮甯</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12830004.md#1" target="_blank">立威廉遭爱女踢伤 左眼视网膜剥离术后复原中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/23/n12829412.md#1" target="_blank">Cocomi录影片问候台湾乐迷 盼笛声助人放松</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/19/n12821019.md#1" target="_blank">TWICE成员Sana与可苦可乐隔空合唱《毕业》</a></h4></td></tr>
@@ -48,8 +48,8 @@
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/22/n12827272.md#1" target="_blank">为刘若英单曲跨刀 张孝全林依晨内敛诠释MV</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/18/n12820891.md#1" target="_blank">黄秋生返港完成隔离 自拍短片《EXIT》表心声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/18/n12818821.md#1" target="_blank">金曲歌后詹雅雯暴瘦8公斤 确诊罹帕金森氏症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/18/n12818723.md#1" target="_blank">宫胁咲良谈IZ*ONE解散哽咽 为关心他人而振作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/22/n12827069.md#1" target="_blank">从不抽烟 台前主播萧彤雯罹肺腺癌零期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/skvmby3766/djy/blob/master/gb/21/3/21/n12826073.md#1" target="_blank">感佩台湾垃圾分类 杜汶泽：爱一地犹如爱一人</a></h4></td></tr>
