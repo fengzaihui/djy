@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/23/n12831013.md#1" target="_blank">撞脸狗狗图片被制成课件 李荣浩回应网友笑翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835626.md#1" target="_blank">EXO灿烈主演韩片 日导是枝裕和观影后称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834425.md#1" target="_blank">宫胁咲良过生日 IZ*ONE成员争先恐后送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834365.md#1" target="_blank">Super Junior《The Renaissance》 Gaon专辑榜摘冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/24/n12831955.md#1" target="_blank">本月少女《Star》连9周入美广播榜 韩女团新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank">李天柱演华剧曝金钱观 因疫情1年多未见女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834654.md#1" target="_blank">丁当365天没回家 见台北租屋处惨况看傻眼</a></h4></td></tr>
