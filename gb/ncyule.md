@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834262.md#1" target="_blank">歌后詹雅雯回应帕金森症状 近照曝光暂缓工作</a><br></h3><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834262.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/b168c1bfaa8bda4e3afb5b3c7a51200b-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/24/n12833687.md#1" target="_blank">志村健染疫过世周年 10亿日元遗产仍无人继承</a><br></h3><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/24/n12833687.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/03/3f8e6730c58ed4277b5adbaaaea846da-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835057.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210325114647100707-320x200.jpg"></a>
 <a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/190129092425100707-320x200.jpg"></a>
 <a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103250540021487-320x200.jpg"></a>
 <a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834425.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210325050614100707-320x200.jpg"></a>
 <a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834880.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103250433591487-320x200.jpg"></a>
 <a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834654.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103250216581487-320x200.jpg"></a>
-<a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834377.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1404141033491487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/23/n12831013.md#1" target="_blank">撞脸狗狗图片被制成课件 李荣浩回应网友笑翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835057.md#1" target="_blank">IU为发行正规五辑捐款1亿 直播透露努力练舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835626.md#1" target="_blank">EXO灿烈主演韩片 日导是枝裕和观影后称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834425.md#1" target="_blank">宫胁咲良过生日 IZ*ONE成员争先恐后送祝福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834365.md#1" target="_blank">Super Junior《The Renaissance》 Gaon专辑榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank">李天柱演华剧曝金钱观 因疫情1年多未见女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opizhb3915/djy/blob/master/gb/21/3/25/n12834654.md#1" target="_blank">丁当365天没回家 见台北租屋处惨况看傻眼</a></h4></td></tr>
