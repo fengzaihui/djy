@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832473.md#1" target="_blank">自招追校花被拒 周兴哲写歌谱早餐情缘</a><br></h3><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832473.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103240922261487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832544.md#1" target="_blank">往返工作隔离多次 张钧甯趁机休养自我充实</a><br></h3><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832544.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/20210324PHO0107l-537x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/25/n12834377.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/1404141033491487-320x200.jpg"></a>
 <a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/25/n12834262.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/b168c1bfaa8bda4e3afb5b3c7a51200b-320x200.jpg"></a>
 <a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12833687.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/03/3f8e6730c58ed4277b5adbaaaea846da-320x200.jpg"></a>
 <a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12833475.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-186162574-320x200.jpg"></a>
 <a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12833107.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103240939001487-320x200.jpg"></a>
 <a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832473.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103240922261487-320x200.jpg"></a>
-<a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832544.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/20210324PHO0107l-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/23/n12831013.md#1" target="_blank">撞脸狗狗图片被制成课件 李荣浩回应网友笑翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/19/n12823173.md#1" target="_blank">质疑镜头遭剪辑沦为陪衬 张靓颖暗讽综艺节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/25/n12834365.md#1" target="_blank">Super Junior《The Renaissance》 Gaon专辑榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12831955.md#1" target="_blank">本月少女《Star》连9周入美广播榜 韩女团新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832089.md#1" target="_blank">《尽孝》养生菜单吸睛 获金惠秀等名人喜爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12831780.md#1" target="_blank">Wendy Solo出道在即 4月5日推出《Like Water》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/23/n12829595.md#1" target="_blank">NCT DREAM准备4月回归乐坛 Mark将归队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12833475.md#1" target="_blank">宝莱坞巨星阿米尔汗确诊染疫 在家自我隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12833107.md#1" target="_blank">法国影后沦为街友 《巴黎星空》演绎忘年友谊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832506.md#1" target="_blank">温翠蘋女儿休学回台拍戏 本色演出外文口音</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/23/n12830749.md#1" target="_blank">首次体验“挽脸”主持人害怕形象全没</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/25/n12834377.md#1" target="_blank">王中平女儿苦读3年 “第一志愿”考上国外名校</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/25/n12834262.md#1" target="_blank">歌后詹雅雯回应帕金森症状 近照曝光暂缓工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12833107.md#1" target="_blank">法国影后沦为街友 《巴黎星空》演绎忘年友谊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832473.md#1" target="_blank">自招追校花被拒 周兴哲写歌谱早餐情缘</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832544.md#1" target="_blank">往返工作隔离多次 张钧甯趁机休养自我充实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/24/n12832313.md#1" target="_blank">东奥圣火传递明天开跑 首棒跑者等名人退出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/23/n12829412.md#1" target="_blank">Cocomi录影片问候台湾乐迷 盼笛声助人放松</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhttpp3765/djy/blob/master/gb/21/3/19/n12822383.md#1" target="_blank">AB6IX田雄翻唱《樱桃》 大塚爱以韩文诉感谢</a></h4></td></tr>
