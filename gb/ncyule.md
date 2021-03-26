@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835219.md#1" target="_blank">顾小孩每晚忙跑三房 隋棠甜曝丈夫贴心举动</a><br></h3><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835219.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/DSC_5519-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank">李天柱演华剧曝金钱观 因疫情1年多未见女儿</a><br></h3><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103250540021487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/26/n12837230.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103260225151487-320x200.jpg"></a>
 <a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1062739428-320x200.jpg"></a>
 <a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/yangmi-songqian-yangying-320x200.jpg"></a>
 <a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12836148.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/duwenze_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835057.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210325114647100707-320x200.jpg"></a>
 <a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835226.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/03-4-320x200.jpg"></a>
-<a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/190129092425100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank">李天柱演华剧曝金钱观 因疫情1年多未见女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12834654.md#1" target="_blank">丁当365天没回家 见台北租屋处惨况看傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/24/n12833475.md#1" target="_blank">宝莱坞巨星阿米尔汗确诊染疫 在家自我隔离</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/26/n12837230.md#1" target="_blank">挺恩师以琴会友 怪兽与7位吉他手齐聚共演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12836148.md#1" target="_blank">讽中共报复式抵制洋货 杜汶泽：我穿Nike我骄傲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835226.md#1" target="_blank">重返八点档演帅气大厨 谢佳见自认工作状态好</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835219.md#1" target="_blank">顾小孩每晚忙跑三房 隋棠甜曝丈夫贴心举动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12834425.md#1" target="_blank">宫胁咲良过生日 IZ*ONE成员争先恐后送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/24/n12832313.md#1" target="_blank">东奥圣火传递明天开跑 首棒跑者等名人退出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/26/n12837230.md#1" target="_blank">挺恩师以琴会友 怪兽与7位吉他手齐聚共演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12835699.md#1" target="_blank">遇疫情因故滞台 魏妙如险炸租屋处</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/25/n12834880.md#1" target="_blank">吴汶芳新歌发行 1张脊椎侧弯X光片先引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/24/n12832315.md#1" target="_blank">许富凯5月底首度“攻蛋” 父母买中药帮温补</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/24/n12832224.md#1" target="_blank">陶晶莹敲定6月“攻蛋” 等待期间不忘自主训练</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rpqeip318/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
