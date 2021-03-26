@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835219.md#1" target="_blank">顾小孩每晚忙跑三房 隋棠甜曝丈夫贴心举动</a><br></h3><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835219.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/DSC_5519-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank">李天柱演华剧曝金钱观 因疫情1年多未见女儿</a><br></h3><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103250540021487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837381.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103260402441487-320x200.jpg"></a>
 <a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837230.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103260225151487-320x200.jpg"></a>
 <a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1062739428-320x200.jpg"></a>
 <a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/yangmi-songqian-yangying-320x200.jpg"></a>
 <a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12836148.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/duwenze_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835057.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210325114647100707-320x200.jpg"></a>
-<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835226.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/03-4-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/23/n12831013.md#1" target="_blank">撞脸狗狗图片被制成课件 李荣浩回应网友笑翻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837078.md#1" target="_blank">《朝鲜驱魔师》歪曲史实惹众怒 播两集就撤档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835057.md#1" target="_blank">IU为发行正规五辑捐款1亿 直播透露努力练舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835626.md#1" target="_blank">EXO灿烈主演韩片 日导是枝裕和观影后称赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank">李天柱演华剧曝金钱观 因疫情1年多未见女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12834654.md#1" target="_blank">丁当365天没回家 见台北租屋处惨况看傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/24/n12833475.md#1" target="_blank">宝莱坞巨星阿米尔汗确诊染疫 在家自我隔离</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837381.md#1" target="_blank">萧煌奇被母亲一场大病吓坏 养成早安报备习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837230.md#1" target="_blank">挺恩师以琴会友 怪兽与7位吉他手齐聚共演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12836148.md#1" target="_blank">讽中共报复式抵制洋货 杜汶泽：我穿Nike我骄傲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835226.md#1" target="_blank">重返八点档演帅气大厨 谢佳见自认工作状态好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12834425.md#1" target="_blank">宫胁咲良过生日 IZ*ONE成员争先恐后送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/24/n12832313.md#1" target="_blank">东奥圣火传递明天开跑 首棒跑者等名人退出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837381.md#1" target="_blank">萧煌奇被母亲一场大病吓坏 养成早安报备习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/26/n12837230.md#1" target="_blank">挺恩师以琴会友 怪兽与7位吉他手齐聚共演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835699.md#1" target="_blank">遇疫情因故滞台 魏妙如险炸租屋处</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12834880.md#1" target="_blank">吴汶芳新歌发行 1张脊椎侧弯X光片先引关注</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/24/n12832315.md#1" target="_blank">许富凯5月底首度“攻蛋” 父母买中药帮温补</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12834262.md#1" target="_blank">歌后詹雅雯回应帕金森症状 近照曝光暂缓工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/21/n12826073.md#1" target="_blank">感佩台湾垃圾分类 杜汶泽：爱一地犹如爱一人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12834654.md#1" target="_blank">丁当365天没回家 见台北租屋处惨况看傻眼</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/23/n12828972.md#1" target="_blank">谢霆锋被爆投资失利 近亿港元店租金大跌五成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/23/n12828972.md#1" target="_blank">谢霆锋被爆投资失利 近亿港元店租金大跌五成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/21/3/23/n12829199.md#1" target="_blank">李亮瑾顺利产子 张峰奇感动报喜“老婆辛苦”</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dxjmcj3993/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/dxjmcj3993/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
