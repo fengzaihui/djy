@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/25/n12835045.md#1" target="_blank">李天柱演华剧曝金钱观 因疫情1年多未见女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/25/n12834654.md#1" target="_blank">丁当365天没回家 见台北租屋处惨况看傻眼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/26/n12837549.md#1" target="_blank">台影视听杰出者颁奖感人 世代影人相聚重传承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/26/n12838646.md#1" target="_blank">节目中文字接龙卡关 米可白回家查儿童字典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/26/n12838444.md#1" target="_blank">王宗尧与敏感品牌不割席 身着adidas服饰上庭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/26/n12837937.md#1" target="_blank">《饥饿》女主持人征选“8抢2” 展开人气票选</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/26/n12837460.md#1" target="_blank">影视听杰出工作者 陈淑芳莫子仪再度同台获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mawdda388/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
