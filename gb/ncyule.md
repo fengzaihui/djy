@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837549.md#1" target="_blank">台影视听杰出者颁奖感人 世代影人相聚重传承</a><br></h3><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837549.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103260624192378-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12838646.md#1" target="_blank">节目中文字接龙卡关 米可白回家查儿童字典</a><br></h3><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12838646.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/2005150959441487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840879.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840893-2103280447301487-320x200.jpg"></a>
 <a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840772-2103280326161487-320x200.jpg"></a>
 <a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840637.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840665-2103280027261487-320x200.jpg"></a>
 <a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840534.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840555-2103272307511487-320x200.jpg"></a>
 <a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840469-2103272222081487-320x200.jpg"></a>
 <a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12838646.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/2005150959441487-320x200.jpg"></a>
-<a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12838444.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/wang-zongyao-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837937.md#1" target="_blank">《饥饿》女主持人征选“8抢2” 展开人气票选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840879.md#1" target="_blank">林俊杰生日发布全英文EP 将揭神秘女声身份</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840637.md#1" target="_blank">携新作踩场“五月天” 刘若英：我来陪老朋友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837549.md#1" target="_blank">台影视听杰出者颁奖感人 世代影人相聚重传承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/25/n12834425.md#1" target="_blank">宫胁咲良过生日 IZ*ONE成员争先恐后送祝福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840879.md#1" target="_blank">林俊杰生日发布全英文EP 将揭神秘女声身份</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/28/n12840637.md#1" target="_blank">携新作踩场“五月天” 刘若英：我来陪老朋友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837381.md#1" target="_blank">萧煌奇被母亲一场大病吓坏 养成早安报备习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/26/n12837230.md#1" target="_blank">挺恩师以琴会友 怪兽与7位吉他手齐聚共演</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/25/n12835699.md#1" target="_blank">魏妙如险炸租屋处 因故滞台谢房东</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/22/n12828661.md#1" target="_blank">演少女被嘲体形太壮 刘涛霸气回应也帮了杨幂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrxhzc369/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
