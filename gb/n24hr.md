@@ -462,11 +462,6 @@ EDD指出，加州即将实施一项新的联邦失业金项目，除了现有�
 <tr><td width="742"><h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/27/n12839022.md#1" target="_blank">疫情下 打造家中菜园已蔚然成风</a><br></h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/27/n12839022.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/03/526f5164d66edba51c5452e2d62e6b27-150x120.jpeg" align ="left"></a>疫情下，为了减少出门买菜以及和人群接触的次数，出现了越来越多的后院菜园和阳台菜园，种菜从未显得如此必要而又重要。不仅如此，就连园艺中心的销售额都因此而大幅增加。
 
 位于素里的West Coast Gardens 营销顾问Grant Higginson说：“这可能是我们迄今为止，生意最好的一年。疫情期间人们有更长的时.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月27日 10:39 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/26/n12837152.md#1" target="_blank">圣地亚哥现巴西变种病毒 或已社区传播</a><br></h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/26/n12837152.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/03/shutterstock_1634945863-600x400-150x120.jpg" align ="left"></a>加州圣地亚哥县民健部近日说，圣地亚哥县目前检测出两例巴西变种病毒，该病毒可能已经在社区传播。
-
-其中一患者是一位40岁左右的女性，没有旅行历史，因此县卫生官员预计，该变种病毒已在社区传播。另一例是一位男子，有外国旅游史，但不住在圣地亚哥。这两名患者都没有注射疫苗。他们康复很快，也没有住院。
-
-县卫生官员Eric.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月27日 10:10 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/29/n12842784.md#1" target="_blank">山东废弃砖窑窑口坍塌 致3人死亡</a><br></h3>近期，山东省蒙阴县一废弃砖窑窑口坍塌，3名被困者抢救无效均死亡。事故发生两天后官方才通报。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月29日 5:32 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/29/n12842891.md#1" target="_blank">北京殡葬业乱象：大肆售冥币 黑车接运遗体</a><br></h3>大陆殡葬业乱象存在已久。清明前夕，北京媒体调查发现，扫墓上坟祭祀用品“冥币纸钱豪华套装”等违禁品仍然成为热销款，一些平台还提供外卖服务。遗体运送业务同样混乱——部分殡葬服务公司声称可以用社会车辆接运遗体，其中暗藏不少猫儿腻。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月29日 5:30 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/29/n12842951.md#1" target="_blank">高市14处早疗服务点 六都第一进驻原民区</a><br></h3>儿童节将至，高雄市长陈其迈29日至社会局儿童福利中心致赠摇铃等礼物，与慢飞天使亲切互动。他表示，市府会站在与父母相同立场，全力打造友善育儿环境，一起呵护陪伴孩童健康快乐成长。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月29日 5:12 PM			</td></tr>
@@ -692,7 +687,4 @@ KIRCHHOFF的工厂面积按计划将超过10万平方英尺，主要生产项目
 申请人可为多名死者提出申请。如果多人帮助支付一人的丧葬费用，应该以联合申请的方式提交一份申请。援助金额每场葬礼最高为9千，每份申请最高为3.55万美元。
 
 申请丧葬援助需符合的条件.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月27日 10:51 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/iiholu351/djy/blob/master/gb/21/3/27/n12838998.md#1" target="_blank">3月26日：新增908宗确诊  3人死亡</a><br></h3>3月26日（周五），卑诗省首席卫生官邦妮?亨利 (Bonnie Henry) 医生公布本省疫情的最新情况，在过去的24小时内，省内录得908宗新增确诊个案。新增3宗死亡个案，死亡总数为1,449人。
-
-目前有294名住院患者，当中81人在深切治疗部，本省目前有5,856宗现存个案，另有9,996人因确认接触过已知个.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年03月27日 10:04 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/iiholu351/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/iiholu351/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/iiholu351/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/iiholu351/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
