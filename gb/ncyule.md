@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a><br></h3><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840772-2103280326161487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840534.md#1" target="_blank">韩国名编剧金银淑新戏开播 男主角撞脸孔刘</a><br></h3><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840534.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840555-2103272307511487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842431.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210319065457100707-320x200.jpg"></a>
 <a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842222.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12842318-2103282353201487-320x200.jpg"></a>
 <a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842127.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12842155-2103282257451487-320x200.jpg"></a>
 <a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-78333895-320x200.jpg"></a>
 <a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12841453.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2014/11/141119080205100311-320x200.jpg"></a>
 <a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840879.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840893-2103280447301487-320x200.jpg"></a>
-<a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12840772-2103280326161487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank">邓超早起冒雨剪小葱 孙俪连报数道葱料理</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842431.md#1" target="_blank">EXO灿烈今日入伍 晒“敬秀手表”暂别粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842398.md#1" target="_blank">IU音乐节目打歌落幕：下次会想很多ending pose</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840534.md#1" target="_blank">韩国名编剧金银淑新戏开播 男主角撞脸孔刘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/26/n12838281.md#1" target="_blank">伯贤入伍前仍努力不懈：为了让粉丝感到骄傲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/26/n12837655.md#1" target="_blank">MAMAMOO辉人 准备于4月推出个人专辑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/26/n12837937.md#1" target="_blank">《饥饿》女主持人征选“8抢2” 展开人气票选</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/25/n12835467.md#1" target="_blank">台综《国光》改版推新阵容 李玖哲加入主持群</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842222.md#1" target="_blank">萧敬腾砸千万庆生陪粉丝玩 唱歌还附上伴手礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/29/n12842127.md#1" target="_blank">黄明志返乡自首报平安 曝新作首次露发入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12841453.md#1" target="_blank">香港金牌绿叶廖启智罹癌离世 享年66岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/28/n12840879.md#1" target="_blank">林俊杰生日发布全英文EP 将揭神秘女声身份</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/orzrrh3824/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
