@@ -5,11 +5,12 @@
 <tr><td><h3><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/28/n12841936.md#1" target="_blank">52年来首次不播奥斯卡 港TVB被指跟进央视</a><br></h3><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/28/n12841936.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/12/51d33b187781afff534e1f19df5037c9-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/29/n12842815.md#1" target="_blank">世正以《I&#8217;m》诉心声：休息是为了让步伐轻盈</a><br></h3><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/29/n12842815.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/200603064015100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12846198-2103300914411487-320x200.jpg"></a>
 <a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845623.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845823-210330065428100707-320x200.jpg"></a>
-<a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845660.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845966-2103300449342122-320x200.jpg"></a>
 <a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845543.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845992-1812292333421487-320x200.jpg"></a>
 <a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845379.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845473-2103300325061487-320x200.jpg"></a>
 <a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845076.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845201-180611033412100707-320x200.jpg"></a>
+<a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200127023009100670-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -30,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845274.md#1" target="_blank">Wendy与瑟琪咏唱友谊 合作《Best Friend》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845076.md#1" target="_blank">MAMAMOO华莎完成续约 辉人与公司商议中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank">姜昇润讲述多样化故事 《PAGE》19区iTunes登顶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845803.md#1" target="_blank">林千钰和焦恩俊结婚7年 感情陷僵局</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845623.md#1" target="_blank">台湾粉丝热情买版权 BTS纪实电影将在台上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845660.md#1" target="_blank">从林柏宏背上摔下受伤 69岁比莉：以为少根肋骨</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845567.md#1" target="_blank">Selina鼓励烧伤病友：努力不放弃会有成果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
