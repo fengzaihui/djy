@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank">邓超早起冒雨剪小葱 孙俪连报数道葱料理</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845623.md#1" target="_blank">台湾粉丝热情买版权 BTS纪实电影将在台上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845274.md#1" target="_blank">Wendy与瑟琪咏唱友谊 合作《Best Friend》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845076.md#1" target="_blank">MAMAMOO华莎完成续约 辉人与公司商议中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank">姜昇润讲述多样化故事 《PAGE》19区iTunes登顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/29/n12842815.md#1" target="_blank">世正以《I&#8217;m》诉心声：休息是为了让步伐轻盈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845623.md#1" target="_blank">台湾粉丝热情买版权 BTS纪实电影将在台上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845660.md#1" target="_blank">从林柏宏背上摔下受伤 69岁比莉：以为少根肋骨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845567.md#1" target="_blank">Selina鼓励烧伤病友：努力不放弃会有成果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845543.md#1" target="_blank">王力宏防疫充实自我 健身体脂狂降仅10%</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/30/n12845666.md#1" target="_blank">大元开刀切除扁桃腺 疼痛指数直逼生小孩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tedesu344/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
