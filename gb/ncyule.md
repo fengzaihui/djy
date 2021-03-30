@@ -27,14 +27,15 @@
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank">邓超早起冒雨剪小葱 孙俪连报数道葱料理</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/30/n12845076.md#1" target="_blank">MAMAMOO华莎完成续约 辉人与公司商议中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank">姜昇润讲述多样化故事 《PAGE》19区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842815.md#1" target="_blank">世正以《I&#8217;m》诉心声：休息是为了让步伐轻盈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842431.md#1" target="_blank">EXO灿烈今日入伍 晒“敬秀手表”暂别粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842398.md#1" target="_blank">IU音乐节目打歌落幕：下次会想很多ending pose</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/26/n12837937.md#1" target="_blank">《饥饿》女主持人征选“8抢2” 展开人气票选</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12844152.md#1" target="_blank">三个月6位港星离世 廖启智抗癌细节曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12841936.md#1" target="_blank">52年来首次不播奥斯卡 港TVB被指跟进央视</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842982.md#1" target="_blank">四大影城携手 伯乐影业成立开发9部国片IP</a></h4></td></tr>
