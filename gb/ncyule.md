@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842398.md#1" target="_blank">IU音乐节目打歌落幕：下次会想很多ending pose</a><br></h3><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842398.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/id12842429-180914045429100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a><br></h3><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-78333895-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200127023009100670-320x200.jpg"></a>
 <a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12844152.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/170419134104100311-320x200.jpg"></a>
 <a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12841936.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/12/51d33b187781afff534e1f19df5037c9-320x200.jpg"></a>
 <a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842815.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200603064015100707-320x200.jpg"></a>
 <a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842982.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12843073-2103290430452122-320x200.jpg"></a>
 <a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842959.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12842989-2103290512361487-320x200.jpg"></a>
-<a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842431.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/210319065457100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/20/n12823452.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/488934-320x200.jpg"><br>《查克史奈德之正义联盟》影评：DC的史诗巨作！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank">邓超早起冒雨剪小葱 孙俪连报数道葱料理</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/23/n12831214.md#1" target="_blank">范冰冰公开健身视频 真实身材媲美教练</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank">姜昇润讲述多样化故事 《PAGE》19区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842815.md#1" target="_blank">世正以《I&#8217;m》诉心声：休息是为了让步伐轻盈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842431.md#1" target="_blank">EXO灿烈今日入伍 晒“敬秀手表”暂别粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842398.md#1" target="_blank">IU音乐节目打歌落幕：下次会想很多ending pose</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12840534.md#1" target="_blank">韩国名编剧金银淑新戏开播 男主角撞脸孔刘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sdufvk3297/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
