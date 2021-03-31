@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank">邓超早起冒雨剪小葱 孙俪连报数道葱料理</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/31/n12847501.md#1" target="_blank">SHINee上月才回归 4月发行改版专辑《Atlantis》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/31/n12847465.md#1" target="_blank">发文支持一个中国遭嘘 RBW：职员个人行为</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/30/n12845623.md#1" target="_blank">台湾粉丝热情买版权 BTS纪实电影将在台上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/30/n12845274.md#1" target="_blank">Wendy与瑟琪咏唱友谊 合作《Best Friend》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/30/n12845076.md#1" target="_blank">MAMAMOO华莎完成续约 辉人与公司商议中</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank">姜昇润讲述多样化故事 《PAGE》19区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ktmneo330/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
