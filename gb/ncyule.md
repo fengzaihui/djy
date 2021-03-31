@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12849309.md#1" target="_blank">台“谜路人”主唱离奇死亡 3天前参加大港开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12848599.md#1" target="_blank">哥哥拼《全明星》 周兴哲率师妹备餐车应援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12848135.md#1" target="_blank">攻蛋前彩排 曲目多到许富凯直呼虚脱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12848153.md#1" target="_blank">连俞涵坦言社交障碍 公益导览拓展互动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847989.md#1" target="_blank">演唱蔡健雅作品 黄伟晋“瘫软在地”拍视觉照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/25/n12834425.md#1" target="_blank">宫胁咲良过生日 IZ*ONE成员争先恐后送祝福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12849309.md#1" target="_blank">台“谜路人”主唱离奇死亡 3天前参加大港开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847989.md#1" target="_blank">演唱蔡健雅作品 黄伟晋“瘫软在地”拍视觉照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847807.md#1" target="_blank">陈威全发起偏乡创作营计划 罗文裕许书豪助阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/29/n12842959.md#1" target="_blank">安婕希爱发呆成主打歌 揪粉丝一起幸福放空</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/29/n12842222.md#1" target="_blank">萧敬腾砸千万庆生陪粉丝玩 唱歌还附上伴手礼</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/24/n12833687.md#1" target="_blank">志村健染疫过世周年 10亿日元遗产仍无人继承</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/25/n12836148.md#1" target="_blank">讽中共报复式抵制洋货 杜汶泽：我穿Nike我骄傲</a></h4></td></tr>
