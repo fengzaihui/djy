@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845660.md#1" target="_blank">从林柏宏背上摔下受伤 69岁比莉：以为少根肋骨</a><br></h3><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845660.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845966-2103300449342122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845567.md#1" target="_blank">Selina鼓励烧伤病友：努力不放弃会有成果</a><br></h3><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845567.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845698-7463e69dbaefbbd573d06eb220185e15-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12848244.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12848263-2103310528501487-320x200.jpg"></a>
 <a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847807.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12847897-2103310223501487-320x200.jpg"></a>
 <a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12846198-2103300914411487-320x200.jpg"></a>
 <a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845543.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845992-1812292333421487-320x200.jpg"></a>
 <a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845379.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845473-2103300325061487-320x200.jpg"></a>
 <a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845076.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12845201-180611033412100707-320x200.jpg"></a>
-<a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12844659.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/200127023009100670-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank">邓超早起冒雨剪小葱 孙俪连报数道葱料理</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/25/n12835927.md#1" target="_blank">H&#038;M事件发酵 近50位明星表态引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12848244.md#1" target="_blank">《练习曲》在韩首周新片票房称冠 下月登台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847737.md#1" target="_blank">伯贤《Bambi》首日热销76万张 56国iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847501.md#1" target="_blank">SHINee上月才回归 4月发行改版专辑《Atlantis》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847465.md#1" target="_blank">发文支持一个中国遭嘘 RBW：职员个人行为</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845623.md#1" target="_blank">台湾粉丝热情买版权 BTS纪实电影将在台上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/28/n12840769.md#1" target="_blank">《台湾奇案》新版开镜 孟飞22年后再次接演</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12848153.md#1" target="_blank">连俞涵坦言社交障碍 公益导览拓展互动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847989.md#1" target="_blank">演唱蔡健雅作品 黄伟晋“瘫软在地”拍视觉照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/31/n12847807.md#1" target="_blank">陈威全发起偏乡创作营计划 罗文裕许书豪助阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/30/n12845803.md#1" target="_blank">林千钰和焦恩俊结婚7年 感情陷僵局</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hkevhj3818/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
