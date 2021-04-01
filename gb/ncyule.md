@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a><br></h3><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/06/sunli-_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848294.md#1" target="_blank">BTS有望刷新韩国歌手HOT 100榜最长在榜纪录</a><br></h3><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848294.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/200831003838100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851871-2104010838441487-320x200.jpg"></a>
 <a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851186.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851294-2104010457341487-320x200.jpg"></a>
 <a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12850502.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12850913-1901161051211470-320x200.jpg"></a>
 <a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848709.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12848711-1711281001071487-320x200.jpg"></a>
 <a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12848644-2103310831261487-320x200.jpg"></a>
 <a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848244.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12848263-2103310528501487-320x200.jpg"></a>
-<a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12847807.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12847897-2103310223501487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12850406.md#1" target="_blank">BTS入围全英音乐奖国际团体奖 韩国歌手创举</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848709.md#1" target="_blank">前gugudan娜英、Soyee、Mimi 宣布离开Jellyfish</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848082.md#1" target="_blank">金世正迷你二辑《I’m》 瑞士等4国iTunes夺冠</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank">莎莎惊现“鬼剃头” 郭彦均一度误为头顶开刀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12848599.md#1" target="_blank">哥哥拼《全明星》 周兴哲率师妹备餐车应援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/29/n12842774.md#1" target="_blank">《全明星2》本周赛事大逆转 王家梁再获MVP</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851186.md#1" target="_blank">刘若英当电台限定DJ 黄子佼赠匾额挥毫力挺</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12850837.md#1" target="_blank">青峰遭恩师提告求偿 二审智财法院判胜诉免赔</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12850335.md#1" target="_blank">称呼“蕾妈”6年 宥胜公开妻本名支持她做自己</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12849309.md#1" target="_blank">台“谜路人”主唱离奇身亡 3天前参加大港开唱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851603.md#1" target="_blank">焦恩俊与林千钰结束6年婚姻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank">莎莎惊现“鬼剃头” 郭彦均一度误为头顶开刀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851597.md#1" target="_blank">为人父后 王传一接戏谨慎“背后是一个家庭”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/4/1/n12851612.md#1" target="_blank">3宝“屋顶快掀掉” 隋棠不敢“一打三”旅游</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/25/n12834974.md#1" target="_blank">宫胁咲良诉：IZ*ONE真的很棒 毕生都是好伙伴</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/30/n12846587.md#1" target="_blank">遭小粉红翻旧账轰辱华 IU照穿Adidas波鞋录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/28/n12841453.md#1" target="_blank">香港金牌绿叶廖启智罹癌离世 享年66岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/26/n12836480.md#1" target="_blank">邓超早起冒雨剪小葱 孙俪连报数道葱料理</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyawwr377/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/lyawwr377/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/lyawwr377/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lyawwr377/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/lyawwr377/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
