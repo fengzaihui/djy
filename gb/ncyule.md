@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/4/1/n12850406.md#1" target="_blank">BTS入围全英音乐奖国际团体奖 韩国歌手创举</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848709.md#1" target="_blank">前gugudan娜英、Soyee、Mimi 宣布离开Jellyfish</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848082.md#1" target="_blank">金世正迷你二辑《I’m》 瑞士等4国iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848294.md#1" target="_blank">BTS有望刷新韩国歌手HOT 100榜最长在榜纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848244.md#1" target="_blank">《练习曲》在韩首周新片票房称冠 下月登台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848599.md#1" target="_blank">哥哥拼《全明星》 周兴哲率师妹备餐车应援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
