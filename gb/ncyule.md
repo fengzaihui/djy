@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a><br></h3><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/06/sunli-_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848294.md#1" target="_blank">BTS有望刷新韩国歌手HOT 100榜最长在榜纪录</a><br></h3><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848294.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/200831003838100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ftlslr391/djy/blob/master/gb/21/4/1/n12850502.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12850913-1901161051211470-320x200.jpg"></a>
 <a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848709.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12848711-1711281001071487-320x200.jpg"></a>
 <a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12848644-2103310831261487-320x200.jpg"></a>
 <a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848244.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12848263-2103310528501487-320x200.jpg"></a>
 <a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12847807.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12847897-2103310223501487-320x200.jpg"></a>
 <a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12847501.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2102230211171487-320x200.jpg"></a>
-<a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/id12846198-2103300914411487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/4/1/n12850502.md#1" target="_blank">昌珉将独自主持《Kingdom》 发表会中谈心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/4/1/n12850406.md#1" target="_blank">BTS入围全英音乐奖国际团体奖 韩国歌手创举</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848709.md#1" target="_blank">前gugudan娜英、Soyee、Mimi 宣布离开Jellyfish</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848082.md#1" target="_blank">金世正迷你二辑《I’m》 瑞士等4国iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848294.md#1" target="_blank">BTS有望刷新韩国歌手HOT 100榜最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/31/n12848599.md#1" target="_blank">哥哥拼《全明星》 周兴哲率师妹备餐车应援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftlslr391/djy/blob/master/gb/21/3/30/n12845285.md#1" target="_blank">邱泽、许玮甯新片首映 承诺破8000万请吃粉蒸肉</a></h4></td></tr>
