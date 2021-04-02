@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a><br></h3><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/10/DSC_2471-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12852500.md#1" target="_blank">贪警题材踩雷区？梁朝伟郭富城新片取消放映</a><br></h3><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12852500.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12852557-guo-fucheng-liang-chaowei-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853980.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854330-210402083147100707-320x200.jpg"></a>
 <a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854213-201020070301100707-320x200.jpg"></a>
 <a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12853876-2104020442451487-320x200.jpg"></a>
 <a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12853596-2104020229371487-320x200.jpg"></a>
 <a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12851142.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851699-210401080632100707-320x200.jpg"></a>
 <a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851871-2104010838441487-320x200.jpg"></a>
-<a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12851186.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851294-2104010457341487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853980.md#1" target="_blank">EXO伯贤将于生日入伍 以其他形式陪伴粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank">HYBE并购美国知名企业 BTS与小贾斯汀成同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853387.md#1" target="_blank">IU谈过去称很幸运 与刘在锡的共通点是感激</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
