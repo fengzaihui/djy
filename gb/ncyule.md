@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853387.md#1" target="_blank">IU谈过去称很幸运 与刘在锡的共通点是感激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12851142.md#1" target="_blank">Apink初珑遭昔日友人诬陷威胁 公司已提告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12850502.md#1" target="_blank">昌珉将独自主持《Kingdom》 发表会中谈心声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12850406.md#1" target="_blank">BTS入围全英音乐奖国际团体奖 韩国歌手创举</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjdlwc348/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
