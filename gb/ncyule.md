@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12851142.md#1" target="_blank">Apink初珑遭昔日友人诬陷威胁 公司已提告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12850502.md#1" target="_blank">昌珉将独自主持《Kingdom》 发表会中谈心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12850406.md#1" target="_blank">BTS入围全英音乐奖国际团体奖 韩国歌手创举</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank">莎莎惊现“鬼剃头” 郭彦均一度误为头顶开刀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/31/n12848599.md#1" target="_blank">哥哥拼《全明星》 周兴哲率师妹备餐车应援</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/30/n12846132.md#1" target="_blank">曾昱嘉情歌搭台剧插曲 苦练吉他自弹自唱入镜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/2/n12853579.md#1" target="_blank">“屏东三大日”卡司加码 戴爱玲将返乡演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12852500.md#1" target="_blank">贪警题材踩雷区？梁朝伟郭富城新片取消放映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12851612.md#1" target="_blank">3宝“屋顶快掀掉” 隋棠不敢“一打三”旅游</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/1/n12851603.md#1" target="_blank">焦恩俊与林千钰结束6年婚姻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
@@ -49,9 +49,9 @@
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/31/n12849309.md#1" target="_blank">台“谜路人”主唱离奇身亡 3天前参加大港开唱</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/29/n12844152.md#1" target="_blank">三个月6位港星离世 廖启智抗癌细节曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldbjnk371/djy/blob/master/gb/21/3/30/n12846587.md#1" target="_blank">遭小粉红翻旧账轰辱华 IU照穿Adidas波鞋录影</a></h4></td></tr>
