@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank">HYBE并购美国知名企业 BTS与小贾斯汀成同门</a><br></h3><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854213-201020070301100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank">险上台铁出轨列车 宋逸民等艺人为伤亡者祷告</a><br></h3><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854037-1504190545152122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856324-200526020823100707-320x200.jpg"></a>
 <a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854414-2104020927381487-320x200.jpg"></a>
 <a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853980.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854330-210402083147100707-320x200.jpg"></a>
 <a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854213-201020070301100707-320x200.jpg"></a>
 <a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12853876-2104020442451487-320x200.jpg"></a>
 <a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12853596-2104020229371487-320x200.jpg"></a>
-<a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/1/n12851142.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851699-210401080632100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank">伯贤患甲状腺机能低下未曾公开：怕粉丝担心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853980.md#1" target="_blank">EXO伯贤将于生日入伍 以其他形式陪伴粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank">HYBE并购美国知名企业 BTS与小贾斯汀成同门</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
