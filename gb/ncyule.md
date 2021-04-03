@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853980.md#1" target="_blank">EXO伯贤将于生日入伍 以其他形式陪伴粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank">HYBE并购美国知名企业 BTS与小贾斯汀成同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853387.md#1" target="_blank">IU谈过去称很幸运 与刘在锡的共通点是感激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank">张庭瑚首开个唱 师兄李国毅现身合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank">险上台铁出轨列车 宋逸民等艺人为伤亡者祷告</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/26/n12837026.md#1" target="_blank">BTS新歌与back number合作 6月发行日文精选辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank">张庭瑚首开个唱 师兄李国毅现身合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12853579.md#1" target="_blank">“屏东三大日”卡司加码 戴爱玲将返乡演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/1/n12851186.md#1" target="_blank">刘若英当电台限定DJ 黄子佼赠匾额挥毫力挺</a></h4></td></tr>
@@ -50,13 +50,13 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/29/n12844152.md#1" target="_blank">三个月6位港星离世 廖启智抗癌细节曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/30/n12846587.md#1" target="_blank">遭小粉红翻旧账轰辱华 IU照穿Adidas波鞋录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/30/n12846587.md#1" target="_blank">遭小粉红翻旧账轰辱华 IU照穿Adidas波鞋录影</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/28/n12841453.md#1" target="_blank">香港金牌绿叶廖启智罹癌离世 享年66岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppcvqe332/djy/blob/master/gb/21/3/28/n12840451.md#1" target="_blank">宋柏纬胞姊现身餐车 黄秋生夸气质：全台最美</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ppcvqe332/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/ppcvqe332/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ppcvqe332/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/ppcvqe332/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
