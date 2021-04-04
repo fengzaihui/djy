@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854931.md#1" target="_blank">台铁脱轨事故死伤惨重 网红馆长宣布捐款250万</a><br></h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854931.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/08/zhihanchen-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a><br></h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/11/1911050731132478-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857178-2104040143171487-320x200.jpg"></a>
 <a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856964-2104032253331487-320x200.jpg"></a>
 <a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856324-200526020823100707-320x200.jpg"></a>
 <a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12855943-210326012046100707-320x200.jpg"></a>
 <a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854414-2104020927381487-320x200.jpg"></a>
 <a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12853980.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854330-210402083147100707-320x200.jpg"></a>
-<a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854075.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854213-201020070301100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank">莎莎惊现“鬼剃头” 郭彦均一度误为头顶开刀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854931.md#1" target="_blank">台铁脱轨事故死伤惨重 网红馆长宣布捐款250万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank">张庭瑚首开个唱 师兄李国毅现身合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank">张庭瑚首开个唱 师兄李国毅现身合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12853579.md#1" target="_blank">“屏东三大日”卡司加码 戴爱玲将返乡演出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12851186.md#1" target="_blank">刘若英当电台限定DJ 黄子佼赠匾额挥毫力挺</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
