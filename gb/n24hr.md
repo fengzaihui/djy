@@ -556,18 +556,7 @@ Royal LePage的《 2021年春季休闲娱乐区价格预测》预测，包括坎
 <tr><td width="742"><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12852528.md#1" target="_blank">抵制潮退烧 澳洲华裔女又成中共五毛标靶</a><br></h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12852528.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12852573-c965e65d4c7d2ade1747e7361f940a2e-150x120.jpg" align ="left"></a>曾因直播中共在海外煽动留学生抗议香港而惹怒中共的澳籍华裔女子许秀中（Vicky Xiuzhong Xu），近日又成了中共五毛在抵制西方品牌退烧后的另一个攻击目标，原因是她去年参与撰写了澳洲智库的新疆维吾尔人被强迫劳动报告——《待售的维吾尔人》。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月02日 5:32 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12852308.md#1" target="_blank">墨西哥夫妇独出心裁揭婴儿性别 酿两死</a><br></h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12852308.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12852334-GettyImages-517831180-150x120.jpg" align ="left"></a>周二（3月30日）下午，一架小飞机在加勒比海附近一个蓝色潟湖上空划出一道弧线，接着低空掠过一艘游船。然后，向天空喷出一朵粉红色的云，马上引来船上一家人的鼓掌回应。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月02日 5:32 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12851710.md#1" target="_blank">【名家专栏】美国共产党向中共效忠</a><br></h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12851710.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851711-GettyImages-1230698352_web-700x420-150x120.jpg" align ="left"></a>现在是1930年代的重演。美国共产党现在对中国共产党，就像当年对斯大林和强大的苏联共产党（CPSU）一样，充满奴性的崇敬。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月02日 5:16 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12857078.md#1" target="_blank">圣市好区</a><br></h3>
-
-2房1浴公寓，地板、炉头、冰箱、暖气、车位、包水、垃圾。
-
-844 Carillo Dr., $1700
-
-626-417-9449......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月04日 12:39 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12857074.md#1" target="_blank">N, El Monte公寓</a><br></h3>
-
-三独立屋及二公寓为2U4房，2U3房，2U2房，1U1房。地大17000呎，室内6300呎，公寓年收入$114000，11停车位三车库，近超市、交通购物便，售$1780000，勿失良机。
-
-金先生626-298-1267......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月04日 12:31 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12851757.md#1" target="_blank">组图：世界杯欧洲预赛 北马其顿2:1击败德国</a><br></h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/1/n12851757.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12851761-GettyImages-1232044687-150x120.jpg" align ="left"></a>3月31日，世界杯预选赛欧洲区J组第三轮于德国杜伊斯堡（Duisburg）的MSV竞技场（Schauinsland-Reisen-Arena）举行。北马其顿队以2:1击败德国队。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月02日 4:31 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/chxaej3386/djy/blob/master/gb/21/4/4/n12856874.md#1" target="_blank">未上市屋出售</a><br></h3>
 
 位于Ontario，近Costco及大购物商埸，面对学校绿地，闹中取静，在Princeton街，3房2浴+1房1浴，室内2400呎，地大7500呎，售63万八仟。
