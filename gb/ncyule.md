@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a><br></h3><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/12/ma-sichun-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12854931.md#1" target="_blank">台铁脱轨事故死伤惨重 网红馆长宣布捐款250万</a><br></h3><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12854931.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/08/zhihanchen-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857321-2103180025331487-320x200.jpg"></a>
 <a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12857263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857273-2104040335591487-320x200.jpg"></a>
 <a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857178-2104040143171487-320x200.jpg"></a>
 <a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856964-2104032253331487-320x200.jpg"></a>
 <a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856324-200526020823100707-320x200.jpg"></a>
 <a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12855943-210326012046100707-320x200.jpg"></a>
-<a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12854414-2104020927381487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank">莎莎惊现“鬼剃头” 郭彦均一度误为头顶开刀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank">心系台铁事故 詹雅雯拖病体捐百万盼尽点心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12857263.md#1" target="_blank">闻台铁事故 阿妹揪心落泪 林志玲贴文集气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12854931.md#1" target="_blank">台铁脱轨事故死伤惨重 网红馆长宣布捐款250万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/3/29/n12844152.md#1" target="_blank">三个月6位港星离世 廖启智抗癌细节曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/3/28/n12841758.md#1" target="_blank">“战狼”吴京用iPhone发文 遭网民嘲讽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rlangk376/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank">险上台铁出轨列车 宋逸民等艺人为伤亡者祷告</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rlangk376/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/rlangk376/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rlangk376/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/rlangk376/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
