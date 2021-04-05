@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank">莎莎惊现“鬼剃头” 郭彦均一度误为头顶开刀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857991.md#1" target="_blank">杨丞琳比赛选唱广东歌 咬字清晰获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857795.md#1" target="_blank">梁朝伟漫威角色造型曝光 更名或因片方自我审查</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank">心系台铁事故 詹雅雯拖病体捐百万盼尽点心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank">张庭瑚首开个唱 师兄李国毅现身合唱</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
