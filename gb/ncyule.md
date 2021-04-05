@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857795.md#1" target="_blank">梁朝伟漫威角色造型曝光 更名或因片方自我审查</a><br></h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-451535377-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a><br></h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856964-2104032253331487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12859218.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859613-210330035756100707-320x200.jpg"></a>
 <a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859285-2104050824531487-320x200.jpg"></a>
 <a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859002-2104050446521487-320x200.jpg"></a>
 <a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858554-210404234348100707-320x200.jpg"></a>
 <a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858510-2104042318091487-320x200.jpg"></a>
 <a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857321-2103180025331487-320x200.jpg"></a>
-<a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857273-2104040335591487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12859218.md#1" target="_blank">Wendy盼以歌声传递感动与慰藉 感谢瑟琪送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank">尹汝贞以《梦想之地》摘SAG Awards最佳女配角</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank">伯贤患甲状腺机能低下未曾公开：怕粉丝担心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank">《怪物奇兵》续集释预告 詹姆斯登球场秀演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
