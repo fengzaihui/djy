@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a><br></h3><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856964-2104032253331487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank">伯贤患甲状腺机能低下未曾公开：怕粉丝担心</a><br></h3><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856324-200526020823100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858510-2104042318091487-320x200.jpg"></a>
 <a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857321-2103180025331487-320x200.jpg"></a>
 <a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857273-2104040335591487-320x200.jpg"></a>
 <a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857178-2104040143171487-320x200.jpg"></a>
 <a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856964-2104032253331487-320x200.jpg"></a>
 <a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12856324-200526020823100707-320x200.jpg"></a>
-<a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12855943-210326012046100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/1/n12851753.md#1" target="_blank">莎莎惊现“鬼剃头” 郭彦均一度误为头顶开刀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857991.md#1" target="_blank">杨丞琳比赛选唱广东歌 咬字清晰获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857795.md#1" target="_blank">梁朝伟漫威角色造型曝光 更名或因片方自我审查</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank">心系台铁事故 詹雅雯拖病体捐百万盼尽点心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857263.md#1" target="_blank">闻台铁事故 阿妹揪心落泪 林志玲贴文集气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/3/26/n12837505.md#1" target="_blank">矢吹奈子与TWICE志效合照 被称“成功的粉丝”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12854382.md#1" target="_blank">张庭瑚首开个唱 师兄李国毅现身合唱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12853579.md#1" target="_blank">“屏东三大日”卡司加码 戴爱玲将返乡演出</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zduhmt320/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
