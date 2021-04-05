@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank">尹汝贞以《梦想之地》摘SAG Awards最佳女配角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/3/n12856323.md#1" target="_blank">伯贤患甲状腺机能低下未曾公开：怕粉丝担心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857991.md#1" target="_blank">杨丞琳比赛选唱广东歌 咬字清晰获网友大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/2/n12853292.md#1" target="_blank">TREASURE正式于日本出道 连日夺公信榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
