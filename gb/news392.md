@@ -2,7 +2,7 @@
 <tr><td width="742"><h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857839.md#1" target="_blank">杨威：三星堆新发现 冲击进化论无神论</a><br></h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857839.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857846-GettyImages-53222236-320x200.jpg" align ="left"></a>近段时间，位于四川的三星堆文化遗址新出土了更多文物后，再度引发人们的关注。三星堆先后发现的各种奇特文物，令以往的神话故事变得更真实，令人们重新审视人类的历史进程。
 
 三星堆的新奇现象，又一次印证了人类对世界的认知还很有限，某些既有的理论或观念，实际一直在障碍着人们更好地了解真理、真相。突破原有观念，对世界的认知才更.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月05日 11:53 AM	</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857812.md#1" target="_blank">王友群：中共四面出击的背后原因是什么？</a><br></h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857812.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857816-000_96B6UZ-600x400-150x120.jpeg" align ="left"></a>最近，中共“战狼外交”成为国际舆论关注的焦点。
+<tr><td width="742"><h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857812.md#1" target="_blank">王友群：中共四面出击的背后原因是什么？</a><br></h3><a href="https://github.com/jphbhx358/djy/blob/master/gb/21/4/4/n12857812.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859082-Untitled-collage-1-1-600x400@1200x1200-150x120.jpeg" align ="left"></a>最近，中共“战狼外交”成为国际舆论关注的焦点。
 
 3月18日，中共政治局委员、外事办主任杨洁篪，在美国阿拉斯加的发言，将中共“战狼外交”，提升至中共最高外交官层级。自此，中共战狼外交官开启新一轮全球骂战。今天骂美国，明天骂法国，后天骂加拿大……。这背后的原因到底是什么？
 
