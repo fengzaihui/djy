@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a><br></h3><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858995-200603063419100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank">尹汝贞以《梦想之地》摘SAG Awards最佳女配角</a><br></h3><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858554-210404234348100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861264-2104060551281487-320x200.jpg"></a>
 <a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861027-2104060343511487-320x200.jpg"></a>
 <a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860589-200515071808100707-320x200.jpg"></a>
 <a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859218.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860936-210406024815100707-320x200.jpg"></a>
 <a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859285-2104050824531487-320x200.jpg"></a>
 <a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859002-2104050446521487-320x200.jpg"></a>
-<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858554-210404234348100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank">Wendy出道作30国iTunes摘冠 韩Solo女歌手新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859218.md#1" target="_blank">Wendy盼以歌声传递感动与慰藉 感谢瑟琪送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank">刘冠廷摘“双金”仍对表演焦虑 回植剧场充电</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank">《怪物奇兵》续集释预告 詹姆斯登球场秀演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861217.md#1" target="_blank">胡宇威为戏濳水 自曝曾翻船险溺毙</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank">刘冠廷摘“双金”仍对表演焦虑 回植剧场充电</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank">梁静茹6月赴高雄开唱 最新MV明上架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860605.md#1" target="_blank">林志玲捐400万台币 协助台铁受灾者所需</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859816.md#1" target="_blank">港星林芊妤自曝痛失第二胎 流产前曾接种疫苗</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank">《怪物奇兵》续集释预告 詹姆斯登球场秀演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/3/31/n12849753.md#1" target="_blank">42岁薛佳凝自认单身 胡歌曾叹最对不起她</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/1/n12852411.md#1" target="_blank">吴尊晒与7岁儿温馨合照 网友直呼基因太强大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank">心系台铁事故 詹雅雯拖病体捐百万盼尽点心</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/4/n12857795.md#1" target="_blank">梁朝伟漫威角色造型曝光 更名或因片方自我审查</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank">险上台铁出轨列车 宋逸民等艺人为伤亡者祷告</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/oxhkzy3698/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
