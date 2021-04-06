@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861339.md#1" target="_blank">伯贤《Bambi》刷新韩国Solo歌手首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank">Wendy出道作30国iTunes摘冠 韩Solo女歌手新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861798.md#1" target="_blank">《全明星运动会》红蓝联军 收视创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank">刘冠廷摘“双金”仍对表演焦虑 回植剧场充电</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank">《怪物奇兵》续集释预告 詹姆斯登球场秀演技</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861217.md#1" target="_blank">胡宇威为戏濳水 自曝曾翻船险溺毙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank">刘冠廷摘“双金”仍对表演焦虑 回植剧场充电</a></h4></td></tr>
@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank">梁静茹6月赴高雄开唱 最新MV明上架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
