@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861339.md#1" target="_blank">伯贤《Bambi》刷新韩国Solo歌手首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank">Wendy出道作30国iTunes摘冠 韩Solo女歌手新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859218.md#1" target="_blank">Wendy盼以歌声传递感动与慰藉 感谢瑟琪送暖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank">刘冠廷摘“双金”仍对表演焦虑 回植剧场充电</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank">《怪物奇兵》续集释预告 詹姆斯登球场秀演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oxhkzy3698/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
