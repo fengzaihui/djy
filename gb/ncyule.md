@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank">尹汝贞以《梦想之地》摘SAG Awards最佳女配角</a><br></h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858554-210404234348100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12857991.md#1" target="_blank">杨丞琳比赛选唱广东歌 咬字清晰获网友大赞</a><br></h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12857991.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/2008250645501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860589-200515071808100707-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859218.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859613-210330035756100707-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859285-2104050824531487-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859002-2104050446521487-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858554-210404234348100707-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858510-2104042318091487-320x200.jpg"></a>
-<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12857321-2103180025331487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank">《怪物奇兵》续集释预告 詹姆斯登球场秀演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/3/n12855933.md#1" target="_blank">BTS《Film out》创佳绩 97区iTunes歌曲榜摘冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/2/n12854026.md#1" target="_blank">有吉弘行与夏目三久结婚：一起踏实地走下去</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
