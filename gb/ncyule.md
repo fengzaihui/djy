@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a><br></h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858995-200603063419100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank">尹汝贞以《梦想之地》摘SAG Awards最佳女配角</a><br></h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858554-210404234348100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861027-2104060343511487-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860589-200515071808100707-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859218.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860936-210406024815100707-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859285-2104050824531487-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12859002-2104050446521487-320x200.jpg"></a>
 <a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858354.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858554-210404234348100707-320x200.jpg"></a>
-<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12858510-2104042318091487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/2/n12853848.md#1" target="_blank">受封《全明星2》女状元 晏柔中IG粉丝飙涨一倍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/2/n12853681.md#1" target="_blank">《饥饿》全新气象 蔡黄汝、峮峮确定入主</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank">梁静茹6月赴高雄开唱 最新MV明上架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860605.md#1" target="_blank">林志玲捐400万台币 协助台铁受灾者所需</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859816.md#1" target="_blank">港星林芊妤自曝痛失第二胎 流产前曾接种疫苗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859224.md#1" target="_blank">《怪物奇兵》续集释预告 詹姆斯登球场秀演技</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858957.md#1" target="_blank">拍摄纪录片《绿色牢笼》 黄胤毓获国际瞩目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank">梁静茹6月赴高雄开唱 最新MV明上架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858745.md#1" target="_blank">被“苏打绿”阿福相中 《超偶》冠军组团出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/5/n12858504.md#1" target="_blank">棉花糖成团10周年开唱 预告将推新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12857166.md#1" target="_blank">“民歌46”巡回起跑 8组歌手放话：再唱40年</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12856946.md#1" target="_blank">台列车出轨悲剧 萧煌奇感性献唱：愿天佑台湾</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/3/31/n12849375.md#1" target="_blank">孙俪肩靠墙面贴墙蹲 14秒健身影片惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/3/30/n12846924.md#1" target="_blank">吴奇隆接夫妻档真人秀？刘诗诗曾曝抗拒原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank">心系台铁事故 詹雅雯拖病体捐百万盼尽点心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank">险上台铁出轨列车 宋逸民等艺人为伤亡者祷告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/4/n12857795.md#1" target="_blank">梁朝伟漫威角色造型曝光 更名或因片方自我审查</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank">险上台铁出轨列车 宋逸民等艺人为伤亡者祷告</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bzyxrj3959/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/bzyxrj3959/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
