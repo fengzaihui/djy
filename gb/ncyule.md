@@ -10,7 +10,7 @@
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863640-2104070422071487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863516-2104070339031487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863381-2104070232031487-320x200.jpg"></a>
-<a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861813-210315034653100707-320x200.jpg"></a>
+<a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863236.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863237-210407012913100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
