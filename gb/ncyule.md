@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861959.md#1" target="_blank">SEVENTEEN珉奎校园争议告终 将重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank">BTS刷新韩歌手于告示牌Hot 100榜最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861339.md#1" target="_blank">伯贤《Bambi》刷新韩国Solo歌手首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank">Wendy出道作30国iTunes摘冠 韩Solo女歌手新纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12862265.md#1" target="_blank">“奇异博士”自曝曾染怪病 拍戏呕吐险丧命</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12862148.md#1" target="_blank">华人导演第一人 李安获英国奥斯卡终身成就奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861798.md#1" target="_blank">《全明星运动会》红蓝联军 收视创新高</a></h4></td></tr>
