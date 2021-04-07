@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a><br></h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861934-JAS3620-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank">Wendy出道作30国iTunes摘冠 韩Solo女歌手新纪录</a><br></h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861099-210406043042100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863671-210407044528100707-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863640-2104070422071487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863516-2104070339031487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863381-2104070232031487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861813-210315034653100707-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861574-2104060833331487-320x200.jpg"></a>
-<a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861217.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861774-2104060342192122-ss1-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank">RBW大规模收购 WM娱乐仍维持既有经营体制</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863504.md#1" target="_blank">海彬宣布离开Jellyfish娱乐 gugudan解散后第四人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861959.md#1" target="_blank">SEVENTEEN珉奎校园争议告终 将重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank">BTS刷新韩歌手于告示牌Hot 100榜最长在榜纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861339.md#1" target="_blank">伯贤《Bambi》刷新韩国Solo歌手首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank">蔡嘉茵客语剧演篮球教练 鼓励女性活出自信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank">《桥牌社2》首映集资未达标 将另觅场地举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank">拍影片怕冷场 刘若英找玛莎伴游台南</a></h4></td></tr>
