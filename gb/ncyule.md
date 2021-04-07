@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank">Wendy出道作30国iTunes摘冠 韩Solo女歌手新纪录</a><br></h3><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861099-210406043042100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860605.md#1" target="_blank">林志玲捐400万台币 协助台铁受灾者所需</a><br></h3><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860605.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860723-2104060054041487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863516-2104070339031487-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863381-2104070232031487-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861813-210315034653100707-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861574-2104060833331487-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861217.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861774-2104060342192122-ss1-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861264-2104060551281487-320x200.jpg"></a>
-<a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861027-2104060343511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863504.md#1" target="_blank">海彬宣布离开Jellyfish娱乐 gugudan解散后第四人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861959.md#1" target="_blank">SEVENTEEN珉奎校园争议告终 将重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank">BTS刷新韩歌手于告示牌Hot 100榜最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861339.md#1" target="_blank">伯贤《Bambi》刷新韩国Solo歌手首周销量纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861097.md#1" target="_blank">Wendy出道作30国iTunes摘冠 韩Solo女歌手新纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank">《桥牌社2》首映集资未达标 将另觅场地举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank">拍影片怕冷场 刘若英找玛莎伴游台南</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12862265.md#1" target="_blank">“奇异博士”自曝曾染怪病 拍戏呕吐险丧命</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12862148.md#1" target="_blank">华人导演第一人 李安获英国奥斯卡终身成就奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861798.md#1" target="_blank">《全明星运动会》红蓝联军 收视创新高</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank">《桥牌社2》首映集资未达标 将另觅场地举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank">拍影片怕冷场 刘若英找玛莎伴游台南</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12862621.md#1" target="_blank">当爸后被吐槽身材发福 吴奇隆瘦身近照曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12862148.md#1" target="_blank">华人导演第一人 李安获英国奥斯卡终身成就奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863236.md#1" target="_blank">KAT-TUN出道15年 龟梨：三人一起编织未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
