@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12862148.md#1" target="_blank">华人导演第一人 李安获英国奥斯卡终身成就奖</a><br></h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12862148.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/10/1910210736142384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a><br></h3><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861934-JAS3620-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863754.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863827-2104070545261487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863671-210407044528100707-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863640-2104070422071487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863516-2104070339031487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863381-2104070232031487-320x200.jpg"></a>
 <a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861813-210315034653100707-320x200.jpg"></a>
-<a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861574-2104060833331487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank">《桥牌社2》首映集资未达标 将另觅场地举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank">拍影片怕冷场 刘若英找玛莎伴游台南</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12862265.md#1" target="_blank">“奇异博士”自曝曾染怪病 拍戏呕吐险丧命</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863754.md#1" target="_blank">峮峮工作满档 用餐后倒头就睡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863744.md#1" target="_blank">S.H.E将满20周年 田馥甄谈庆祝：每一天都很重要</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank">蔡嘉茵客语剧演篮球教练 鼓励女性活出自信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank">《桥牌社2》首映集资未达标 将另觅场地举办</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank">拍影片怕冷场 刘若英找玛莎伴游台南</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863236.md#1" target="_blank">KAT-TUN出道15年 龟梨：三人一起编织未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
