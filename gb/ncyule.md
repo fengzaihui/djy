@@ -7,10 +7,10 @@
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861813-210315034653100707-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861574-2104060833331487-320x200.jpg"></a>
+<a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861217.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861774-2104060342192122-ss1-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861264-2104060551281487-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12861027-2104060343511487-320x200.jpg"></a>
 <a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860665-190411065311100707-320x200.jpg"></a>
-<a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12860589-200515071808100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
