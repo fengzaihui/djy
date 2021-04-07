@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12862148.md#1" target="_blank">华人导演第一人 李安获英国奥斯卡终身成就奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861217.md#1" target="_blank">胡宇威为戏濳水 自曝曾翻船险溺毙</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/7/n12863236.md#1" target="_blank">KAT-TUN出道15年 龟梨：三人一起编织未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/5/n12858622.md#1" target="_blank">世正有望演韩版《重版出来》 与仁诚演音乐剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cagjze345/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank">梁静茹6月赴高雄开唱 最新MV明上架</a></h4></td></tr>
