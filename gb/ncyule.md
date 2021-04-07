@@ -27,22 +27,22 @@
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/2/n12855093.md#1" target="_blank">靠小姨蒋雯丽拿奖？马思纯幽默回应乐翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/2/n12852864.md#1" target="_blank">高圆圆零滤镜露鱼尾纹 真实模样获网友大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank">RBW大规模收购 WM娱乐仍维持既有经营体制</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863504.md#1" target="_blank">海彬宣布离开Jellyfish娱乐 gugudan解散后第四人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861959.md#1" target="_blank">SEVENTEEN珉奎校园争议告终 将重启演艺活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861722.md#1" target="_blank">BTS刷新韩歌手于告示牌Hot 100榜最长在榜纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12864049.md#1" target="_blank">迪士尼配音师马克艾略特离世 享寿81岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank">蔡嘉茵客语剧演篮球教练 鼓励女性活出自信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank">《桥牌社2》首映集资未达标 将另觅场地举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank">拍影片怕冷场 刘若英找玛莎伴游台南</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12862265.md#1" target="_blank">“奇异博士”自曝曾染怪病 拍戏呕吐险丧命</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12864049.md#1" target="_blank">迪士尼配音师马克艾略特离世 享寿81岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863754.md#1" target="_blank">峮峮工作满档 用餐后倒头就睡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863744.md#1" target="_blank">S.H.E将满20周年 田馥甄谈庆祝：每一天都很重要</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank">蔡嘉茵客语剧演篮球教练 鼓励女性活出自信</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank">《桥牌社2》首映集资未达标 将另觅场地举办</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/7/n12863236.md#1" target="_blank">KAT-TUN出道15年 龟梨：三人一起编织未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12860495.md#1" target="_blank">冈本圭人离开Hey! Say! JUMP 朝演员事业发展</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/5/n12859003.md#1" target="_blank">BTS《Film out》连三日摘公信榜数位单曲榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdzfji373/djy/blob/master/gb/21/4/6/n12860978.md#1" target="_blank">梁静茹6月赴高雄开唱 最新MV明上架</a></h4></td></tr>
