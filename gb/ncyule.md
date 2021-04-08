@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866614.md#1" target="_blank">“婆婆”钟欣凌再当妹妹 24年来4度演同角色</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank">林芯仪直播开唱经典 称童年阴影被惠妮疗愈</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank">吉卜力音乐会将访台 演绎宫崎骏历年动漫主题曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863236.md#1" target="_blank">KAT-TUN出道15年 龟梨：三人一起编织未来</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/6/n12860591.md#1" target="_blank">金在中纪录片即将上映 日文单曲公信榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank">林芯仪直播开唱经典 称童年阴影被惠妮疗愈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
