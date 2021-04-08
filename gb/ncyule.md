@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863744.md#1" target="_blank">S.H.E将满20周年 田馥甄谈庆祝：每一天都很重要</a><br></h3><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863744.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863837-2104070545281487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank">RBW大规模收购 WM娱乐仍维持既有经营体制</a><br></h3><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863671-210407044528100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12865655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12865786-1903060155181487-320x200.jpg"></a>
 <a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12865840-2101061154251470-320x200.jpg"></a>
 <a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863754.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863827-2104070545261487-320x200.jpg"></a>
 <a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863640-2104070422071487-320x200.jpg"></a>
 <a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863502.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863516-2104070339031487-320x200.jpg"></a>
 <a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863381-2104070232031487-320x200.jpg"></a>
-<a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863236.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12863237-210407012913100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/3/25/n12833980.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/489890-320x200.jpeg"><br>《哥吉拉大战金刚》影评：顶尖对决 造就一场视觉盛宴</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12865129.md#1" target="_blank">会否拍中国童年经历电影？赵婷：还要几年时间</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/5/n12860262.md#1" target="_blank">冯小刚已放弃治疗白癜风 面部苍白近照曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12865655.md#1" target="_blank">EXO迎出道9周年 六成员惊喜公开新专辑预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank">RBW大规模收购 WM娱乐仍维持既有经营体制</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863504.md#1" target="_blank">海彬宣布离开Jellyfish娱乐 gugudan解散后第四人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/6/n12861959.md#1" target="_blank">SEVENTEEN珉奎校园争议告终 将重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank">雨天开车送孩上学 吴尊获7岁儿贴心嘱3事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12864049.md#1" target="_blank">迪士尼配音师马克艾略特离世 享寿81岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863600.md#1" target="_blank">蔡嘉茵客语剧演篮球教练 鼓励女性活出自信</a></h4></td></tr>
