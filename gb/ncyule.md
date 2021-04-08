@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12865129.md#1" target="_blank">会否拍中国童年经历电影？赵婷：还要几年时间</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/5/n12860262.md#1" target="_blank">冯小刚已放弃治疗白癜风 面部苍白近照曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866892.md#1" target="_blank">前进签五年合约 与神话李玟雨及申彗星同公司</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866051.md#1" target="_blank">姜丹尼尔谈绰号引笑声 坦言曾讨厌当结尾精灵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12865655.md#1" target="_blank">EXO迎出道9周年 六成员惊喜公开新专辑预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12863668.md#1" target="_blank">RBW大规模收购 WM娱乐仍维持既有经营体制</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/8/n12866154.md#1" target="_blank">苏晏霈庆生豪饮燕窝 预告今年可能闪婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sjycbn3117/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank">雨天开车送孩上学 吴尊获7岁儿贴心嘱3事项</a></h4></td></tr>
