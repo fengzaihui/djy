@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866154.md#1" target="_blank">苏晏霈庆生豪饮燕窝 预告今年可能闪婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank">雨天开车送孩上学 吴尊获7岁儿贴心嘱3事项</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869179.md#1" target="_blank">台资深媒体人陈雅琳 将任华视新闻台长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869113.md#1" target="_blank">《哥吉拉大战金刚》票房开红盘 小孤女角色吃重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12868781.md#1" target="_blank">林依晨写长文“我不卑微 他也不渣”反击传闻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866598.md#1" target="_blank">执著感情最难戒 Lara梁心颐：要勇敢放手</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866614.md#1" target="_blank">“婆婆”钟欣凌再当妹妹 24年来4度演同角色</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank">吉卜力音乐会将访台 演绎宫崎骏历年动漫主题曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
