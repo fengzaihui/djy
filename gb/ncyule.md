@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a><br></h3><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/04/200411043712100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866598.md#1" target="_blank">执著感情最难戒 Lara梁心颐：要勇敢放手</a><br></h3><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866598.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866620-2104080438442122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/9/n12868890.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12868916-2104090304231487-320x200.jpg"></a>
 <a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866614.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866625-2104080440592122-320x200.jpg"></a>
 <a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866574-2104080531171487-320x200.jpg"></a>
 <a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866484-2104080447391487-320x200.jpg"></a>
 <a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866051.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866275-181211024732100707-320x200.jpg"></a>
 <a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866154.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866177-2104080212391487-320x200.jpg"></a>
-<a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12865840-2101061154251470-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank">自曝遭刘嘉玲删微信好友 杨颖解释缘由引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12865432.md#1" target="_blank">赵又廷片场探班高圆圆 两人手拉手聊天超甜蜜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/9/n12868890.md#1" target="_blank">韩实境综艺《海路先遣队》10日在台首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866892.md#1" target="_blank">前进签五年合约 与神话李玟雨及申彗星同公司</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866051.md#1" target="_blank">姜丹尼尔谈绰号引笑声 坦言曾讨厌当结尾精灵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866154.md#1" target="_blank">苏晏霈庆生豪饮燕窝 预告今年可能闪婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank">雨天开车送孩上学 吴尊获7岁儿贴心嘱3事项</a></h4></td></tr>
