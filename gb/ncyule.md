@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank">自曝遭刘嘉玲删微信好友 杨颖解释缘由引热议</a><br></h3><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12867834-yingliu-jialing-yang-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a><br></h3><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/04/200411043712100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12869476-2104090801371487-320x200.jpg"></a>
 <a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12868890.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12868916-2104090304231487-320x200.jpg"></a>
 <a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866614.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866625-2104080440592122-320x200.jpg"></a>
 <a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866574-2104080531171487-320x200.jpg"></a>
 <a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866484-2104080447391487-320x200.jpg"></a>
 <a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866051.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866275-181211024732100707-320x200.jpg"></a>
-<a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866154.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866177-2104080212391487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12868483.md#1" target="_blank">BTS入围iHeartRadio音乐奖年度团体等三奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12868890.md#1" target="_blank">韩实境综艺《海路先遣队》10日在台首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank">叶全真公布择偶条件 首重“有心”盼找对的人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869113.md#1" target="_blank">《哥吉拉大战金刚》票房开红盘 小孤女角色吃重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866154.md#1" target="_blank">苏晏霈庆生豪饮燕窝 预告今年可能闪婚</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank">雨天开车送孩上学 吴尊获7岁儿贴心嘱3事项</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank">叶全真公布择偶条件 首重“有心”盼找对的人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank">林心如配戴上亿珠宝 4岁女儿爱卡通塑胶项链</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869179.md#1" target="_blank">台资深媒体人陈雅琳 将任华视新闻台长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12869113.md#1" target="_blank">《哥吉拉大战金刚》票房开红盘 小孤女角色吃重</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/9/n12868781.md#1" target="_blank">林依晨写长文“我不卑微 他也不渣”反击传闻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank">吉卜力音乐会将访台 演绎宫崎骏历年动漫主题曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
@@ -53,10 +53,10 @@
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/2/n12854684.md#1" target="_blank">痛悼台铁事故死难者 杜汶泽捐款一百万新台币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/4/n12857314.md#1" target="_blank">心系台铁事故 詹雅雯拖病体捐百万盼尽点心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/4/n12857991.md#1" target="_blank">杨丞琳比赛选唱广东歌 咬字清晰获网友大赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/2/n12854022.md#1" target="_blank">险上台铁出轨列车 宋逸民等艺人为伤亡者祷告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/5/n12860262.md#1" target="_blank">冯小刚已放弃治疗白癜风 面部苍白近照曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/5/n12860065.md#1" target="_blank">38岁胡歌谈演艺事业：已看到自己的天花板</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/6/n12860605.md#1" target="_blank">林志玲捐400万台币 协助台铁受灾者所需</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/2/n12854931.md#1" target="_blank">台铁脱轨事故死伤惨重 网红馆长宣布捐款250万</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/harlek3030/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/harlek3030/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/harlek3030/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/harlek3030/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/harlek3030/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
