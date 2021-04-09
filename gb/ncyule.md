@@ -23,14 +23,14 @@
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/2/23/n12769225.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/02/1403202244251470-320x200.jpg"><br> 演艺圈收入骤减 贺一航之子曾治豪到餐厅实习</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank">自曝遭刘嘉玲删微信好友 杨颖解释缘由引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12865432.md#1" target="_blank">赵又廷片场探班高圆圆 两人手拉手聊天超甜蜜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/7/n12865129.md#1" target="_blank">会否拍中国童年经历电影？赵婷：还要几年时间</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/5/n12860262.md#1" target="_blank">冯小刚已放弃治疗白癜风 面部苍白近照曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866892.md#1" target="_blank">前进签五年合约 与神话李玟雨及申彗星同公司</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866051.md#1" target="_blank">姜丹尼尔谈绰号引笑声 坦言曾讨厌当结尾精灵</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12865655.md#1" target="_blank">EXO迎出道9周年 六成员惊喜公开新专辑预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/8/n12866154.md#1" target="_blank">苏晏霈庆生豪饮燕窝 预告今年可能闪婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/spoail3346/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank">雨天开车送孩上学 吴尊获7岁儿贴心嘱3事项</a></h4></td></tr>
