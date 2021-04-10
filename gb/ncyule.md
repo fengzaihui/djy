@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank">林心如配戴上亿珠宝 4岁女儿爱卡通塑胶项链</a><br></h3><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12869389-2104090448252122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12868781.md#1" target="_blank">林依晨写长文“我不卑微 他也不渣”反击传闻</a><br></h3><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12868781.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12868808-2104090205351487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12871115-201224234818100707-320x200.jpg"></a>
 <a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12870137-210223022145100707-320x200.jpg"></a>
 <a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12869476-2104090801371487-320x200.jpg"></a>
 <a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12868890.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12868916-2104090304231487-320x200.jpg"></a>
 <a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12866614.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866625-2104080440592122-320x200.jpg"></a>
 <a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866574-2104080531171487-320x200.jpg"></a>
-<a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866484-2104080447391487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/3/31/n12847313.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/id12847315-490898-320x200.png"><br>《末日列车》第二季影评：新要角登场 也带来全新看点</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank">自曝遭刘嘉玲删微信好友 杨颖解释缘由引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869034.md#1" target="_blank">OH MY GIRL《Dolphin》播放破亿 获Gaon认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12868483.md#1" target="_blank">BTS入围iHeartRadio音乐奖年度团体等三奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12868890.md#1" target="_blank">韩实境综艺《海路先遣队》10日在台首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank">叶全真公布择偶条件 首重“有心”盼找对的人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869113.md#1" target="_blank">《哥吉拉大战金刚》票房开红盘 小孤女角色吃重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12870066.md#1" target="_blank">被刘若英问从来没娱乐？刘德华发飙原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank">叶全真公布择偶条件 首重“有心”盼找对的人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank">林心如配戴上亿珠宝 4岁女儿爱卡通塑胶项链</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank">吉卜力音乐会将访台 演绎宫崎骏历年动漫主题曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/7/n12863052.md#1" target="_blank">BTS《Film out》100国iTunes夺冠 公信榜周榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank">林芯仪直播开唱经典 称童年阴影被惠妮疗愈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pdbkmc3855/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
