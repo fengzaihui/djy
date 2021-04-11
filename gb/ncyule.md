@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a><br></h3><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12871115-201224234818100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12870490.md#1" target="_blank">拍戏抱婴儿动作熟练 郭富城告白：我也有女儿</a><br></h3><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12870490.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-498135728-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12872255-2104110326371487-320x200.jpg"></a>
 <a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12870137-210223022145100707-320x200.jpg"></a>
 <a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12869476-2104090801371487-320x200.jpg"></a>
 <a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12868890.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12868916-2104090304231487-320x200.jpg"></a>
 <a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/8/n12866614.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866625-2104080440592122-320x200.jpg"></a>
 <a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866574-2104080531171487-320x200.jpg"></a>
-<a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12866484-2104080447391487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12869034.md#1" target="_blank">OH MY GIRL《Dolphin》播放破亿 获Gaon认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12868483.md#1" target="_blank">BTS入围iHeartRadio音乐奖年度团体等三奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank">许富凯被曝“发胶控” 搭高铁糗事被翻出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/11/n12871932.md#1" target="_blank">车祸后遗症 疾病接踵 坣娜靠意志力备唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank">叶全真公布择偶条件 首重“有心”盼找对的人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12869113.md#1" target="_blank">《哥吉拉大战金刚》票房开红盘 小孤女角色吃重</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/8/n12866565.md#1" target="_blank">《废财2》迎来最终回 梁舒涵为戏首披婚纱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank">许富凯被曝“发胶控” 搭高铁糗事被翻出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/11/n12872163.md#1" target="_blank">周华健开唱合体齐豫 带领歌迷重温武侠经典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/11/n12872074.md#1" target="_blank">吁勿贴原住民标签 “动力火车”自揭曾遭歧视</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/11/n12871932.md#1" target="_blank">车祸后遗症 疾病接踵 坣娜靠意志力备唱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12870490.md#1" target="_blank">拍戏抱婴儿动作熟练 郭富城告白：我也有女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjrqlt3680/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
