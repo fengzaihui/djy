@@ -469,16 +469,6 @@
 新泽西的计划是在5月底前为全州70%的成年人（约470万人）接种疫苗。
 
 州卫生官员表示，接种了第一针的10人中有9人会返回接种第二针。到4月底，新泽西州的进度应是至少有444万.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月09日 10:32 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/fxhdff3615/djy/blob/master/gb/21/4/9/n12868257.md#1" target="_blank">橙县教委例会 父母反对学校强推疫苗</a><br></h3><a href="https://github.com/fxhdff3615/djy/blob/master/gb/21/4/9/n12868257.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12868269-IMG_5258-150x120.jpg" align ="left"></a>学校可以不经过父母同意即给孩子注射疫苗？许多家长表示强烈反对。在4月7日橙县教育委员会例会上，几百位居民来到现场外表达意见，尽管这不在会议议程中，但仍有110多位居民要求在会上发言，董事会给了每人三分钟的发言时间。
-
-
-
-
-
-
-学校内的疫苗注射点
-一星期前，橙县医疗保健署署长克莱顿·周（Clayton .........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月09日 10:17 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/fxhdff3615/djy/blob/master/gb/21/4/9/n12868244.md#1" target="_blank">圣安东尼奥收容所被控虐待儿童 州长宣布调查</a><br></h3><a href="https://github.com/fxhdff3615/djy/blob/master/gb/21/4/9/n12868244.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12868264-Screen-Shot-2021-04-08-at-8.40.40-PM-150x120.png" align ="left"></a>近期，德州的两个机构收到讯息，指称被安置在圣安东尼奥联邦移民设施Freeman Coliseum中的儿童遭到了性侵和忽视。周三（4月8日），德州州长Greg Abbott举办新闻发布会宣布，他已经下令对此事进行调查，并呼吁拜登政府关闭该设施。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月09日 10:15 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fxhdff3615/djy/blob/master/gb/21/4/11/n12872279.md#1" target="_blank">吉林一高校60余学生呕吐腹泻 疑染诺如病毒</a><br></h3>近期，吉林工商学院多名学生出现呕吐、腹泻等症状，经采样检测指有些学生疑似是感染诺如病毒。出现类似症状的人数截至4月10日至少有60多名。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月11日 4:38 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fxhdff3615/djy/blob/master/gb/21/4/11/n12872221.md#1" target="_blank">辽宁鞍山一大型养鸡场起火 厂房被烧毁</a><br></h3>昨天（10日），辽宁省鞍山市铁西区一大型养鸡场起火。有网文指此火灾让养殖场损失巨大，估计鸡崽或者成品鸡恐怕是凶多吉少。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月11日 4:27 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fxhdff3615/djy/blob/master/gb/21/4/11/n12872122.md#1" target="_blank">【翻墙必看】分析：马云被卷入中共权斗</a><br></h3>大纪元每天为读者梳理翻墙必看的文章......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月11日 1:32 PM			</td></tr>
