@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank">许富凯被曝“发胶控” 搭高铁糗事被翻出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/11/n12871932.md#1" target="_blank">车祸后遗症 疾病接踵 坣娜靠意志力备唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/9/n12869463.md#1" target="_blank">叶全真公布择偶条件 首重“有心”盼找对的人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/11/n12873184.md#1" target="_blank">资深港星黄树棠癌逝 周润发今年三度痛失好友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/11/n12872829.md#1" target="_blank">与梁朝伟当年同试镜 周星驰落选原因笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank">许富凯被曝“发胶控” 搭高铁糗事被翻出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/11/n12872163.md#1" target="_blank">周华健开唱合体齐豫 带领歌迷重温武侠经典</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/11/n12872074.md#1" target="_blank">吁勿贴原住民标签 “动力火车”自揭曾遭歧视</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/guyhmv3022/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
