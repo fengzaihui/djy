@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank">许富凯被曝“发胶控” 搭高铁糗事被翻出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/11/n12871932.md#1" target="_blank">车祸后遗症 疾病接踵 坣娜靠意志力备唱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/12/n12874098.md#1" target="_blank">百老汇音乐剧《猫》开先例 7月唱进台湾东部</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/12/n12873738.md#1" target="_blank">赖雅妍呼巴掌下手重 王传一曝戏中真被打昏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/11/n12873184.md#1" target="_blank">资深港星黄树棠癌逝 周润发今年三度痛失好友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/11/n12872829.md#1" target="_blank">与梁朝伟当年同试镜 周星驰落选原因笑翻网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank">许富凯被曝“发胶控” 搭高铁糗事被翻出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank">吉卜力音乐会将访台 演绎宫崎骏历年动漫主题曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/12/n12874098.md#1" target="_blank">百老汇音乐剧《猫》开先例 7月唱进台湾东部</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/11/n12872163.md#1" target="_blank">周华健开唱合体齐豫 带领歌迷重温武侠经典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank">林芯仪直播开唱经典 称童年阴影被惠妮疗愈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/6/n12861494.md#1" target="_blank">动力火车五年磨一辑 邀纳豆、邱偲琹演出MV</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ztpsws3511/djy/blob/master/gb/21/4/9/n12870066.md#1" target="_blank">被刘若英直问从来没娱乐 刘德华发飙原因曝光</a></h4></td></tr>
