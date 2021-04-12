@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12872305.md#1" target="_blank">演《驱魔面馆》创高收视 金世正全能表现获赞</a><br></h3><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12872305.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12872324-2104110439531487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12872163.md#1" target="_blank">周华健开唱合体齐豫 带领歌迷重温武侠经典</a><br></h3><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12872163.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12872167-2104110204431487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12875026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12875057-2104120944011487-320x200.jpg"></a>
 <a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874902.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874944-2104120855071487-320x200.jpg"></a>
 <a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874129.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874734-2104120804011487-320x200.jpg"></a>
 <a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874264-2104120405501487-320x200.jpg"></a>
 <a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12873738.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12873813-210411202418100613-320x200.jpg"></a>
 <a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12872255-2104110326371487-320x200.jpg"></a>
-<a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12870137-210223022145100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12873738.md#1" target="_blank">赖雅妍呼巴掌下手重 王传一曝戏中真被打昏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12872239.md#1" target="_blank">许富凯被曝“发胶控” 搭高铁糗事被翻出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12875026.md#1" target="_blank">业余美食博主踩点南台湾 梁静茹边吃边喊减肥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874902.md#1" target="_blank">周兴哲忙拍电影 买来最爱的名产慰劳剧组</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874129.md#1" target="_blank">建议远离渣男 方志友：爱自己不要委屈自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874317.md#1" target="_blank">认与谢欣颖交往 王柏杰：两人的个性很像</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874205.md#1" target="_blank">廖奕琁步入怀孕后期 偕夫入镜拍孕妈咪写真</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank">吉卜力音乐会将访台 演绎宫崎骏历年动漫主题曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12875026.md#1" target="_blank">业余美食博主踩点南台湾 梁静茹边吃边喊减肥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/12/n12874098.md#1" target="_blank">百老汇音乐剧《猫》开先例 7月唱进台湾东部</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/11/n12872163.md#1" target="_blank">周华健开唱合体齐豫 带领歌迷重温武侠经典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/8/n12866431.md#1" target="_blank">林芯仪直播开唱经典 称童年阴影被惠妮疗愈</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/6/n12861875.md#1" target="_blank">Ella马志翔合作电影 五月天以优惠价授权歌曲</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tnuyfx3798/djy/blob/master/gb/21/4/9/n12870066.md#1" target="_blank">被刘若英直问从来没娱乐 刘德华发飙原因曝光</a></h4></td></tr>
