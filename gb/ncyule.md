@@ -50,9 +50,9 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/9/n12870066.md#1" target="_blank">被刘若英直问从来没娱乐 刘德华发飙原因曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/11/n12872829.md#1" target="_blank">与梁朝伟当年同试镜 周星驰落选原因笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank">自曝遭刘嘉玲删微信好友 杨颖解释缘由引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank">林心如配戴上亿珠宝 4岁女儿爱卡通塑胶项链</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/11/n12872829.md#1" target="_blank">与梁朝伟当年同试镜 周星驰落选原因笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/7/n12862621.md#1" target="_blank">当爸后被吐槽身材发福 吴奇隆瘦身近照曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/8/n12865432.md#1" target="_blank">赵又廷片场探班高圆圆 两人手拉手聊天超甜蜜</a></h4></td></tr>
