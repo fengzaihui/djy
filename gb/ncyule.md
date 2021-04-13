@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876916.md#1" target="_blank">刘品言曝身边有追求者 妈妈急抱孙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876927.md#1" target="_blank">50岁明金城花上百万求子 做10次试管仍努力中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank">萧煌奇与茄子蛋合作 歌王客串按摩师频抢戏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank">后藤真希发烧后确诊染疫 目前症状轻微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876897.md#1" target="_blank">宋慧乔谈心态蜕变 “想当1次普通的宋慧乔”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank">萧煌奇与茄子蛋合作 歌王客串按摩师频抢戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876509.md#1" target="_blank">李翊君弃高跟鞋忍脚伤唱跳 自嘲原形毕露</a></h4></td></tr>
