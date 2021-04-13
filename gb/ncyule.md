@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/12/n12874302.md#1" target="_blank">金秀贤宋仲基、金素妍申惠善角逐《百想》帝后</a><br></h3><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/12/n12874302.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874404-2104120457031487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a><br></h3><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12873117-GettyImages-504408048-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12877395.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12877529-210326012046100707-320x200.jpg"></a>
 <a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12877070-2104130753001487-320x200.jpg"></a>
 <a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876893-210413054701100707-320x200.jpg"></a>
 <a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876690-2104130410041487-320x200.jpg"></a>
 <a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876539-2104130248281487-320x200.jpg"></a>
 <a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876253-1904080555092384-320x200.jpg"></a>
-<a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/12/n12875026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12875057-2104120944011487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/9/n12870258.md#1" target="_blank">吐槽邓超旅游体力差 孙俪背着丈夫行走秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12877395.md#1" target="_blank">BTS日文曲《Film Out》空降告示牌数位榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876537.md#1" target="_blank">SHINee轮流Solo出辑 《Atlantis》24区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876138.md#1" target="_blank">BLACKPINK官方YT订阅户逾六千万 韩国第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/13/n12876026.md#1" target="_blank">I.O.I守约 将于出道五周年之际重聚 直播会粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/11/n12872305.md#1" target="_blank">演《驱魔面馆》创高收视 金世正全能表现获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/haatdn3351/djy/blob/master/gb/21/4/12/n12874902.md#1" target="_blank">周兴哲忙拍电影 买来最爱的名产慰劳剧组</a></h4></td></tr>
