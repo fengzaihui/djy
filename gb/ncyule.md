@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12874302.md#1" target="_blank">金秀贤宋仲基、金素妍申惠善角逐《百想》帝后</a><br></h3><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12874302.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874404-2104120457031487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a><br></h3><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12873117-GettyImages-504408048-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876690-2104130410041487-320x200.jpg"></a>
 <a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876539-2104130248281487-320x200.jpg"></a>
 <a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876253-1904080555092384-320x200.jpg"></a>
 <a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12875026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12875057-2104120944011487-320x200.jpg"></a>
 <a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12874902.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874944-2104120855071487-320x200.jpg"></a>
 <a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12874129.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874734-2104120804011487-320x200.jpg"></a>
-<a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12874205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12874264-2104120405501487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12874902.md#1" target="_blank">周兴哲忙拍电影 买来最爱的名产慰劳剧组</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12873738.md#1" target="_blank">赖雅妍呼巴掌下手重 王传一曝戏中真被打昏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank">萧煌奇与茄子蛋合作 歌王客串按摩师频抢戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876509.md#1" target="_blank">李翊君弃高跟鞋忍脚伤唱跳 自嘲原形毕露</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876163.md#1" target="_blank">60岁赵传现踪台师大攻读硕士 好学精神获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12875026.md#1" target="_blank">业余美食博主踩点南台湾 梁静茹边吃边喊减肥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/9/n12869438.md#1" target="_blank">SHINee上《MS》登热搜冠军 温流曝有日文新作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/8/n12866389.md#1" target="_blank">Snow Man出道演唱会唱跳9场 累瘫泪崩谢恩师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/8/n12865775.md#1" target="_blank">吉卜力音乐会将访台 演绎宫崎骏历年动漫主题曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank">萧煌奇与茄子蛋合作 歌王客串按摩师频抢戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876509.md#1" target="_blank">李翊君弃高跟鞋忍脚伤唱跳 自嘲原形毕露</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/13/n12876163.md#1" target="_blank">60岁赵传现踪台师大攻读硕士 好学精神获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12875026.md#1" target="_blank">业余美食博主踩点南台湾 梁静茹边吃边喊减肥</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/12/n12874098.md#1" target="_blank">百老汇音乐剧《猫》开先例 7月唱进台湾东部</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ayxrqc3762/djy/blob/master/gb/21/4/9/n12870066.md#1" target="_blank">被刘若英直问从来没娱乐 刘德华发飙原因曝光</a></h4></td></tr>
