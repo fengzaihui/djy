@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a><br></h3><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12875969-GettyImages-1179496622-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a><br></h3><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1183921140-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12879260-2104140403111487-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12879019.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12879054-2104140241161487-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12877395.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12877529-210326012046100707-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12877070-2104130753001487-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876893-210413054701100707-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876690-2104130410041487-320x200.jpg"></a>
-<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876539-2104130248281487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/9/n12870258.md#1" target="_blank">吐槽邓超旅游体力差 孙俪背着丈夫行走秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12878499.md#1" target="_blank">辉人坦言独自创作费时 《Redd》13区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12878433.md#1" target="_blank">郑容和正式进军华语乐坛 重制与林俊杰合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12877395.md#1" target="_blank">BTS日文曲《Film Out》空降告示牌数位榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876537.md#1" target="_blank">SHINee轮流Solo出辑 《Atlantis》24区iTunes登顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876138.md#1" target="_blank">BLACKPINK官方YT订阅户逾六千万 韩国第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12874902.md#1" target="_blank">周兴哲忙拍电影 买来最爱的名产慰劳剧组</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12873738.md#1" target="_blank">赖雅妍呼巴掌下手重 王传一曝戏中真被打昏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12879019.md#1" target="_blank">动力火车单曲MV有新意 藉票选结局引发话题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12878433.md#1" target="_blank">郑容和正式进军华语乐坛 重制与林俊杰合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12878323.md#1" target="_blank">昆凌晒4岁儿正面照 小小周宛如缩小版周杰伦</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank">后藤真希发烧后确诊染疫 目前症状轻微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
