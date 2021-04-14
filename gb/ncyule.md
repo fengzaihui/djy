@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/9/n12870258.md#1" target="_blank">吐槽邓超旅游体力差 孙俪背着丈夫行走秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/9/n12868383.md#1" target="_blank">f(x)宋茜契约结束离开公司 获SM娱乐证实</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12878433.md#1" target="_blank">郑容和正式进军华语乐坛 重制与林俊杰合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12877395.md#1" target="_blank">BTS日文曲《Film Out》空降告示牌数位榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876537.md#1" target="_blank">SHINee轮流Solo出辑 《Atlantis》24区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876138.md#1" target="_blank">BLACKPINK官方YT订阅户逾六千万 韩国第一</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876026.md#1" target="_blank">I.O.I守约 将于出道五周年之际重聚 直播会粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12874902.md#1" target="_blank">周兴哲忙拍电影 买来最爱的名产慰劳剧组</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12873738.md#1" target="_blank">赖雅妍呼巴掌下手重 王传一曝戏中真被打昏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12878433.md#1" target="_blank">郑容和正式进军华语乐坛 重制与林俊杰合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12878323.md#1" target="_blank">昆凌晒4岁儿正面照 小小周宛如缩小版周杰伦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876897.md#1" target="_blank">宋慧乔谈心态蜕变 “想当1次普通的宋慧乔”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank">后藤真希发烧后确诊染疫 目前症状轻微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/7/n12862621.md#1" target="_blank">当爸后被吐槽身材发福 吴奇隆瘦身近照曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/8/n12865432.md#1" target="_blank">赵又廷片场探班高圆圆 两人手拉手聊天超甜蜜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/8/n12865432.md#1" target="_blank">赵又廷片场探班高圆圆 两人手拉手聊天超甜蜜</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hxdsjt3959/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/hxdsjt3959/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
