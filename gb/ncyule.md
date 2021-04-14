@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12879348.md#1" target="_blank">徐若瑄栽培5岁儿念双语 为工作分隔1个多月</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12879456.md#1" target="_blank">吕雪凤首演舞台剧 阿庞癌愈胖12公斤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12879319.md#1" target="_blank">胡瓜萌念退休 跟节目递辞呈“最快年底交棒”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12879019.md#1" target="_blank">动力火车单曲MV有新意 藉票选结局引发话题</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12878433.md#1" target="_blank">郑容和正式进军华语乐坛 重制与林俊杰合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank">后藤真希发烧后确诊染疫 目前症状轻微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/10/n12871113.md#1" target="_blank">想和伙伴一起跳的青春歌曲 BTS与TWICE等入榜</a></h4></td></tr>
@@ -54,9 +54,9 @@
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank">自曝遭刘嘉玲删微信好友 杨颖解释缘由引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank">林心如配戴上亿珠宝 4岁女儿爱卡通塑胶项链</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/8/n12865432.md#1" target="_blank">赵又廷片场探班高圆圆 两人手拉手聊天超甜蜜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/nfnkod3022/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/nfnkod3022/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nfnkod3022/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/nfnkod3022/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
