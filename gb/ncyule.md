@@ -7,10 +7,10 @@
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12879260-2104140403111487-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12879019.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12879054-2104140241161487-320x200.jpg"></a>
+<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/14/n12878433.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12878484-210413220007100707-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12877395.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12877529-210326012046100707-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12877070-2104130753001487-320x200.jpg"></a>
 <a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876893-210413054701100707-320x200.jpg"></a>
-<a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12876690-2104130410041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hxdsjt3959/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
