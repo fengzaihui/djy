@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12878323.md#1" target="_blank">昆凌晒4岁儿正面照 小小周宛如缩小版周杰伦</a><br></h3><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12878323.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/01/1901030214111487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a><br></h3><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/04/a-2-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881793-1312220254592122-320x200.jpg"></a>
 <a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881395-2104150238051487-320x200.jpg"></a>
 <a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881198-2104150043561487-320x200.jpg"></a>
 <a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12880906.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881033-2008020344331487-320x200.jpg"></a>
 <a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879765.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12879784-200106081832100707-320x200.jpg"></a>
 <a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12879260-2104140403111487-320x200.jpg"></a>
-<a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879019.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12879054-2104140241161487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879319.md#1" target="_blank">胡瓜萌念退休 跟节目递辞呈“最快年底交棒”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank">因合约误会 Faye与恩师陈建宁互告 结果出炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank">邱泽接任第23届台北电影节影展大使</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879768.md#1" target="_blank">谢博安组团发片 东家备10套打歌服 开3专场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879337.md#1" target="_blank">毕书尽当讲师分享历程：比唱小巨蛋还紧张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879348.md#1" target="_blank">徐若瑄栽培5岁儿念双语 为工作分隔1个多月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank">石原聪美绫野刚新剧开播 剧名登推特趋势第1</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12880906.md#1" target="_blank">新垣结衣首度参演NHK大河剧 饰小栗旬初恋情人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12876878.md#1" target="_blank">后藤真希发烧后确诊染疫 目前症状轻微</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank">因合约误会 Faye与恩师陈建宁互告 结果出炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879768.md#1" target="_blank">谢博安组团发片 东家备10套打歌服 开3专场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879019.md#1" target="_blank">动力火车单曲MV有新意 藉票选结局引发话题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12876897.md#1" target="_blank">宋慧乔谈心态蜕变 “想当1次普通的宋慧乔”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12876632.md#1" target="_blank">萧煌奇与茄子蛋合作 歌王客串按摩师频抢戏</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/8/n12867529.md#1" target="_blank">全昭旻无惧中共小粉红狙击 35岁生日晒Nike鞋</a></h4></td></tr>
