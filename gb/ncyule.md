@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879765.md#1" target="_blank">润娥YT频道开设10天订户破10万 开箱白银按钮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879273.md#1" target="_blank">三年前拍戏期间失礼对待徐玄 金正铉致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12878499.md#1" target="_blank">辉人坦言独自创作费时 《Redd》13区iTunes夺冠</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank">邱泽接任第23届台北电影节影展大使</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879319.md#1" target="_blank">胡瓜萌念退休 跟节目递辞呈“最快年底交棒”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/12/n12875774.md#1" target="_blank">李安获颁英奥斯卡终身成就奖 蔡英文发文祝贺</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881864.md#1" target="_blank">阅读障碍、听力受损 坣娜为开唱苦背歌词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank">因合约误会 Faye与恩师陈建宁互告 结果出炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank">邱泽接任第23届台北电影节影展大使</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879768.md#1" target="_blank">谢博安组团发片 东家备10套打歌服 开3专场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/14/n12879337.md#1" target="_blank">毕书尽当讲师分享历程：比唱小巨蛋还紧张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank">石原聪美绫野刚新剧开播 剧名登推特趋势第1</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/15/n12880906.md#1" target="_blank">新垣结衣首度参演NHK大河剧 饰小栗旬初恋情人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exkayf305/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
