@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/14/n12880190.md#1" target="_blank">自曝减重15公斤留后遗症 黄晓明请网友勿效仿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/16/n12884122.md#1" target="_blank">OH MY GIRL下月10日发行新专辑 获公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank">利特谈人生：战胜困难如升一等 去努力别放弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/15/n12881152.md#1" target="_blank">孔刘上IU节目畅谈音乐与电影 盼合作戏剧作品</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/15/n12881515.md#1" target="_blank">姜素拉本日迎来女儿出生 母女均安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/16/n12884294.md#1" target="_blank">范逸臣因伤退出《全明星》 体育系郭彦均递补</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank">邱泽接任第23届台北电影节影展大使</a></h4></td></tr>
@@ -51,12 +51,12 @@
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/11/n12872829.md#1" target="_blank">与梁朝伟当年同试镜 周星驰落选原因笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/9/n12870066.md#1" target="_blank">被刘若英直问从来没娱乐 刘德华发飙原因曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank">林心如配戴上亿珠宝 4岁女儿爱卡通塑胶项链</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/msttva3292/djy/blob/master/gb/21/4/13/n12878323.md#1" target="_blank">昆凌晒4岁儿正面照 小小周宛如缩小版周杰伦</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/msttva3292/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/msttva3292/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/msttva3292/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/msttva3292/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
