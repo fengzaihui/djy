@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank">利特谈人生：战胜困难如升一等 去努力别放弃</a><br></h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12882452-210415093234100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881152.md#1" target="_blank">孔刘上IU节目畅谈音乐与电影 盼合作戏剧作品</a><br></h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881152.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881420-210415025501100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884118-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883893.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12883952-2104160153351487-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12883570-210415232528100707-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881793-1312220254592122-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881395-2104150238051487-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881198-2104150043561487-320x200.jpg"></a>
-<a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12880906.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881033-2008020344331487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/14/n12880190.md#1" target="_blank">自曝减重15公斤留后遗症 黄晓明请网友勿效仿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank">利特谈人生：战胜困难如升一等 去努力别放弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881152.md#1" target="_blank">孔刘上IU节目畅谈音乐与电影 盼合作戏剧作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881515.md#1" target="_blank">姜素拉本日迎来女儿出生 母女均安</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/14/n12879765.md#1" target="_blank">润娥YT频道开设10天订户破10万 开箱白银按钮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank">邱泽接任第23届台北电影节影展大使</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/14/n12879319.md#1" target="_blank">胡瓜萌念退休 跟节目递辞呈“最快年底交棒”</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882696.md#1" target="_blank">陈奕迅删IG剩3条帖文 疑与新疆棉风波有关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank">石原聪美绫野刚新剧开播 剧名登推特趋势第1</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12880906.md#1" target="_blank">新垣结衣首度参演NHK大河剧 饰小栗旬初恋情人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883893.md#1" target="_blank">“为地球声援”吴青峰用鸟叫、水声谱曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank">因合约误会 Faye与恩师陈建宁互告 结果出炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/14/n12879768.md#1" target="_blank">谢博安组团发片 东家备10套打歌服 开3专场</a></h4></td></tr>
