@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank">利特谈人生：战胜困难如升一等 去努力别放弃</a><br></h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12882452-210415093234100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881152.md#1" target="_blank">孔刘上IU节目畅谈音乐与电影 盼合作戏剧作品</a><br></h3><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881152.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881420-210415025501100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12884143.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884162-2104160330421487-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884118-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883893.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12883952-2104160153351487-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12883570-210415232528100707-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881793-1312220254592122-320x200.jpg"></a>
 <a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881395-2104150238051487-320x200.jpg"></a>
-<a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881198-2104150043561487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank">邱泽接任第23届台北电影节影展大使</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/14/n12879319.md#1" target="_blank">胡瓜萌念退休 跟节目递辞呈“最快年底交棒”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12884143.md#1" target="_blank">严爵无预警晒婚照 上月14日秘娶圈外女友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883893.md#1" target="_blank">“为地球声援”吴青峰用鸟叫、水声谱曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12882696.md#1" target="_blank">陈奕迅删IG剩3条帖文 疑与新疆棉风波有关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mfaidu357/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank">石原聪美绫野刚新剧开播 剧名登推特趋势第1</a></h4></td></tr>
