@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12881381.md#1" target="_blank">邱泽接任第23届台北电影节影展大使</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/14/n12879319.md#1" target="_blank">胡瓜萌念退休 跟节目递辞呈“最快年底交棒”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/14/n12879233.md#1" target="_blank">新伤加旧伤复发 范逸臣决定退出《全明星2》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12882696.md#1" target="_blank">陈奕迅删IG剩3条帖文 疑与卷入新疆棉风波有关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12881864.md#1" target="_blank">阅读障碍、听力受损 坣娜为开唱苦背歌词</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank">因合约误会 Faye与恩师陈建宁互告 结果出炉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank">石原聪美绫野刚新剧开播 剧名登推特趋势第1</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/15/n12880906.md#1" target="_blank">新垣结衣首度参演NHK大河剧 饰小栗旬初恋情人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/13/n12876912.md#1" target="_blank">贯地谷刊确诊染疫 舞台剧取消演出</a></h4></td></tr>
@@ -51,12 +51,12 @@
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/11/n12872829.md#1" target="_blank">与梁朝伟当年同试镜 周星驰落选原因笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/9/n12870066.md#1" target="_blank">被刘若英直问从来没娱乐 刘德华发飙原因曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/8/n12867670.md#1" target="_blank">自曝遭刘嘉玲删微信好友 杨颖解释缘由引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/9/n12869071.md#1" target="_blank">林心如配戴上亿珠宝 4岁女儿爱卡通塑胶项链</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/8/n12867956.md#1" target="_blank">拍杂志封面 范冰冰诠释三个不同年龄层容貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/11/n12873058.md#1" target="_blank">好莱坞巨星史泰龙 加入川普私人俱乐部</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xczufg339/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/xczufg339/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/xczufg339/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xczufg339/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/xczufg339/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
