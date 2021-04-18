@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12885301.md#1" target="_blank">隔空庆贺老婆生日 冯德伦贴舒淇搞怪照赞漂亮</a><br></h3><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12885301.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/08/1708090133461487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12883893.md#1" target="_blank">“为地球声援”吴青峰用鸟叫、水声谱曲</a><br></h3><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12883893.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12883952-2104160153351487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887427-2104172252591487-320x200.jpg"></a>
 <a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884823.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884856-2104160837311487-320x200.jpg"></a>
 <a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884302-2104160436021487-320x200.jpg"></a>
 <a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884143.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884162-2104160330421487-320x200.jpg"></a>
 <a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884118-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12882452-210415093234100707-320x200.jpg"></a>
-<a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12881793-1312220254592122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884122.md#1" target="_blank">OH MY GIRL下月10日发行新专辑 获公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank">利特谈人生：战胜困难如升一等 去努力别放弃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12885514.md#1" target="_blank">好莱坞巨星布拉德·皮特 坐轮椅现身医院引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884823.md#1" target="_blank">体验3种特殊职业 杨小黎惧高吓到腿发软</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884294.md#1" target="_blank">范逸臣因伤退出《全明星》 体育系郭彦均递补</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/15/n12881863.md#1" target="_blank">《天桥上的魔术师》盗版猖獗 公视拟提告护权</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12885301.md#1" target="_blank">隔空庆贺老婆生日 冯德伦贴舒淇搞怪照赞漂亮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12885014.md#1" target="_blank">吴申梅首开个唱 获两位金曲歌王助阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884823.md#1" target="_blank">体验3种特殊职业 杨小黎惧高吓到腿发软</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12884294.md#1" target="_blank">范逸臣因伤退出《全明星》 体育系郭彦均递补</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/11/n12872829.md#1" target="_blank">与梁朝伟当年同试镜 周星驰落选原因笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/15/n12882696.md#1" target="_blank">陈奕迅删IG剩3条帖文 疑与新疆棉风波有关</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oybesd3593/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a></h4></td></tr>
