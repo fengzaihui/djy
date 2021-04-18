@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/17/n12886445.md#1" target="_blank">希澈戒烟逾10年再谈后悔吸烟：支气管因此受损</a><br></h3><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/17/n12886445.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12886446-190405072300100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12885514.md#1" target="_blank">好莱坞巨星布拉德·皮特 坐轮椅现身医院引关注</a><br></h3><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12885514.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12885627-GettyImages-1205162342-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887837.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887861-1812240317232122-320x200.jpg"></a>
 <a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887427-2104172252591487-320x200.jpg"></a>
 <a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12884823.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884856-2104160837311487-320x200.jpg"></a>
 <a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12884294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884302-2104160436021487-320x200.jpg"></a>
 <a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12884143.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884162-2104160330421487-320x200.jpg"></a>
 <a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884118-181211004125100707-320x200.jpg"></a>
-<a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12882452-210415093234100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12885514.md#1" target="_blank">好莱坞巨星布拉德·皮特 坐轮椅现身医院引关注</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887837.md#1" target="_blank">林志颖成建设公司董事 首次参与建案动土</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12885301.md#1" target="_blank">隔空庆贺老婆生日 冯德伦贴舒淇搞怪照赞漂亮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nsjlnq309/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
