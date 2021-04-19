@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889165.md#1" target="_blank">伯贤《Bambi》卖破百万张 连两作创百万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889729.md#1" target="_blank">穗珍陷争议 (G)I-DLE新歌音源与MV重制后推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889069.md#1" target="_blank">TWICE准备6月发行新专辑 赴济州岛拍新歌MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/17/n12886445.md#1" target="_blank">希澈戒烟逾10年再谈后悔吸烟：支气管因此受损</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12884122.md#1" target="_blank">OH MY GIRL下月10日发行新专辑 获公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
