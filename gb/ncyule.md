@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/16/n12885514.md#1" target="_blank">好莱坞巨星布拉德·皮特 坐轮椅现身医院引关注</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/19/n12889258.md#1" target="_blank">李玖哲连开2场华山个唱 好友齐助攻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank">吐槽一男子开车乱扔烟头 舒淇获赞生气也可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank">黄秋生又来台接受隔离 申请就业金卡已获准</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/18/n12887837.md#1" target="_blank">林志颖成建设公司董事 首次参与建案动土</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank">石原聪美绫野刚新剧开播 剧名登推特趋势第1</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/19/n12889258.md#1" target="_blank">李玖哲连开2场华山个唱 好友齐助攻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/16/n12885014.md#1" target="_blank">吴申梅首开个唱 获两位金曲歌王助阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/16/n12883893.md#1" target="_blank">“为地球声援”吴青峰用鸟叫、水声谱曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/15/n12881739.md#1" target="_blank">因合约误会 Faye与恩师陈建宁互告 结果出炉</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank">《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/13/n12878323.md#1" target="_blank">昆凌晒4岁儿正面照 小小周宛如缩小版周杰伦</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nvwykf309/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/nvwykf309/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/nvwykf309/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nvwykf309/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/nvwykf309/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
