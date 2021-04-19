@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a><br></h3><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887679-2104180244061487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a><br></h3><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/170811123342100694-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/19/n12889069.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12889161-181214124941100707-320x200.jpg"></a>
 <a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887837.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887861-1812240317232122-320x200.jpg"></a>
 <a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887634-2104180156591487-320x200.jpg"></a>
 <a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887427-2104172252591487-320x200.jpg"></a>
 <a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/16/n12884823.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884856-2104160837311487-320x200.jpg"></a>
 <a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/16/n12884294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884302-2104160436021487-320x200.jpg"></a>
-<a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/16/n12884143.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12884162-2104160330421487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/19/n12889069.md#1" target="_blank">TWICE准备6月发行新专辑 赴济州岛拍新歌MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/17/n12886445.md#1" target="_blank">希澈戒烟逾10年再谈后悔吸烟：支气管因此受损</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/16/n12884122.md#1" target="_blank">OH MY GIRL下月10日发行新专辑 获公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/15/n12882245.md#1" target="_blank">利特谈人生：战胜困难如升一等 去努力别放弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewyfvr314/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
