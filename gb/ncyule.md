@@ -35,7 +35,7 @@
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12891010.md#1" target="_blank">74岁资深艺人王钟逝世 4个月内10位港星病故</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12891010.md#1" target="_blank">74岁资深艺人王钟去世 4个月内10位港星病故</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12890014.md#1" target="_blank">苏慧伦9月高雄开唱 4月抢听会先南下见歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889885.md#1" target="_blank">台剧《火神的眼泪》5月上档 片头曲今释出</a></h4></td></tr>
