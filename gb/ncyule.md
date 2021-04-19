@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12891010.md#1" target="_blank">74岁资深艺人王钟逝世 4个月内10位港星病故</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12890014.md#1" target="_blank">苏慧伦9月高雄开唱 4月抢听会先南下见歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889885.md#1" target="_blank">台剧《火神的眼泪》5月上档 片头曲今释出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889626.md#1" target="_blank">歌坛新人陈佩贤新曲搭剧 发现“主角都是偶像”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/15/n12882696.md#1" target="_blank">陈奕迅删IG剩3条帖文 疑与新疆棉风波有关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank">《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
