@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889729.md#1" target="_blank">穗珍陷争议 (G)I-DLE新歌音源与MV重制后推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889069.md#1" target="_blank">TWICE准备6月发行新专辑 赴济州岛拍新歌MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/17/n12886445.md#1" target="_blank">希澈戒烟逾10年再谈后悔吸烟：支气管因此受损</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889939.md#1" target="_blank">盖瑞欧德曼新片揭医药犯罪系统 自荐当监制　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12885514.md#1" target="_blank">好莱坞巨星布拉德·皮特 坐轮椅现身医院引关注</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889885.md#1" target="_blank">台剧《火神的眼泪》5月上档 片头曲今释出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889626.md#1" target="_blank">歌坛新人陈佩贤新曲搭剧 发现“主角都是偶像”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/19/n12889258.md#1" target="_blank">李玖哲连开2场华山个唱 好友齐助攻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank">吐槽一男子开车乱扔烟头 舒淇获赞生气也可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank">《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/12/n12875411.md#1" target="_blank">遭中共封杀 赵婷《无依之地》获英奥斯卡四奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eydeib3500/djy/blob/master/gb/21/4/12/n12875512.md#1" target="_blank">章子怡出差前不舍儿子 用力亲吻现双下巴</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/eydeib3500/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/eydeib3500/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eydeib3500/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/eydeib3500/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
