@@ -6,7 +6,7 @@
 <tr><td><h3><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a><br></h3><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/09/1_meitu_1-57-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12893000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893033-2104200920011487-320x200.jpg"></a>
-<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892518.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892526-DSC_2335-320x200.jpg"></a>
+<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892518.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893190-2104200437412122-ss1-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892463-2104200511321487-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891930-191004051717100707-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891843-2104192326551487-320x200.jpg"></a>
