@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/19/n12889939.md#1" target="_blank">盖瑞欧德曼新片揭医药犯罪系统 自荐当监制　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892518.md#1" target="_blank">看演艺圈感情风波 Selina挑对象首重人品</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892507.md#1" target="_blank">毕书尽重启攻蛋 叹一年多无法探望病母</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892529.md#1" target="_blank">吴宗宪植牙脸肿瘀青 Sandy：不配合医师养病</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/19/n12891201.md#1" target="_blank">王力宏陪3儿女骑单车 满脸腮胡被说撞脸基努</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
@@ -52,11 +52,11 @@
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/14/n12880501.md#1" target="_blank">刘涛代替谢娜当团长 遭蒋勤勤当众吐槽引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/15/n12882696.md#1" target="_blank">陈奕迅删IG剩3条帖文 疑与新疆棉风波有关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/13/n12878075.md#1" target="_blank">69岁洪金宝近况曝光 被目击弃拐杖轮椅逛街</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank">《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank">黄秋生又来台接受隔离 申请就业金卡已获准</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nnmtsc3385/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/nnmtsc3385/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
