@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12890067.md#1" target="_blank">DAY6迷你七辑以爱为主题创作 无团体宣传活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889165.md#1" target="_blank">伯贤《Bambi》卖破百万张 连两作创百万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889729.md#1" target="_blank">穗珍陷争议 (G)I-DLE新歌音源与MV重制后推出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889939.md#1" target="_blank">盖瑞欧德曼新片揭医药犯罪系统 自荐当监制　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12891201.md#1" target="_blank">王力宏陪3儿女骑单车 满脸腮胡被说撞脸基努</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12891010.md#1" target="_blank">74岁资深艺人王钟去世 4个月内10位港星病故</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12890014.md#1" target="_blank">苏慧伦9月高雄开唱 4月抢听会先南下见歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
