@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank">吐槽一男子开车乱扔烟头 舒淇获赞生气也可爱</a><br></h3><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-474615232-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a><br></h3><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/09/1_meitu_1-57-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893244-1612032351351487-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12893000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893033-2104200920011487-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892518.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893190-2104200437412122-ss1-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892463-2104200511321487-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891930-191004051717100707-320x200.jpg"></a>
 <a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891843-2104192326551487-320x200.jpg"></a>
-<a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/19/n12890067.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12890526-190801081734100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank">洪基退伍分享近况 透露音乐、综艺等活动计划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892601.md#1" target="_blank">SHINee宣传期落幕 KEY会更努力苦恼结尾动作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892329.md#1" target="_blank">2PM准备出新专辑获公司证实 具体日期未定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12891950.md#1" target="_blank">姜丹尼尔迷你三辑首周热销31万张 MV也获佳绩</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank">泰民5月31日入伍进军乐队 直播中感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnmtsc3385/djy/blob/master/gb/21/4/19/n12889939.md#1" target="_blank">盖瑞欧德曼新片揭医药犯罪系统 自荐当监制　</a></h4></td></tr>
