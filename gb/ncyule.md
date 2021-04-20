@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a><br></h3><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/09/1_meitu_1-57-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank">黄秋生又来台接受隔离 申请就业金卡已获准</a><br></h3><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887911-2101060411422122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891930-191004051717100707-320x200.jpg"></a>
 <a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12890067.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12890526-190801081734100707-320x200.jpg"></a>
 <a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12890752-2104190341422122-ss1-320x200.jpg"></a>
 <a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889069.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12889161-181214124941100707-320x200.jpg"></a>
 <a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887837.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887861-1812240317232122-320x200.jpg"></a>
 <a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887634-2104180156591487-320x200.jpg"></a>
-<a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12887427-2104172252591487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank">泰民5月31日入伍进军乐队 直播中感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12890067.md#1" target="_blank">DAY6迷你七辑以爱为主题创作 无团体宣传活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889165.md#1" target="_blank">伯贤《Bambi》卖破百万张 连两作创百万销量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889729.md#1" target="_blank">穗珍陷争议 (G)I-DLE新歌音源与MV重制后推出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889069.md#1" target="_blank">TWICE准备6月发行新专辑 赴济州岛拍新歌MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889939.md#1" target="_blank">盖瑞欧德曼新片揭医药犯罪系统 自荐当监制　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887628.md#1" target="_blank">Ella电影上档 超强粉丝应援 S.H.E戏院合体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887324.md#1" target="_blank">因疫情2年没返日 大久保麻梨子忍泪视讯母亲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12891201.md#1" target="_blank">王力宏陪3儿女骑单车 满脸腮胡被说撞脸基努</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12891010.md#1" target="_blank">74岁资深艺人王钟去世 4个月内10位港星病故</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12890014.md#1" target="_blank">苏慧伦9月高雄开唱 4月抢听会先南下见歌迷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/16/n12883390.md#1" target="_blank">松村沙友理将自乃木坂46毕业 坦言会难过恐惧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/15/n12881077.md#1" target="_blank">石原聪美绫野刚新剧开播 剧名登推特趋势第1</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12890014.md#1" target="_blank">苏慧伦9月高雄开唱 4月抢听会先南下见歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889885.md#1" target="_blank">台剧《火神的眼泪》5月上档 片头曲今释出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889626.md#1" target="_blank">歌坛新人陈佩贤新曲搭剧 发现“主角都是偶像”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889258.md#1" target="_blank">李玖哲连开2场华山个唱 好友齐助攻</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/13/n12877768.md#1" target="_blank">陈惠敏点评香港武打明星 直呼成龙是耍杂技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
