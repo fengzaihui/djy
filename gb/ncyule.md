@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/16/n12883202.md#1" target="_blank">出席活动被人偶打到头 刘诗诗第一反应获称赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12891950.md#1" target="_blank">姜丹尼尔迷你三辑首周热销31万张 MV也获佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank">泰民5月31日入伍进军乐队 直播中感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12890067.md#1" target="_blank">DAY6迷你七辑以爱为主题创作 无团体宣传活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889165.md#1" target="_blank">伯贤《Bambi》卖破百万张 连两作创百万销量</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889729.md#1" target="_blank">穗珍陷争议 (G)I-DLE新歌音源与MV重制后推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/19/n12889939.md#1" target="_blank">盖瑞欧德曼新片揭医药犯罪系统 自荐当监制　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsfxrt319/djy/blob/master/gb/21/4/18/n12887676.md#1" target="_blank">昔《红娘》主持田文仲 年近八旬自曝罹声门癌</a></h4></td></tr>
