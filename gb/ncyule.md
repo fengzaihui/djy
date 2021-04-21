@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12895001.md#1" target="_blank">吴慷仁急诊住院 邵雨薇甜蜜陪伴报平安</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12895176.md#1" target="_blank">赶拍片又写歌徐若瑄忙翻 母亲节盼收手写卡片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894916.md#1" target="_blank">结束《医学大联盟》代班 钟欣凌喜收特制花束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894691.md#1" target="_blank">《植剧场》2代星出炉 8位新星各展奇招获青睐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892611.md#1" target="_blank">金钟视后刘瑞琪：生活是个练功场 活出自己的能量</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894172.md#1" target="_blank">滨口优将为人父 与南明奈拍片宣布怀胎五个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
