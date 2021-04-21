@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12892529.md#1" target="_blank">吴宗宪植牙脸肿瘀青 Sandy：不配合医师养病</a><br></h3><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12892529.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892607-7460a02261dc384ef893c7db2818019e-589x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a><br></h3><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/08/1_meitu_1-10-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/21/n12894691.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894744-2104210201031487-320x200.jpg"></a>
 <a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893244-1612032351351487-320x200.jpg"></a>
 <a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12893000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893033-2104200920011487-320x200.jpg"></a>
 <a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12892518.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893190-2104200437412122-ss1-320x200.jpg"></a>
 <a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892463-2104200511321487-320x200.jpg"></a>
 <a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891930-191004051717100707-320x200.jpg"></a>
-<a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891843-2104192326551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/19/n12889939.md#1" target="_blank">盖瑞欧德曼新片揭医药犯罪系统 自荐当监制　</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/21/n12894691.md#1" target="_blank">《植剧场》2代星出炉 8位新星各展奇招获青睐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12892611.md#1" target="_blank">金钟视后刘瑞琪：生活是个练功场 活出自己的能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/20/n12893000.md#1" target="_blank">吴慷仁突挂急诊住院 自嘲“发烧就变弱鸡”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/21/n12894172.md#1" target="_blank">滨口优将为人父 与南明奈拍片宣布怀胎五个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mkpdrk3036/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
