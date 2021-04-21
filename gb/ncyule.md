@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892529.md#1" target="_blank">吴宗宪植牙脸肿瘀青 Sandy：不配合医师养病</a><br></h3><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892529.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892607-7460a02261dc384ef893c7db2818019e-589x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a><br></h3><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/08/1_meitu_1-10-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894955.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894969-210312034024100707-320x200.jpg"></a>
 <a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894691.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894744-2104210201031487-320x200.jpg"></a>
 <a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893244-1612032351351487-320x200.jpg"></a>
 <a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12893000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893033-2104200920011487-320x200.jpg"></a>
 <a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892518.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893190-2104200437412122-ss1-320x200.jpg"></a>
 <a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892463-2104200511321487-320x200.jpg"></a>
-<a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12891688.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12891930-191004051717100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894955.md#1" target="_blank">Rosé《R》热销50万张 女Solo歌手睽违19年佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894231.md#1" target="_blank">艺声5月发行迷你四辑 新歌MV本月抢先公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank">洪基退伍分享近况 透露音乐、综艺等活动计划</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892601.md#1" target="_blank">SHINee宣传期落幕 KEY会更努力苦恼结尾动作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894916.md#1" target="_blank">结束《医学大联盟》代班 钟欣凌喜收特制花束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
