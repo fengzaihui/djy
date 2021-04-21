@@ -27,7 +27,7 @@
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura》获日榜冠军 团员练舞头晕目眩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894231.md#1" target="_blank">艺声5月发行迷你四辑 新歌MV本月抢先公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank">洪基退伍分享近况 透露音乐、综艺等活动计划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892601.md#1" target="_blank">SHINee宣传期落幕 KEY会更努力苦恼结尾动作</a></h4></td></tr>
@@ -39,7 +39,7 @@
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894691.md#1" target="_blank">《植剧场》2代星出炉 8位新星各展奇招获青睐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/20/n12892611.md#1" target="_blank">金钟视后刘瑞琪：生活是个练功场 活出自己的能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura》获日榜冠军 团员练舞头晕目眩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/21/n12894172.md#1" target="_blank">滨口优将为人父 与南明奈拍片宣布怀胎五个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvyvpc327/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
