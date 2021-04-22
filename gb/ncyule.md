@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a><br></h3><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894128-1411120927272384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a><br></h3><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893840-Screen-Shot-04-20-21-at-06.37-PM-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895458-210421075737100707-320x200.jpg"></a>
+<a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/22/n12896878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12896940-2104212353421487-320x200.jpg"></a>
 <a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895176.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895753-2104210946341470-ss1-320x200.jpg"></a>
 <a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894955.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894969-210312034024100707-320x200.jpg"></a>
 <a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894691.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894744-2104210201031487-320x200.jpg"></a>
 <a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893244-1612032351351487-320x200.jpg"></a>
-<a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12893000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893033-2104200920011487-320x200.jpg"></a>
-<a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12892463-2104200511321487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank">《富比士》亚洲杰出青年 IU、秀智、华莎等获选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894955.md#1" target="_blank">Rosé《R》热销50万张 女Solo歌手睽违19年佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894231.md#1" target="_blank">艺声5月发行迷你四辑 新歌MV本月抢先公开</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12893232.md#1" target="_blank">洪基退伍分享近况 透露音乐、综艺等活动计划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894916.md#1" target="_blank">结束《医学大联盟》代班 钟欣凌喜收特制花束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/22/n12896878.md#1" target="_blank">世界地球日 艺人分享生活中的环保习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12896077.md#1" target="_blank">梁朝伟《尚气》释预告 五造型获赞气场盖主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895498.md#1" target="_blank">Janet任爱心鲜奶大使 持续为公益发声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895176.md#1" target="_blank">赶拍片又写歌徐若瑄忙翻 母亲节盼收手写卡片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894172.md#1" target="_blank">滨口优将为人父 与南明奈拍片宣布怀胎五个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
