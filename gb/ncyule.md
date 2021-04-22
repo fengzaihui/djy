@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/22/n12896992.md#1" target="_blank">前BTOB成员镒勋为呼麻逾百次致歉：由衷反省</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank">《富比士》亚洲杰出青年 IU、秀智、华莎等获选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894955.md#1" target="_blank">Rosé《R》热销50万张 女Solo歌手睽违19年佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894231.md#1" target="_blank">艺声5月发行迷你四辑 新歌MV本月抢先公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894916.md#1" target="_blank">结束《医学大联盟》代班 钟欣凌喜收特制花束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12892173.md#1" target="_blank">千位试镜脱颖而出 天才女童星首次演戏就入魂</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/22/n12897232.md#1" target="_blank">魏如萱新歌难度高 挑战极限跨越19度音域</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/22/n12896878.md#1" target="_blank">世界地球日 艺人分享生活中的环保习惯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12896077.md#1" target="_blank">梁朝伟《尚气》释预告 五造型获赞气场盖主角</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895498.md#1" target="_blank">Janet任爱心鲜奶大使 持续为公益发声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12894172.md#1" target="_blank">滨口优将为人父 与南明奈拍片宣布怀胎五个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/16/n12883629.md#1" target="_blank">宫胁咲良被当救命恩人：会持续为粉丝展露笑容</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/22/n12897232.md#1" target="_blank">魏如萱新歌难度高 挑战极限跨越19度音域</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/21/n12895739.md#1" target="_blank">“鹿洐人”鼓手为发片甩13公斤 快速瘦身有秘招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/19/n12890014.md#1" target="_blank">苏慧伦9月高雄开唱 4月抢听会先南下见歌迷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/19/n12889885.md#1" target="_blank">台剧《火神的眼泪》5月上档 片头曲今释出</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hpdshy3175/djy/blob/master/gb/21/4/15/n12882914.md#1" target="_blank">梁朝伟苍老近照曝光 满脸皱纹惊呆网友</a></h4></td></tr>
