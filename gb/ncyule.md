@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a><br></h3><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894128-1411120927272384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a><br></h3><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12893840-Screen-Shot-04-20-21-at-06.37-PM-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897816-2102202136441487-320x200.jpg"></a>
 <a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897531-2104220408391487-320x200.jpg"></a>
 <a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895458-210421075737100707-320x200.jpg"></a>
 <a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12896878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12896940-2104212353421487-320x200.jpg"></a>
 <a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12895176.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895753-2104210946341470-ss1-320x200.jpg"></a>
 <a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12894955.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894969-210312034024100707-320x200.jpg"></a>
-<a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12894691.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12894744-2104210201031487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank">《富比士》亚洲杰出青年 IU、秀智、华莎等获选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12894955.md#1" target="_blank">Rosé《R》热销50万张 女Solo歌手睽违19年佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12894916.md#1" target="_blank">结束《医学大联盟》代班 钟欣凌喜收特制花束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/20/n12892433.md#1" target="_blank">《一家之主》鲍起静、柯佳嬿演出疗愈家庭片</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12897232.md#1" target="_blank">魏如萱新歌难度高 挑战极限跨越19度音域</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/22/n12896878.md#1" target="_blank">世界地球日 艺人分享生活中的环保习惯</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/21/n12894172.md#1" target="_blank">滨口优将为人父 与南明奈拍片宣布怀胎五个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gjvrso3175/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank">《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
