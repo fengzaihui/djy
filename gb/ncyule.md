@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12899061.md#1" target="_blank">频被吐槽体形壮硕 蒋欣大方回应身材争议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12898877.md#1" target="_blank">王俊凯套塑料袋泡脚 被专家指无效养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/23/n12899395.md#1" target="_blank">ENHYPEN第二张迷你专辑 预售19天卖破45万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank">SEVENTEEN第三张日文单曲 公信榜等多榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897819.md#1" target="_blank">宫胁咲良谈“花路”：莫以己见评断他人的幸福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12896992.md#1" target="_blank">前BTOB成员镒勋为呼麻逾百次致歉：由衷反省</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/23/n12899837.md#1" target="_blank">《世界第一等》推“双帅主持” 趣味互动吸睛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
