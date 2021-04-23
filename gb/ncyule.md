@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/22/n12897841.md#1" target="_blank">杨祐宁当电视剧监制：会让剧组有时间顾小孩</a><br></h3><a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/22/n12897841.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897843-01bb309d6400edbeba384c18e82a148d-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/23/n12900172.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12900173-DSC_3428-320x200.jpg"></a>
+<a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12899770-2104230145001487-320x200.jpg"></a>
+<a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897808-190129092235100707-320x200.jpg"></a>
 <a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897816-2102202136441487-320x200.jpg"></a>
 <a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897531-2104220408391487-320x200.jpg"></a>
 <a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895458-210421075737100707-320x200.jpg"></a>
-<a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/22/n12896878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12896940-2104212353421487-320x200.jpg"></a>
-<a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/21/n12895176.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895753-2104210946341470-ss1-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emcfkp3094/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
