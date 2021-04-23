@@ -23,10 +23,10 @@
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank">赵丽颖、冯绍峰宣布离婚 孩子共同抚养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12899061.md#1" target="_blank">频被吐槽体形壮硕 蒋欣大方回应身材争议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12898877.md#1" target="_blank">王俊凯套塑料袋泡脚 被专家指无效养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/20/n12893563.md#1" target="_blank">黄晓明杨颖罕见同框 话题登热搜吸引5亿点阅</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank">SEVENTEEN第三张日文单曲 公信榜等多榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897819.md#1" target="_blank">宫胁咲良谈“花路”：莫以己见评断他人的幸福</a></h4></td></tr>
@@ -52,11 +52,11 @@
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank">吐槽一男子开车乱扔烟头 舒淇获赞生气也可爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank">黄秋生又来台接受隔离 申请就业金卡已获准</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank">黄秋生又来台接受隔离 申请就业金卡已获准</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/19/n12891201.md#1" target="_blank">王力宏陪3儿女骑单车 满脸腮胡被说撞脸基努</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ngvgxn331/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/ngvgxn331/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ngvgxn331/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/ngvgxn331/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
