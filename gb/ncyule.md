@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12898877.md#1" target="_blank">王俊凯套塑料袋泡脚 被专家指无效养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/20/n12893563.md#1" target="_blank">黄晓明杨颖罕见同框 话题登热搜吸引5亿点阅</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank">SEVENTEEN第三张日文单曲 公信榜等多榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897819.md#1" target="_blank">宫胁咲良谈“花路”：莫以己见评断他人的幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12896992.md#1" target="_blank">前BTOB成员镒勋为呼麻逾百次致歉：由衷反省</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank">《富比士》亚洲杰出青年 IU、秀智、华莎等获选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12894916.md#1" target="_blank">结束《医学大联盟》代班 钟欣凌喜收特制花束</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897850.md#1" target="_blank">动力火车尤秋兴曾借钱给多人 累计百万讨不回</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank">SEVENTEEN第三张日文单曲 公信榜等多榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897819.md#1" target="_blank">宫胁咲良谈“花路”：莫以己见评断他人的幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12894172.md#1" target="_blank">滨口优将为人父 与南明奈拍片宣布怀胎五个月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/22/n12897232.md#1" target="_blank">魏如萱新歌难度高 挑战极限跨越19度音域</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12895739.md#1" target="_blank">“鹿洐人”鼓手为发片甩13公斤 快速瘦身有秘招</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank">吐槽一男子开车乱扔烟头 舒淇获赞生气也可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank">黄秋生又来台接受隔离 申请就业金卡已获准</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/19/n12891201.md#1" target="_blank">王力宏陪3儿女骑单车 满脸腮胡被说撞脸基努</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ngvgxn331/djy/blob/master/gb/21/4/20/n12893721.md#1" target="_blank">《不割席》入围奥斯卡 影片导演呛声中共禁令</a></h4></td></tr>
