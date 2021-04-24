@@ -12,11 +12,11 @@
 <a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895458-210421075737100707-320x200.jpg"></a>
 <a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/22/n12896878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12896940-2104212353421487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/9/n12868036.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12868040-492144-320x200.jpg"><br>《真人快打》影评：尽显动作片本色的作品</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -49,13 +49,13 @@
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/17/n12887210.md#1" target="_blank">那英《浪姐2》总决赛夺冠 陷假唱疑云登热搜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank">吐槽一男子开车乱扔烟头 舒淇获赞生气也可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/18/n12888617.md#1" target="_blank">吐槽一男子开车乱扔烟头 舒淇获赞生气也可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/18/n12887909.md#1" target="_blank">黄秋生又来台接受隔离 申请就业金卡已获准</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ptlgct3925/djy/blob/master/gb/21/4/18/n12888429.md#1" target="_blank">赵丽颖台上不慎掉耳环 救场四步骤获赞超专业</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ptlgct3925/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
