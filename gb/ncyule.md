@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a><br></h3><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/duwenze_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a><br></h3><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12901446-zhaoliying-fengshaofeng-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903637-2104250411081487-320x200.jpg"></a>
 <a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12902294-200609221434100707-320x200.jpg"></a>
 <a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12899770-2104230145001487-320x200.jpg"></a>
 <a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897808-190129092235100707-320x200.jpg"></a>
 <a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897816-2102202136441487-320x200.jpg"></a>
 <a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897531-2104220408391487-320x200.jpg"></a>
-<a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/21/n12895211.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895458-210421075737100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12900082.md#1" target="_blank">上节目反应慢半拍 陈随意自嘲：我好像失智了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12899837.md#1" target="_blank">《世界第一等》推“双帅主持” 趣味互动吸睛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank">玖壹壹首登“北流”开唱 周董等多位明星捧场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/25/n12903597.md#1" target="_blank">林逸欣情定7年男友 曝婚讯“一起慢慢变老”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/25/n12903398.md#1" target="_blank">自嘲出道被骂红 郭书瑶：若有不足被讲会难受</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/25/n12903278.md#1" target="_blank">动力火车开唱引发抢票 苗栗场也首现“票荒”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12901054.md#1" target="_blank">前田敦子与胜地凉宣布离婚 将协力养育独子</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank">SEVENTEEN第三张日文单曲 公信榜等多榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12897819.md#1" target="_blank">宫胁咲良谈“花路”：莫以己见评断他人的幸福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank">玖壹壹首登“北流”开唱 周董等多位明星捧场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/23/n12900478.md#1" target="_blank">温岚沉寂5年曝近况 赴上海检测“捅”到喷泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12897232.md#1" target="_blank">魏如萱新歌难度高 挑战极限跨越19度音域</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/21/n12895739.md#1" target="_blank">“鹿洐人”鼓手为发片甩13公斤 快速瘦身有秘招</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/20/n12891799.md#1" target="_blank">吴汶芳带300人净滩 坚持做对事不怕闲言闲语</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/19/n12889946.md#1" target="_blank">澎恰恰欠2亿债 吴申梅愿借钱度难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vkocbf3490/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
