@@ -31,9 +31,9 @@
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank">尹汝贞摘奥斯卡最佳女配角 谦逊感言获满堂彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank">BLACKPINK再创纪录 拥4支逾10亿次观看MV</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等3奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等3奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12903403.md#1" target="_blank">漫威筹拍《美国队长4》 麦基或将接棒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905761.md#1" target="_blank">黄美珍体会相处难 初期与夫“磨铁磨出刃”</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
