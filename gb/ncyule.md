@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903403.md#1" target="_blank">漫威筹拍《美国队长4》 麦基或将接棒</a><br></h3><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903403.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903421-GettyImages-1208480958-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903597.md#1" target="_blank">林逸欣情定7年男友 曝婚讯“一起慢慢变老”</a><br></h3><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903597.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903608-2007240509512122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905539-2102040301351487-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905077-210425224554100707-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12904344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/02/1702030826121487-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903637-2104250411081487-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12902294-200609221434100707-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12899770-2104230145001487-320x200.jpg"></a>
-<a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897808-190129092235100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank">BLACKPINK再创纪录 拥4支逾10亿次观看MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899395.md#1" target="_blank">ENHYPEN第二张迷你专辑 预售19天卖破45万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主！安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">赵婷《游牧人生》摘奥斯卡最佳导演最佳影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903403.md#1" target="_blank">漫威筹拍《美国队长4》 麦基或将接棒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12900599.md#1" target="_blank">《玩很大》首赴屏东出外景 吸引近千民众围观</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12900082.md#1" target="_blank">上节目反应慢半拍 陈随意自嘲：我好像失智了</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主！安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">赵婷《游牧人生》摘奥斯卡最佳导演最佳影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12904344.md#1" target="_blank">7岁妮妮不想过生日 Kim得知原因感动洒泪</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank">玖壹壹首登“北流”开唱 周董等多位明星捧场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12901054.md#1" target="_blank">前田敦子与胜地凉宣布离婚 将协力养育独子</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank">SEVENTEEN第三张日文单曲 公信榜等多榜夺冠</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/binwlg317/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/binwlg317/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/binwlg317/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/binwlg317/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
