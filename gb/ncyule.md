@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903597.md#1" target="_blank">林逸欣情定7年男友 曝婚讯“一起慢慢变老”</a><br></h3><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903597.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903608-2007240509512122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905539-2102040301351487-320x200.jpg"></a>
-<a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905077-210425224554100707-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12904344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/02/1702030826121487-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903637-2104250411081487-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12902294-200609221434100707-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12899770-2104230145001487-320x200.jpg"></a>
+<a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12897379.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12897808-190129092235100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
