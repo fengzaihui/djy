@@ -12,11 +12,11 @@
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12902294-200609221434100707-320x200.jpg"></a>
 <a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12899770-2104230145001487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/15/n12880852.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12880863-493094-320x200.jpg"><br>《爱与怪物》影评：充满怪物的世界 也能充分展现温情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/10/n12871391.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12871393-492343-320x200.jpg"><br>《铁幕行动》影评：一位平凡商人 化身情报战要角</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -31,11 +31,11 @@
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank">BLACKPINK再创纪录 拥4支逾10亿次观看MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899395.md#1" target="_blank">ENHYPEN第二张迷你专辑 预售19天卖破45万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12899333.md#1" target="_blank">IZ*ONE日本演唱会DVD 空降公信榜周榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主！安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">赵婷《游牧人生》摘奥斯卡最佳导演最佳影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12903403.md#1" target="_blank">漫威筹拍《美国队长4》 麦基或将接棒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/23/n12900599.md#1" target="_blank">《玩很大》首赴屏东出外景 吸引近千民众围观</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主！安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">赵婷《游牧人生》摘奥斯卡最佳导演最佳影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/binwlg317/djy/blob/master/gb/21/4/25/n12904344.md#1" target="_blank">7岁妮妮不想过生日 Kim得知原因感动洒泪</a></h4></td></tr>
