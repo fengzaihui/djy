@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank">尹汝贞摘奥斯卡最佳女配角 谦逊感言获满堂彩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank">BLACKPINK再创纪录 拥4支逾10亿次观看MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12899395.md#1" target="_blank">ENHYPEN第二张迷你专辑 预售19天卖破45万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">赵婷《游牧人生》摘奥斯卡最佳导演最佳影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12903403.md#1" target="_blank">漫威筹拍《美国队长4》 麦基或将接棒</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12900599.md#1" target="_blank">《玩很大》首赴屏东出外景 吸引近千民众围观</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905761.md#1" target="_blank">黄美珍体会相处难 初期与夫“磨铁磨出刃”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">赵婷《游牧人生》摘奥斯卡最佳导演最佳影片</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905874.md#1" target="_blank">中尾明庆发烧后确诊染疫 妻仲里依纱未感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12901054.md#1" target="_blank">前田敦子与胜地凉宣布离婚 将协力养育独子</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/qmsvrr394/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/qmsvrr394/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qmsvrr394/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/qmsvrr394/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
