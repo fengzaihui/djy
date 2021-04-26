@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofbisf307/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
