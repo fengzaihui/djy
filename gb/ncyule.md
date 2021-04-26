@@ -49,8 +49,8 @@
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897232.md#1" target="_blank">魏如萱新歌难度高 挑战极限跨越19度音域</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
