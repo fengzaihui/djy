@@ -32,9 +32,9 @@
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank">BLACKPINK再创纪录 拥4支逾10亿次观看MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12899395.md#1" target="_blank">ENHYPEN第二张迷你专辑 预售19天卖破45万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演及影片奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12903403.md#1" target="_blank">漫威筹拍《美国队长4》 麦基或将接棒</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12900599.md#1" target="_blank">《玩很大》首赴屏东出外景 吸引近千民众围观</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905761.md#1" target="_blank">黄美珍体会相处难 初期与夫“磨铁磨出刃”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
@@ -51,10 +51,10 @@
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/20/n12891489.md#1" target="_blank">新剧演少女体形遭酸 刘涛直播卸妆引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/21/n12896272.md#1" target="_blank">被误认为张曼玉 刘嘉玲高EQ回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897522.md#1" target="_blank">李天柱夫妻信仰当桥梁 育儿重视人格教养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qmsvrr394/djy/blob/master/gb/21/4/21/n12893952.md#1" target="_blank">关锦鹏曝拍摄《胭脂扣》秘辛 指成龙险毁经典</a></h4></td></tr>
