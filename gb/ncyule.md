@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12906690.md#1" target="_blank">港星林芊妤怀孕期间打疫苗 流产后坦言后悔</a><br></h3><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12906690.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/03/Fotolia_77230839_Subscription_L-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a><br></h3><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905153-2104252327321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908549.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908552-DSC_3793-320x200.jpg"></a>
+<a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908549.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12909065-2104270601232122-ss1-320x200.jpg"></a>
+<a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908279.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908314-2104270430061487-320x200.jpg"></a>
 <a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907734-2104262341041487-320x200.jpg"></a>
 <a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906016-2101270710051487-320x200.jpg"></a>
 <a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906000-2104260617511487-320x200.jpg"></a>
 <a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905539-2102040301351487-320x200.jpg"></a>
-<a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/25/n12904344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/02/1702030826121487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908549.md#1" target="_blank">《火神》750万搭景一天就烧光 温昇豪拍戏受伤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908463.md#1" target="_blank">林俊杰发行全英文EP 首与英国女歌手对唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908279.md#1" target="_blank">A-Lin曝歌单主题玩法 母亲节开唱中度过</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908525.md#1" target="_blank">土屋太凤与NAOTO啖烧肉 寻秘密食谱找回人生路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank">二宫和也与伙伴开设YouTube频道 订阅破百万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905874.md#1" target="_blank">中尾明庆发烧后确诊染疫 妻仲里依纱未感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/23/n12901054.md#1" target="_blank">前田敦子与胜地凉宣布离婚 将协力养育独子</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908463.md#1" target="_blank">林俊杰发行全英文EP 首与英国女歌手对唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905761.md#1" target="_blank">黄美珍体会相处难 初期与夫“磨铁磨出刃”</a></h4></td></tr>
