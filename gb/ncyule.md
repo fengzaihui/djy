@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank">《植剧场2》与台湾作家合作 筹备拍8部台剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908463.md#1" target="_blank">林俊杰发行全英文EP 首与英国女歌手对唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908279.md#1" target="_blank">A-Lin曝歌单主题玩法 母亲节开唱中度过</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908056.md#1" target="_blank">夏于乔舞台剧首演感动母亲 夫林书宇哽咽称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank">《植剧场2》与台湾作家合作 筹备拍8部台剧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12907088.md#1" target="_blank">2岁儿子超成熟回话 隋棠惊呼：老成宝宝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank">二宫和也与伙伴开设YouTube频道 订阅破百万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905874.md#1" target="_blank">中尾明庆发烧后确诊染疫 妻仲里依纱未感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/23/n12901054.md#1" target="_blank">前田敦子与胜地凉宣布离婚 将协力养育独子</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/27/n12908463.md#1" target="_blank">林俊杰发行全英文EP 首与英国女歌手对唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/26/n12905761.md#1" target="_blank">黄美珍体会相处难 初期与夫“磨铁磨出刃”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank">玖壹壹首登“北流”开唱 周董等多位明星捧场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/23/n12900478.md#1" target="_blank">温岚沉寂5年曝近况 赴上海检测“捅”到喷泪</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ewwcqx3979/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
