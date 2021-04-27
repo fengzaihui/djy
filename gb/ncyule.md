@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a><br></h3><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905153-2104252327321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank">尹汝贞摘奥斯卡最佳女配角 谦逊感言获满堂彩</a><br></h3><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905077-210425224554100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/27/n12907501.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907505-200218021002100707-320x200.jpg"></a>
 <a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906016-2101270710051487-320x200.jpg"></a>
 <a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906000-2104260617511487-320x200.jpg"></a>
 <a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905539-2102040301351487-320x200.jpg"></a>
 <a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/25/n12904344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/02/1702030826121487-320x200.jpg"></a>
 <a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903637-2104250411081487-320x200.jpg"></a>
-<a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12902294-200609221434100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank">赵丽颖、冯绍峰宣布离婚 孩子共同抚养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/22/n12899061.md#1" target="_blank">频被吐槽体形壮硕 蒋欣大方回应身材争议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/22/n12898877.md#1" target="_blank">王俊凯套塑料袋泡脚 被专家指无效养生</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/27/n12907501.md#1" target="_blank">李光洙车祸后难兼顾健康 5月底退出《RM》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12906300.md#1" target="_blank">朴宝英开设个人官方IG 新戏下月开播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank">尹汝贞摘奥斯卡最佳女配角 谦逊感言获满堂彩</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/24/n12902173.md#1" target="_blank">BLACKPINK再创纪录 拥4支逾10亿次观看MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zbuxle341/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
