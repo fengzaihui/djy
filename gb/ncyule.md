@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a><br></h3><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905153-2104252327321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank">尹汝贞摘奥斯卡最佳女配角 谦逊感言获满堂彩</a><br></h3><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905077-210425224554100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907734-2104262341041487-320x200.jpg"></a>
 <a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/27/n12907501.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907505-200218021002100707-320x200.jpg"></a>
 <a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906016-2101270710051487-320x200.jpg"></a>
 <a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906000-2104260617511487-320x200.jpg"></a>
 <a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905539-2102040301351487-320x200.jpg"></a>
 <a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/25/n12904344.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/02/1702030826121487-320x200.jpg"></a>
-<a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/25/n12903624.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12903637-2104250411081487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12906300.md#1" target="_blank">朴宝英开设个人官方IG 新戏下月开播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905001.md#1" target="_blank">尹汝贞摘奥斯卡最佳女配角 谦逊感言获满堂彩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank">《植剧场2》与台湾作家合作 筹备拍8部台剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank">最年长得主 安东尼霍普金斯再封奥斯卡影帝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank">《植剧场2》与台湾作家合作 筹备拍8部台剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12907088.md#1" target="_blank">2岁儿子超成熟回话 隋棠惊呼：老成宝宝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12906690.md#1" target="_blank">港星林芊妤怀孕期间打疫苗 流产后坦言后悔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank">大霈聊逐梦 “不以人气或名利作为目标”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905761.md#1" target="_blank">黄美珍体会相处难 初期与夫“磨铁磨出刃”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank">二宫和也与伙伴开设YouTube频道 订阅破百万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905874.md#1" target="_blank">中尾明庆发烧后确诊染疫 妻仲里依纱未感染</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oebscq323/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
