@@ -33,7 +33,7 @@
 
 
 这.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月26日 2:57 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/28/n12910568.md#1" target="_blank">袁斌：抗战胜利后谁挑起了内战？</a><br></h3>关于抗战结束后接踵而来的那场内战，中共一直都说是国民党挑起的，其实不然！......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月28日 4:09 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905134.md#1" target="_blank">一部反人类犯罪的历史——中共百年历史谈</a><br></h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905134.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/01/A1--150x120.jpg" align ="left"></a>......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月26日 11:53 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/28/n12910485.md#1" target="_blank">慧真：勿被红歌迷 觉醒弃赤魔</a><br></h3>大陆唱红歌 歌皆吹红魔
 魔本邪灵魂 魂附赤龙恶
 恶生九州悲 悲泣哭山河
