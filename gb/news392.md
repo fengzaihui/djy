@@ -34,7 +34,15 @@
 这.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月26日 2:57 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905134.md#1" target="_blank">一部反人类犯罪的历史——中共百年历史谈</a><br></h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905134.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/01/A1--150x120.jpg" align ="left"></a>......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月26日 11:53 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12904831.md#1" target="_blank">古风：是谁授意央视踢爆中共假扶贫？</a><br></h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12904831.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2012/04/1204250943522343-150x120.jpg" align ="left"></a>中共之所以高调突出“运动式扶贫”，一方面是为了借此掩盖中共在香港和新疆等地的人权问题，另一方面是为了掩盖中共外交全面失利的尴尬。然而，就在中共全国脱贫攻坚总结表彰大会的余热未过时，央视记者却爆出习近平家乡假脱贫丑闻。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月26日 11:14 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/25/n12904717.md#1" target="_blank">王友群：中共为什么封杀温家宝的文章？</a><br></h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/25/n12904717.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/04/id12904721-bd9b7d817102f672d990decaf6d31ec0-150x120.jpeg" align ="left"></a>今年清明节前夕，前中共国务院总理温家宝，在一家很多人都没有听说的地方报纸——《澳门导报》上，发表了一篇纪念去年年末去世母亲的文章，竟被中共全网封杀。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月26日 7:57 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/28/n12910485.md#1" target="_blank">慧真：勿被红歌迷 觉醒弃赤魔</a><br></h3>大陆唱红歌 歌皆吹红魔
+魔本邪灵魂 魂附赤龙恶
+恶生九州悲 悲泣哭山河
+河殇金瓯缺 缺因共日结
+结果红魔摘 摘吞搞分裂
+裂中见内战 战乱民难多
+多见共产凶 凶煞致灾祸
+祸害三五反 反右毛贼邪
+邪有大跃进 进言皆胡说......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月28日 2:15 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12907005.md#1" target="_blank">【纪元专栏】2021年加国联邦预算大耗国家之资</a><br></h3>今年加拿大联邦政府预算案4月19日最终出来，人们发现，特鲁多领导的自由党政府仍保持其一贯特色，即无视政府不断膨胀的债务，继续寅吃卯粮。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月27日 4:05 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905585.md#1" target="_blank">灵根自植?长戚戚</a><br></h3>“平生不作亏心事，夜半敲门也不惊”，自家摆酒设宴，主人家不在场献辞祝酒，怕的是什么？多年来鬼话连篇的大外宣和无法无天，一朝自己戮破揭穿，这台戏怎样唱下去？“君子坦荡荡，小人长戚戚”，赤魔岂无忧惧？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年04月26日 6:43 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905934.md#1" target="_blank">千百度：网友吐槽五一调休“折腾劳动者”</a><br></h3>眼看着一年一度的五一假期就要到了。
