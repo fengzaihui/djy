@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12909510.md#1" target="_blank">刘诗诗自曝当妈超甜蜜 育儿经获赞堪称教科书</a><br></h3><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12909510.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/liu-shishi-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12909289.md#1" target="_blank">随周润发天天行山 79岁男星爆对方暖心细节</a><br></h3><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12909289.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12909388-lu-haipeng-zhou-runfa-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12911432.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12911468-2104280923441487-320x200.jpg"></a>
 <a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12910068-210427232809100707-320x200.jpg"></a>
 <a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12908549.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12909065-2104270601232122-ss1-320x200.jpg"></a>
 <a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12908279.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908314-2104270430061487-320x200.jpg"></a>
 <a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907734-2104262341041487-320x200.jpg"></a>
 <a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906016-2101270710051487-320x200.jpg"></a>
-<a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906000-2104260617511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12908056.md#1" target="_blank">夏于乔舞台剧首演感动母亲 夫林书宇哽咽称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank">《植剧场2》与台湾作家合作 筹备拍8部台剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12911432.md#1" target="_blank">Janet心疼7岁柔道童 提虐童新闻难过泛泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12910930.md#1" target="_blank">全天候陪伴 彭佳慧：小孩就是生活的全部</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12910923.md#1" target="_blank">吴念真酝酿7年剧作 《人间条件七》8月开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12910672.md#1" target="_blank">陈雅琳肩扛新闻台重任 暂卸教职专心媒体工作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank">郎祖筠遭“邮局简讯”诈骗 存款消失火速报警</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank">日本票选K-POP男团人气榜 BTS夺冠SJ也入选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/27/n12908525.md#1" target="_blank">土屋太凤与NAOTO啖烧肉 寻秘密食谱找回人生路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/efqihy3582/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank">二宫和也与伙伴开设YouTube频道 订阅破百万</a></h4></td></tr>
