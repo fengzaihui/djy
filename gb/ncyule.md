@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a><br></h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907354-GettyImages-477526490-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12907088.md#1" target="_blank">2岁儿子超成熟回话 隋棠惊呼：老成宝宝</a><br></h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12907088.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/12/1807120609312384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12910068-210427232809100707-320x200.jpg"></a>
 <a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908549.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12909065-2104270601232122-ss1-320x200.jpg"></a>
 <a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908279.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908314-2104270430061487-320x200.jpg"></a>
 <a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907734-2104262341041487-320x200.jpg"></a>
 <a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906016-2101270710051487-320x200.jpg"></a>
 <a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905977.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12906000-2104260617511487-320x200.jpg"></a>
-<a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905520.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12905539-2102040301351487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank">赵丽颖、冯绍峰宣布离婚 孩子共同抚养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/22/n12899061.md#1" target="_blank">频被吐槽体形壮硕 蒋欣大方回应身材争议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank">日本票选K-POP男团人气榜 BTS夺冠SJ也入选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908263.md#1" target="_blank">DAY6迷你七辑首周热销逾7万张 自身最佳成绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12907653.md#1" target="_blank">防弹少年团又推出英文歌 《Butter》5月21日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12907501.md#1" target="_blank">李光洙车祸后难兼顾健康 5月底退出《RM》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12906300.md#1" target="_blank">朴宝英开设个人官方IG 新戏下月开播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908056.md#1" target="_blank">夏于乔舞台剧首演感动母亲 夫林书宇哽咽称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank">《植剧场2》与台湾作家合作 筹备拍8部台剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908554.md#1" target="_blank">康康曝曾制止观众拿DV录影 反遭众多小弟包围</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908549.md#1" target="_blank">《火神》750万搭景一天就烧光 温昇豪拍戏受伤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908463.md#1" target="_blank">林俊杰发行全英文EP 首与英国女歌手对唱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank">日本票选K-POP男团人气榜 BTS夺冠SJ也入选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908525.md#1" target="_blank">土屋太凤与NAOTO啖烧肉 寻秘密食谱找回人生路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905952.md#1" target="_blank">二宫和也与伙伴开设YouTube频道 订阅破百万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905874.md#1" target="_blank">中尾明庆发烧后确诊染疫 妻仲里依纱未感染</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905331.md#1" target="_blank">“黄金周想看他演出”排行榜 岚夺冠BTS第三</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/27/n12908463.md#1" target="_blank">林俊杰发行全英文EP 首与英国女歌手对唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12907171.md#1" target="_blank">滚石乐队吉他手癌症复发 自曝靠绘画战胜病魔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905761.md#1" target="_blank">黄美珍体会相处难 初期与夫“磨铁磨出刃”</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kmyhax3748/djy/blob/master/gb/21/4/21/n12894710.md#1" target="_blank">TWICE《Kura Kura》日榜夺冠 团员练舞头晕目眩</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/kmyhax3748/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/kmyhax3748/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kmyhax3748/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/kmyhax3748/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
