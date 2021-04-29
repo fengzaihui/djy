@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12912612.md#1" target="_blank">苏慧伦上节目秀厨艺 全联先生化身迷弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/28/n12910672.md#1" target="_blank">陈雅琳肩扛新闻台重任 暂卸教职专心媒体工作</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12913679.md#1" target="_blank">疫情冲击海外演出取消 赵传损失约5千万元</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12913683.md#1" target="_blank">谈夫妻相处 隋棠：吵架会去想自己不对的地方</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12913357.md#1" target="_blank">桂纶镁携天心、夏于乔 出演《台北女子图鉴》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12912985.md#1" target="_blank">田馥甄清晨西门町取景 重拾高中“板妹”情怀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12912612.md#1" target="_blank">苏慧伦上节目秀厨艺 全联先生化身迷弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/29/n12912367.md#1" target="_blank">宫胁咲良谈IZ*ONE解散：活用经验走好未来的路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank">日本票选K-POP男团人气榜 BTS夺冠SJ也入选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/27/n12908525.md#1" target="_blank">土屋太凤与NAOTO啖烧肉 寻秘密食谱找回人生路</a></h4></td></tr>
@@ -51,12 +51,12 @@
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/22/n12898706.md#1" target="_blank">宁静耿直爆料：邓超曾被某制片人潜规则</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/22/n12897810.md#1" target="_blank">产检测出妊娠糖尿病 巴钰为胎儿戒糖管控饮食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank">郎祖筠遭“邮局简讯”诈骗 存款消失火速报警</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/22/n12897846.md#1" target="_blank">吴慷仁开工自曝险气切 甜谢邵雨薇“是救命恩人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/22/n12897819.md#1" target="_blank">宫胁咲良谈“花路”：莫以己见评断他人的幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/22/n12899061.md#1" target="_blank">频被吐槽体形壮硕 蒋欣大方回应身材争议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dltxxv330/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank">《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dltxxv330/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/dltxxv330/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dltxxv330/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/dltxxv330/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
