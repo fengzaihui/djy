@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910313.md#1" target="_blank">自我隔离期间再检疫 《星你》申成禄确诊染疫</a><br></h3><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910313.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12910795-181220022047100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank">郎祖筠遭“邮局简讯”诈骗 存款消失火速报警</a><br></h3><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12910564-2104280254571487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12913221-2104290243111487-320x200.jpg"></a>
+<a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12913001.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12913089-1809280648332384-320x200.jpg"></a>
 <a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12912367.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12912372-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12911432.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12911468-2104280923441487-320x200.jpg"></a>
 <a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12910068-210427232809100707-320x200.jpg"></a>
 <a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/27/n12908549.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12909065-2104270601232122-ss1-320x200.jpg"></a>
-<a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/27/n12908279.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908314-2104270430061487-320x200.jpg"></a>
-<a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12907734-2104262341041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/27/n12909510.md#1" target="_blank">刘诗诗自曝当妈超甜蜜 育儿经获赞堪称教科书</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/23/n12899738.md#1" target="_blank">赵丽颖、冯绍峰宣布离婚 孩子共同抚养</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12913001.md#1" target="_blank">娜恩不续旧约改投向YG娱乐 Apink维持六人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12912367.md#1" target="_blank">宫胁咲良谈IZ*ONE解散：活用经验走好未来的路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910828.md#1" target="_blank">伯贤《Bambi》销量创纪录 获Hanteo颁发奖牌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910313.md#1" target="_blank">自我隔离期间再检疫 《星你》申成禄确诊染疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank">日本票选K-POP男团人气榜 BTS夺冠SJ也入选</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12912612.md#1" target="_blank">苏慧伦上节目秀厨艺 全联先生化身迷弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910672.md#1" target="_blank">陈雅琳肩扛新闻台重任 暂卸教职专心媒体工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/27/n12908056.md#1" target="_blank">夏于乔舞台剧首演感动母亲 夫林书宇哽咽称赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/27/n12907631.md#1" target="_blank">《植剧场2》与台湾作家合作 筹备拍8部台剧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12912985.md#1" target="_blank">田馥甄清晨西门町取景 重拾高中“板妹”情怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12912612.md#1" target="_blank">苏慧伦上节目秀厨艺 全联先生化身迷弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12911794.md#1" target="_blank">古天乐自曝近视加老花 等有白内障一次动手术</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12911432.md#1" target="_blank">Janet心疼7岁柔道童 提虐童新闻难过泛泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/29/n12912367.md#1" target="_blank">宫胁咲良谈IZ*ONE解散：活用经验走好未来的路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank">日本票选K-POP男团人气榜 BTS夺冠SJ也入选</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/klropk3175/djy/blob/master/gb/21/4/27/n12908525.md#1" target="_blank">土屋太凤与NAOTO啖烧肉 寻秘密食谱找回人生路</a></h4></td></tr>
