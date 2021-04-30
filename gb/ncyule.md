@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12913001.md#1" target="_blank">娜恩不续旧约有望签约YG娱乐 Apink维持六人</a><br></h3><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12913001.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12913089-1809280648332384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915742.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12916182-200515071808100707-320x200.jpg"></a>
+<a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915577.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12915642-2104300220261487-320x200.jpg"></a>
 <a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12915207-210429224707100707-320x200.jpg"></a>
 <a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12913679.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12914223-2104291102121470-ss1-320x200.jpg"></a>
 <a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12913357.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12913370-2104290352301487-320x200.jpg"></a>
 <a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12913221-2104290243111487-320x200.jpg"></a>
-<a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/28/n12911432.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12911468-2104280923441487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/23/n12901477.md#1" target="_blank">杜汶泽脸书宣布：旗下网台永久聘用蔡玉玲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank">郎祖筠遭“邮局简讯”诈骗 存款消失火速报警</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank">郎祖筠遭“邮局简讯”诈骗 存款消失火速报警</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/23/n12901216.md#1" target="_blank">赵丽颖冯绍峰离婚登热搜 21亿点阅量被消失</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank">《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
