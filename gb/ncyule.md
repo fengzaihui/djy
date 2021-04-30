@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12912612.md#1" target="_blank">苏慧伦上节目秀厨艺 全联先生化身迷弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/28/n12910672.md#1" target="_blank">陈雅琳肩扛新闻台重任 暂卸教职专心媒体工作</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12916452.md#1" target="_blank">王乔尹低潮写歌还得奖 透露欣赏2位男星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12916032.md#1" target="_blank">匿名网友发文指控瑞莎 疑见风向不对悄删文</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915803.md#1" target="_blank">Lara预告情歌专辑 曾深陷单恋“3年才醒”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915577.md#1" target="_blank">连静雯生活忙碌：很多事老天爷都有安排</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915203.md#1" target="_blank">陈势安创作公益主题曲 金钟视后柯淑勤出演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915742.md#1" target="_blank">近藤真彦退出杰尼斯 将持续赛车与演艺事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/30/n12915263.md#1" target="_blank">BTS《Film out》MV观看破亿 创日文曲最速纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqafh324/djy/blob/master/gb/21/4/29/n12912367.md#1" target="_blank">宫胁咲良谈IZ*ONE解散：活用经验走好未来的路</a></h4></td></tr>
