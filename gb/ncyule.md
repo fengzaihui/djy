@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/30/n12916899.md#1" target="_blank">秦海璐自曝爱吃红烧肉 食量大到惊呆主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/29/n12914469.md#1" target="_blank">网民吁公开700明星补税名单 范冰冰点赞又收回</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/28/n12911929.md#1" target="_blank">汤唯与金泰勇补拍新片 朴宝剑暖心送餐车</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/5/1/n12917789.md#1" target="_blank">IZ*ONE活动期结束 SNS公开团体合照谢别粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/30/n12916454.md#1" target="_blank">TWICE官方YT频道获颁钻石按钮 感想是“好重”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/30/n12916291.md#1" target="_blank">李智勲10月与圈外人结婚 以亲笔信宣布婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/30/n12915263.md#1" target="_blank">BTS《Film out》MV观看破亿 创日文曲最速纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/30/n12915064.md#1" target="_blank">BTS入围告示牌音乐奖四奖 三韩团入围同一奖项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/29/n12913357.md#1" target="_blank">桂纶镁携天心、夏于乔 出演《台北女子图鉴》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/29/n12912612.md#1" target="_blank">苏慧伦上节目秀厨艺 全联先生化身迷弟</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/25/n12904623.md#1" target="_blank">台上献唱撞脸刘德华 港星江华模样惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank">郎祖筠遭“邮局简讯”诈骗 存款消失火速报警</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/29/n12914672.md#1" target="_blank">周星驰与刘德华30年没合作 网传原因离奇</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/28/n12910549.md#1" target="_blank">郎祖筠遭“邮局简讯”诈骗 存款消失火速报警</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/26/n12905099.md#1" target="_blank">奥斯卡揭晓 赵婷《游牧人生》获最佳导演等三奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/30/n12916032.md#1" target="_blank">匿名网友发文指控瑞莎 疑见风向不对悄删文</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/miondt3036/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank">《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
