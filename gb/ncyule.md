@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/3/n12920043.md#1" target="_blank">TWICE迷你十辑6月9日发行 台湾粉丝热议新作名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/1/n12917862.md#1" target="_blank">娜恩离社诉心声：Apink会再聚 请陪在我身边</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/1/n12917789.md#1" target="_blank">IZ*ONE活动期结束 SNS公开团体合照谢别粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank">《一家之主》演无用夫 寇世勋用行动挺新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/2/n12918731.md#1" target="_blank">白家绮产后首录节目 惊见首位参赛者才知被骗</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/4/29/n12913357.md#1" target="_blank">桂纶镁携天心、夏于乔 出演《台北女子图鉴》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/3/n12920651.md#1" target="_blank">辛晓琪本周开唱 黄子佼任嘉宾积极彩排</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/3/n12920308.md#1" target="_blank">赴渔港献唱巧遇Ella 许富凯后台摆桌帮庆功</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/2/n12919925.md#1" target="_blank">古天乐黑人替身照热传 影片监制曝秘辛</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/4/30/n12915742.md#1" target="_blank">近藤真彦退出杰尼斯 将持续赛车与演艺事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/4/30/n12915263.md#1" target="_blank">BTS《Film out》MV观看破亿 创日文曲最速纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yowasr378/djy/blob/master/gb/21/4/29/n12912367.md#1" target="_blank">宫胁咲良谈IZ*ONE解散：活用经验走好未来的路</a></h4></td></tr>
