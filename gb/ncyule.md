@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12919023.md#1" target="_blank">瑞莎“不放弃”培训选手 宣布国际赛惊人成绩</a><br></h3><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12919023.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12919025-2008280955001487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/1/n12917862.md#1" target="_blank">娜恩离社诉心声：Apink会再聚 请陪在我身边</a><br></h3><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/1/n12917862.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12917863-210501054129100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921136-20210503-yuling-tw-15-320x200.jpg"></a>
 <a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12920308.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12920348-2105022334031487-320x200.jpg"></a>
 <a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12920043.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12920192-201123055847100707-320x200.jpg"></a>
 <a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918934-2105020135101487-320x200.jpg"></a>
 <a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918869-2104200514091487-320x200.jpg"></a>
 <a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12918731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918792-2105012221551487-320x200.jpg"></a>
-<a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/1/n12917789.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12917791-190129092254100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank">《一家之主》演无用夫 寇世勋用行动挺新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12918731.md#1" target="_blank">白家绮产后首录节目 惊见首位参赛者才知被骗</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank">萧敬腾一登台就下暴雨 广州场挤进数万歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12920651.md#1" target="_blank">辛晓琪本周开唱 黄子佼任嘉宾积极彩排</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12920308.md#1" target="_blank">赴渔港献唱巧遇Ella 许富凯后台摆桌帮庆功</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12919925.md#1" target="_blank">古天乐黑人替身照热传 影片监制曝秘辛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/30/n12915742.md#1" target="_blank">近藤真彦退出杰尼斯 将持续赛车与演艺事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/30/n12915263.md#1" target="_blank">BTS《Film out》MV观看破亿 创日文曲最速纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/29/n12912367.md#1" target="_blank">宫胁咲良谈IZ*ONE解散：活用经验走好未来的路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/28/n12910023.md#1" target="_blank">日本票选K-POP男团人气榜 BTS夺冠SJ也入选</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank">萧敬腾一登台就下暴雨 广州场挤进数万歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12920651.md#1" target="_blank">辛晓琪本周开唱 黄子佼任嘉宾积极彩排</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/3/n12920308.md#1" target="_blank">赴渔港献唱巧遇Ella 许富凯后台摆桌帮庆功</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank">陈昇突袭台北闹区走唱 线上观看人次创新高</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/30/n12916511.md#1" target="_blank">林俊杰与Anne-Marie合作 首度线上同框亮相</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqqdx3304/djy/blob/master/gb/21/4/29/n12914672.md#1" target="_blank">周星驰与刘德华30年没合作 网传原因离奇</a></h4></td></tr>
