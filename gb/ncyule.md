@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12919023.md#1" target="_blank">瑞莎“不放弃”培训选手 宣布国际赛惊人成绩</a><br></h3><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12919023.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12919025-2008280955001487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/1/n12917862.md#1" target="_blank">娜恩离社诉心声：Apink会再聚 请陪在我身边</a><br></h3><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/1/n12917862.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12917863-210501054129100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/3/n12920043.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12920192-201123055847100707-320x200.jpg"></a>
 <a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918934-2105020135101487-320x200.jpg"></a>
 <a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918869-2104200514091487-320x200.jpg"></a>
 <a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12918731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918792-2105012221551487-320x200.jpg"></a>
 <a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/1/n12917789.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12917791-190129092254100707-320x200.jpg"></a>
 <a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/30/n12916899.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12916982-GettyImages-123886198-320x200.jpg"></a>
-<a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/30/n12916511.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12916529-2104301002051487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/1/n12917275.md#1" target="_blank">冯小刚对赌再败合赔2亿 “华谊兄弟”连亏3年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/30/n12916899.md#1" target="_blank">秦海璐自曝爱吃红烧肉 食量大到惊呆主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/29/n12914469.md#1" target="_blank">网民吁公开700明星补税名单 范冰冰点赞又收回</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/3/n12920043.md#1" target="_blank">TWICE迷你十辑6月9日发行 台湾粉丝热议新作名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/1/n12917862.md#1" target="_blank">娜恩离社诉心声：Apink会再聚 请陪在我身边</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/1/n12917789.md#1" target="_blank">IZ*ONE活动期结束 SNS公开团体合照谢别粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/30/n12916454.md#1" target="_blank">TWICE官方YT频道获颁钻石按钮 感想是“好重”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/4/30/n12916291.md#1" target="_blank">李智勲10月与圈外人结婚 以亲笔信宣布婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank">《一家之主》演无用夫 寇世勋用行动挺新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ckfwfs3192/djy/blob/master/gb/21/5/2/n12918731.md#1" target="_blank">白家绮产后首录节目 惊见首位参赛者才知被骗</a></h4></td></tr>
