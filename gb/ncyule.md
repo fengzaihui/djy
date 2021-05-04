@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920995.md#1" target="_blank">Selina受封成功女性创业家 笑言：再考EMBA</a><br></h3><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920995.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921206-2105030615331487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921003.md#1" target="_blank">隔离期遭骇客诈骗 黄秋生叹：我老人家容易被骗</a><br></h3><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921003.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921169-2105030253012122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922716-2105032239471487-320x200.jpg"></a>
 <a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921710.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921768-200112015300100707-320x200.jpg"></a>
 <a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921136-20210503-yuling-tw-15-320x200.jpg"></a>
 <a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920308.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12920348-2105022334031487-320x200.jpg"></a>
 <a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918934-2105020135101487-320x200.jpg"></a>
 <a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918869-2104200514091487-320x200.jpg"></a>
-<a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/2/n12918731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918792-2105012221551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/2/n12919696.md#1" target="_blank">又被中共官方点名 范冰冰发文回应引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/1/n12917275.md#1" target="_blank">冯小刚对赌再败合赔2亿 “华谊兄弟”连亏3年</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank">善心不分国界 j-hope捐款1亿韩圜助海外儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921710.md#1" target="_blank">ITZY于Spotify等榜创佳绩 获粉丝能量会更努力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921294.md#1" target="_blank">视网膜剥离需休养 Shownu暂缺席MONSTA X活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920394.md#1" target="_blank">May J.唱BTS《Dynamite》 见卡拉OK评分大喊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank">《一家之主》演无用夫 寇世勋用行动挺新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/2/n12918731.md#1" target="_blank">白家绮产后首录节目 惊见首位参赛者才知被骗</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank">与“接招”主唱合作 张信哲登英媒新闻版面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12922166.md#1" target="_blank">应景解读5个月大儿睡姿 徐佳莹：疫情别再烧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920995.md#1" target="_blank">Selina受封成功女性创业家 笑言：再考EMBA</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921003.md#1" target="_blank">隔离期遭骇客诈骗 黄秋生叹：我老人家容易被骗</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank">萧敬腾一登台就下暴雨 广州场挤进数万歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920394.md#1" target="_blank">May J.唱BTS《Dynamite》 见卡拉OK评分大喊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/30/n12915742.md#1" target="_blank">近藤真彦退出杰尼斯 将持续赛车与演艺事业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/30/n12915263.md#1" target="_blank">BTS《Film out》MV观看破亿 创日文曲最速纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank">与“接招”主唱合作 张信哲登英媒新闻版面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12922166.md#1" target="_blank">应景解读5个月大儿睡姿 徐佳莹：疫情别再烧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank">萧敬腾一登台就下暴雨 广州场挤进数万歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920651.md#1" target="_blank">辛晓琪本周开唱 黄子佼任嘉宾积极彩排</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920308.md#1" target="_blank">赴渔港献唱巧遇Ella 许富凯后台摆桌帮庆功</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/29/n12914672.md#1" target="_blank">周星驰与刘德华30年没合作 网传原因离奇</a></h4></td></tr>
