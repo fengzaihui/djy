@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank">与“接招”主唱合作 张信哲登英媒新闻版面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12922166.md#1" target="_blank">应景解读5个月大儿睡姿 徐佳莹：疫情别再烧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920995.md#1" target="_blank">Selina受封成功女性创业家 笑言：再考EMBA</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12920394.md#1" target="_blank">May J.唱BTS《Dynamite》 见卡拉OK评分大喊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/30/n12915742.md#1" target="_blank">近藤真彦退出杰尼斯 将持续赛车与演艺事业</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/4/30/n12915263.md#1" target="_blank">BTS《Film out》MV观看破亿 创日文曲最速纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank">与“接招”主唱合作 张信哲登英媒新闻版面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12922166.md#1" target="_blank">应景解读5个月大儿睡姿 徐佳莹：疫情别再烧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jvapyw362/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank">萧敬腾一登台就下暴雨 广州场挤进数万歌迷</a></h4></td></tr>
