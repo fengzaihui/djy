@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12920995.md#1" target="_blank">Selina受封成功女性创业家 笑言：再考EMBA</a><br></h3><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12920995.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921206-2105030615331487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12923401.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12923483-2105040404431487-320x200.jpg"></a>
+<a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922712-201123021852100707-320x200.jpg"></a>
 <a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922716-2105032239471487-320x200.jpg"></a>
 <a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921710.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921768-200112015300100707-320x200.jpg"></a>
+<a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921550-200701020752100707-320x200.jpg"></a>
 <a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921136-20210503-yuling-tw-15-320x200.jpg"></a>
-<a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12920308.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12920348-2105022334031487-320x200.jpg"></a>
-<a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12918934-2105020135101487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank">善心不分国界 j-hope捐款1亿韩圜助海外儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921710.md#1" target="_blank">ITZY于Spotify等榜创佳绩 获粉丝能量会更努力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921294.md#1" target="_blank">视网膜剥离需休养 Shownu暂缺席MONSTA X活动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12924130.md#1" target="_blank">美国富翁倾囊相授 挑战27天抢救濒临破产企业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/2/n12918855.md#1" target="_blank">《一家之主》演无用夫 寇世勋用行动挺新导演</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12924130.md#1" target="_blank">美国富翁倾囊相授 挑战27天抢救濒临破产企业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12923401.md#1" target="_blank">林志玲牵AKIRA再登封面 想传递温暖力量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12923179.md#1" target="_blank">“演艺圈有人随便说” 澎恰恰还债乱了步伐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank">与“接招”主唱合作 张信哲登英媒新闻版面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12920394.md#1" target="_blank">May J.唱BTS《Dynamite》 见卡拉OK评分大喊</a></h4></td></tr>
