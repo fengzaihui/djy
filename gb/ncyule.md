@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/2/n12919696.md#1" target="_blank">又被中共官方点名 范冰冰发文回应引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/1/n12917275.md#1" target="_blank">冯小刚对赌再败合赔2亿 “华谊兄弟”连亏3年</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12923379.md#1" target="_blank">艺声迷你四辑26区iTunes榜登顶 SJ Solo新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank">善心不分国界 j-hope捐款1亿韩圜助海外儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921710.md#1" target="_blank">ITZY于Spotify等榜创佳绩 获粉丝能量会更努力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921294.md#1" target="_blank">视网膜剥离需休养 Shownu暂缺席MONSTA X活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ylnpmi3642/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
