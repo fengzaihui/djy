@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923179.md#1" target="_blank">“演艺圈有人随便说” 澎恰恰还债乱了步伐</a><br></h3><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923179.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12923195-1712061023111487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a><br></h3><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922644-GettyImages-1-75277567-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923735.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12924092-210504092836100707-320x200.jpg"></a>
 <a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923748.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12923750-DSC_5527-320x200.jpg"></a>
 <a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923401.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12923483-2105040404431487-320x200.jpg"></a>
 <a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922712-201123021852100707-320x200.jpg"></a>
 <a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922716-2105032239471487-320x200.jpg"></a>
 <a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12921710.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921768-200112015300100707-320x200.jpg"></a>
-<a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12921294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12921550-200701020752100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923735.md#1" target="_blank">I.O.I守出道五年再会之约 感性忆今昔盼再聚首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12924263.md#1" target="_blank">秀智儿童节前夕捐款1亿韩圜 帮助孤儿院儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923379.md#1" target="_blank">艺声迷你四辑26区iTunes榜登顶 SJ Solo新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank">善心不分国界 j-hope捐款1亿韩圜助海外儿童</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12921710.md#1" target="_blank">ITZY于Spotify等榜创佳绩 获粉丝能量会更努力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12924130.md#1" target="_blank">美国富翁倾囊相授 挑战27天抢救濒临破产企业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
