@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/5/n12925477.md#1" target="_blank">张语哝、陈芳语双姝创作 首发对唱单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923745.md#1" target="_blank">单亲妈难为 彭佳慧：孩子是撑下去的动力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923756.md#1" target="_blank">夫妻俩购置上亿豪宅 修杰楷：登记贾静雯名下</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12923748.md#1" target="_blank">王柏杰自嘲“吃肥杀手” 与简嫚书上演美食情仇</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12924431.md#1" target="_blank">香港31岁女歌手李明蔚 坚强抗癌9年后病逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12920394.md#1" target="_blank">May J.唱BTS《Dynamite》 见卡拉OK评分大喊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/4/30/n12915742.md#1" target="_blank">近藤真彦退出杰尼斯 将持续赛车与演艺事业</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/5/n12925477.md#1" target="_blank">张语哝、陈芳语双姝创作 首发对唱单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank">与“接招”主唱合作 张信哲登英媒新闻版面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12922166.md#1" target="_blank">应景解读5个月大儿睡姿 徐佳莹：疫情别再烧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank">萧敬腾一登台就下暴雨 广州场挤进数万歌迷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/5/3/n12920651.md#1" target="_blank">辛晓琪本周开唱 黄子佼任嘉宾积极彩排</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yvcyka335/djy/blob/master/gb/21/4/29/n12914672.md#1" target="_blank">周星驰与刘德华30年没合作 网传原因离奇</a></h4></td></tr>
