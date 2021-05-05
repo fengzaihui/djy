@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925949.md#1" target="_blank">ENHYPEN摘出道首座冠军后 儿童节再添奖杯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925627.md#1" target="_blank">Somi与I.O.I重聚因世正一席话落泪 曝准备新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923735.md#1" target="_blank">I.O.I守出道五年再会之约 感性忆今昔盼再聚首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12924263.md#1" target="_blank">秀智儿童节前夕捐款1亿韩圜 帮助孤儿院儿童</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923379.md#1" target="_blank">艺声迷你四辑26区iTunes榜登顶 SJ Solo新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12924130.md#1" target="_blank">美国富翁倾囊相授 挑战27天抢救濒临破产企业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
