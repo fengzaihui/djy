@@ -6,7 +6,7 @@
 <tr><td><h3><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a><br></h3><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922644-GettyImages-1-75277567-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923735.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12924092-210504092836100707-320x200.jpg"></a>
-<a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923748.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12923750-DSC_5527-320x200.jpg"></a>
+<a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923748.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12925924-2105040555212122-320x200.jpg"></a>
 <a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923401.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12923483-2105040404431487-320x200.jpg"></a>
 <a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922712-201123021852100707-320x200.jpg"></a>
 <a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12922716-2105032239471487-320x200.jpg"></a>
@@ -27,17 +27,17 @@
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925627.md#1" target="_blank">Somi与I.O.I重聚因世正一席话落泪 曝准备新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923735.md#1" target="_blank">I.O.I守出道五年再会之约 感性忆今昔盼再聚首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12924263.md#1" target="_blank">秀智儿童节前夕捐款1亿韩圜 帮助孤儿院儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923379.md#1" target="_blank">艺声迷你四辑26区iTunes榜登顶 SJ Solo新纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922686.md#1" target="_blank">善心不分国界 j-hope捐款1亿韩圜助海外儿童</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12924130.md#1" target="_blank">美国富翁倾囊相授 挑战27天抢救濒临破产企业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/3/n12920899.md#1" target="_blank">《火神》首播收视称冠 登当日关键字热搜第2</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/2/n12919313.md#1" target="_blank">黄秋生续拍《餐车2》 新搭档全是专业演员</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925608.md#1" target="_blank">李国毅宣布结婚 曝娇妻“是这辈子最好朋友”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/5/n12925477.md#1" target="_blank">张语哝、陈芳语双姝创作 首发对唱单曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923745.md#1" target="_blank">单亲妈难为 彭佳慧：孩子是撑下去的动力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12923756.md#1" target="_blank">夫妻俩购置上亿豪宅 修杰楷：登记贾静雯名下</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ixjkki3322/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
