@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925949.md#1" target="_blank">ENHYPEN摘出道首座冠军后 儿童节再添奖杯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925627.md#1" target="_blank">Somi与I.O.I重聚因世正一席话落泪 曝准备新专辑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank">《黄金岁月》拍爆破场面 陈美凤耳鸣不适就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12926283.md#1" target="_blank">雷同角色还能演 陈妤：演出不同层次代表进步</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12924130.md#1" target="_blank">美国富翁倾囊相授 挑战27天抢救濒临破产企业</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank">《黄金岁月》拍爆破场面 陈美凤耳鸣不适就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927747.md#1" target="_blank">李圣杰与彭佳慧等唱将携手 8月重返舞台开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925883.md#1" target="_blank">忆事业低潮期昏倒 动力火车感谢妻打气</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925876.md#1" target="_blank">女儿遗传热爱海洋 蔡诗芸想穿粉嫩母女装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
@@ -49,7 +49,6 @@
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/3/n12922166.md#1" target="_blank">应景解读5个月大儿睡姿 徐佳莹：疫情别再烧</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/4/29/n12914672.md#1" target="_blank">周星驰与刘德华30年没合作 网传原因离奇</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/2/n12919696.md#1" target="_blank">又被中共官方点名 范冰冰发文回应引热议</a></h4></td></tr>
@@ -58,5 +57,6 @@
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank">陈昇突袭台北闹区走唱 线上观看人次创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/1/n12917275.md#1" target="_blank">冯小刚对赌再败合赔2亿 “华谊兄弟”连亏3年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/4/29/n12914469.md#1" target="_blank">网民吁公开700明星补税名单 范冰冰点赞又收回</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/2/n12919925.md#1" target="_blank">古天乐黑人替身照热传 影片监制曝秘辛</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/wgkegp316/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/wgkegp316/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wgkegp316/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/wgkegp316/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
