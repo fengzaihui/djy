@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928133.md#1" target="_blank">慧潾推出个人创作曲《Lonely》 EXID成员送鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927795.md#1" target="_blank">EXO伯贤迎生日之际入伍 SJ艺声留言祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927621.md#1" target="_blank">金世正将主演爱情剧 男主角或由安孝燮担任</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12925949.md#1" target="_blank">ENHYPEN摘出道首座冠军后 儿童节再添奖杯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank">《黄金岁月》拍爆破场面 陈美凤耳鸣不适就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12926283.md#1" target="_blank">雷同角色还能演 陈妤：演出不同层次代表进步</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
