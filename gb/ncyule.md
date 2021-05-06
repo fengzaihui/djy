@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12925608.md#1" target="_blank">李国毅宣布结婚 曝娇妻“是这辈子最好朋友”</a><br></h3><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12925608.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12925666-210505030546100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a><br></h3><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/12/zhouxingchi-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928509-210325050614100707-320x200.jpg"></a>
 <a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928489-2105060807491487-320x200.jpg"></a>
 <a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928032-2105060237091487-320x200.jpg"></a>
 <a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927747.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12927811-2105060017031487-320x200.jpg"></a>
 <a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927621.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12927626-210505231813100707-320x200.jpg"></a>
 <a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12926809.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2003180400291487-320x200.jpg"></a>
-<a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12926283.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12926428-2105050937221487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928133.md#1" target="_blank">慧潾推出个人创作曲《Lonely》 EXID成员送鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927795.md#1" target="_blank">EXO伯贤迎生日之际入伍 SJ艺声留言祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927621.md#1" target="_blank">金世正将主演爱情剧 男主角或由安孝燮担任</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank">《黄金岁月》拍爆破场面 陈美凤耳鸣不适就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12926283.md#1" target="_blank">雷同角色还能演 陈妤：演出不同层次代表进步</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928455.md#1" target="_blank">田亚霍26岁连爆3喜 去年秘婚今年将当爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928435.md#1" target="_blank">小甜甜水肾剧痛送急诊 为保胎儿拒手术</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928174.md#1" target="_blank">台湾部分星二代同任微笑大使 展自信笑颜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/3/n12920394.md#1" target="_blank">May J.唱BTS《Dynamite》 见卡拉OK评分大喊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12928455.md#1" target="_blank">田亚霍26岁连爆3喜 去年秘婚今年将当爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/6/n12927747.md#1" target="_blank">李圣杰与彭佳慧等唱将携手 8月重返舞台开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odhwcb357/djy/blob/master/gb/21/5/5/n12925477.md#1" target="_blank">张语哝、陈芳语双姝创作 首发对唱单曲</a></h4></td></tr>
