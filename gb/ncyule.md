@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/3/n12922006.md#1" target="_blank">章子怡与继女逛街 母女俩亲密挽手宛如闺密</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927621.md#1" target="_blank">金世正将主演爱情剧 男主角或由安孝燮担任</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925949.md#1" target="_blank">ENHYPEN摘出道首座冠军后 儿童节再添奖杯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925627.md#1" target="_blank">Somi与I.O.I重聚因世正一席话落泪 曝准备新专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12923735.md#1" target="_blank">I.O.I守出道五年再会之约 感性忆今昔盼再聚首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12926283.md#1" target="_blank">雷同角色还能演 陈妤：演出不同层次代表进步</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12924130.md#1" target="_blank">美国富翁倾囊相授 挑战27天抢救濒临破产企业</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12923638.md#1" target="_blank">王传一提前欢庆41岁 许愿“放假回家看女儿”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927747.md#1" target="_blank">李圣杰与彭佳慧等唱将携手 8月重返舞台开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925883.md#1" target="_blank">忆事业低潮期昏倒 动力火车感谢妻打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925876.md#1" target="_blank">女儿遗传热爱海洋 蔡诗芸想穿粉嫩母女装</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12927074.md#1" target="_blank">隋棠脸书晒素颜雀斑照 自信满满获网友大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/3/n12920394.md#1" target="_blank">May J.唱BTS《Dynamite》 见卡拉OK评分大喊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/6/n12927747.md#1" target="_blank">李圣杰与彭佳慧等唱将携手 8月重返舞台开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12925477.md#1" target="_blank">张语哝、陈芳语双姝创作 首发对唱单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/4/n12922651.md#1" target="_blank">与“接招”主唱合作 张信哲登英媒新闻版面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/3/n12922166.md#1" target="_blank">应景解读5个月大儿睡姿 徐佳莹：疫情别再烧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/3/n12921017.md#1" target="_blank">萧敬腾一登台就下暴雨 广州场挤进数万歌迷</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wgkegp316/djy/blob/master/gb/21/4/29/n12913139.md#1" target="_blank">谢祖武“2个儿子”金榜题名 竟同校又同系</a></h4></td></tr>
