@@ -5,12 +5,11 @@
 <tr><td><h3><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12925883.md#1" target="_blank">忆事业低潮期昏倒 动力火车感谢妻打气</a><br></h3><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12925883.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12927555-2105050404272122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12927074.md#1" target="_blank">隋棠脸书晒素颜雀斑照 自信满满获网友大赞</a><br></h3><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12927074.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/12/1807120609312384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930926.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12930965-2105070818321487-320x200.jpg"></a>
+<a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930577.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12931270-2105070947061487-320x200.jpg"></a>
 <a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12930585-2105070407061487-320x200.jpg"></a>
 <a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930329.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12930422-2105070228021487-320x200.jpg"></a>
 <a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12929956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12929979-201013052731100707-320x200.jpg"></a>
-<a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12929671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/10/1910070148101487-320x200.jpg"></a>
-<a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928509-210325050614100707-320x200.jpg"></a>
-<a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12928455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928489-2105060807491487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -31,22 +30,22 @@
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12929956.md#1" target="_blank">NCT选秀前进好莱坞 SM与MGM携手制作节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12928133.md#1" target="_blank">慧潾推出个人创作曲《Lonely》 EXID成员送鼓励</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930926.md#1" target="_blank">陈亚兰制作歌仔戏《嘉庆君》 斥资上百万造船</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930329.md#1" target="_blank">第12届TIDF纪录片影展 《理大围城》获华人首奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank">《黄金岁月》拍爆破场面 陈美凤耳鸣不适就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12926283.md#1" target="_blank">雷同角色还能演 陈妤：演出不同层次代表进步</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930926.md#1" target="_blank">陈亚兰制作歌仔戏《嘉庆君》 斥资上百万造船</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930744.md#1" target="_blank">A-Lin首场演唱会起跑 自曝太兴奋导致失眠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930677.md#1" target="_blank">电影卖座 许玮甯、邱泽谢票送粉蒸肉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930710.md#1" target="_blank">辰亦儒获封“最帅夫子” 曾之乔佩服锻炼意志</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930611.md#1" target="_blank">为演唱会减肥不顺 陶晶莹自我调整：开心最重要</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930591.md#1" target="_blank">以珠宝比喻轻熟女 柯佳嬿：懂得找到自己的品味</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/3/n12921221.md#1" target="_blank">竹内美宥宣布 与韩国MYSTIC娱乐合约告终</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930744.md#1" target="_blank">A-Lin首场演唱会起跑 自曝太兴奋导致失眠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/7/n12930557.md#1" target="_blank">91岁奶奶获选模范母亲 魏如萱新歌当贺礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12928455.md#1" target="_blank">田亚霍26岁连爆3喜 去年秘婚今年将当爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12927747.md#1" target="_blank">李圣杰与彭佳慧等唱将携手 8月重返舞台开唱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12925477.md#1" target="_blank">张语哝、陈芳语双姝创作 首发对唱单曲</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zojlqq3079/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
