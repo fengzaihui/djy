@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12925883.md#1" target="_blank">忆事业低潮期昏倒 动力火车感谢妻打气</a><br></h3><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12925883.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12927555-2105050404272122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12927074.md#1" target="_blank">隋棠脸书晒素颜雀斑照 自信满满获网友大赞</a><br></h3><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12927074.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/12/1807120609312384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/7/n12929956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12929979-201013052731100707-320x200.jpg"></a>
 <a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12929671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/10/1910070148101487-320x200.jpg"></a>
 <a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928509-210325050614100707-320x200.jpg"></a>
 <a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12928455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928489-2105060807491487-320x200.jpg"></a>
 <a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12928032-2105060237091487-320x200.jpg"></a>
 <a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12927747.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12927811-2105060017031487-320x200.jpg"></a>
-<a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12927621.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12927626-210505231813100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/4/n12922498.md#1" target="_blank">宁静自曝年轻时曾立遗嘱 最后因妹妹选择撕毁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/7/n12929956.md#1" target="_blank">NCT选秀前进好莱坞 SM与MGM携手制作节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12928133.md#1" target="_blank">慧潾推出个人创作曲《Lonely》 EXID成员送鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12927795.md#1" target="_blank">EXO伯贤迎生日之际入伍 SJ艺声留言祝福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12927621.md#1" target="_blank">金世正将主演爱情剧 男主角或由安孝燮担任</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank">《黄金岁月》拍爆破场面 陈美凤耳鸣不适就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12926283.md#1" target="_blank">雷同角色还能演 陈妤：演出不同层次代表进步</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12925826.md#1" target="_blank">台喜剧《俗女2》父亲节上档 今曝首款海报</a></h4></td></tr>
@@ -51,8 +51,8 @@
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/2/n12919696.md#1" target="_blank">又被中共官方点名 范冰冰发文回应引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/4/30/n12917110.md#1" target="_blank">香港移居台湾人数创新高 杜汶泽脸书发感恩文</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/2/n12919696.md#1" target="_blank">又被中共官方点名 范冰冰发文回应引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/4/30/n12916032.md#1" target="_blank">匿名网友发文指控瑞莎 疑见风向不对悄删文</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank">陈昇突袭台北闹区走唱 线上观看人次创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hbdsrs3314/djy/blob/master/gb/21/5/1/n12917275.md#1" target="_blank">冯小刚对赌再败合赔2亿 “华谊兄弟”连亏3年</a></h4></td></tr>
