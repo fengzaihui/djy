@@ -11,11 +11,11 @@
 <a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/7/n12930577.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12931270-2105070947061487-320x200.jpg"></a>
 <a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/7/n12930557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12930585-2105070407061487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/4/26/n12904974.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12904981-494932-320x200.jpg"><br>《太阳召唤》影评：西方古装奇幻剧 写下成功新片篇章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/4/24/n12902527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12902530-494781-320x200.jpg"><br>《父亲》影评：出色的演员与剧本 成就优质电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/4/22/n12896531.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12896533-494337-320x200.jpg"><br>《药命交错》影评：三大面向 营造反毒品之战</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/4/17/n12886662.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12886665-493528-320x200.jpg"><br>《名侦探柯南：绯色的弹丸》影评：传奇要角赤井家族 终于大放异彩</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -49,8 +49,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/2/n12919696.md#1" target="_blank">又被中共官方点名 范冰冰发文回应引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/2/n12918920.md#1" target="_blank">陈昇突袭台北闹区走唱 线上观看人次创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwsqav3178/djy/blob/master/gb/21/5/2/n12919925.md#1" target="_blank">古天乐黑人替身照热传 影片监制曝秘辛</a></h4></td></tr>
