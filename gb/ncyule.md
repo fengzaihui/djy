@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12931918.md#1" target="_blank">梁朝伟拒演一部电影 成就周星驰的星爷地位</a><br></h3><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12931918.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12872995-zhou-xingchi-liang-chaowei-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12931731.md#1" target="_blank">打完疫苗24小时后发烧 赖铭伟停工返家休养</a><br></h3><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12931731.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/01/1701110232061487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/9/n12934134.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12934156-2105090147121487-320x200.jpg"></a>
 <a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12932241.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/1812190915201487-320x200.jpg"></a>
 <a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12930522.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12931276-210507095026100707-320x200.jpg"></a>
 <a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12930926.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12930965-2105070818321487-320x200.jpg"></a>
 <a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12930577.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12931270-2105070947061487-320x200.jpg"></a>
-<a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12930557.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12930585-2105070407061487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/4/30/n12914955.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/04/id12914957-495731-320x200.jpeg"><br>《玩命钞劫》影评：杰森?史塔森化身超强保全！</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12930926.md#1" target="_blank">陈亚兰制作歌仔戏《嘉庆君》 斥资上百万造船</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12930329.md#1" target="_blank">第12届TIDF纪录片影展 《理大围城》获华人首奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/6/n12927984.md#1" target="_blank">《黄金岁月》拍爆破场面 陈美凤耳鸣不适就医</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/9/n12934134.md#1" target="_blank">简嫚书婚后家庭摆第一 母亲节庆祝交夫打理</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/9/n12933947.md#1" target="_blank">辛晓琪开唱用心造型 黄子佼大胆竟称姥姥装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/9/n12933850.md#1" target="_blank">邱锋泽走出情伤 携手陈零九在北流热唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12932241.md#1" target="_blank">李千那父亲演出到一半晕倒 送医动5小时手术</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/7/n12931918.md#1" target="_blank">梁朝伟拒演一部电影 成就周星驰的星爷地位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/8/n12932742.md#1" target="_blank">前关八主唱涩谷昴宣布结婚：人生很有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hsvbvd398/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
