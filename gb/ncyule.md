@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/8/n12933136.md#1" target="_blank">好莱坞巨星家乡开派对 粉丝羡慕澳洲防疫有成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/7/n12930926.md#1" target="_blank">陈亚兰制作歌仔戏《嘉庆君》 斥资上百万造船</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/7/n12930329.md#1" target="_blank">第12届TIDF纪录片影展 《理大围城》获华人首奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936497.md#1" target="_blank">戴爱玲曝演唱会5大亮点 忆驻唱时光磨出自信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936475.md#1" target="_blank">金曲奖风向球 瘦子、曹雅雯获十大专辑暨单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936326.md#1" target="_blank">范逸臣为演唱会变身帅大叔 送出限量海报</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936000.md#1" target="_blank">“鱼丁糸”连曝3喜讯 馨仪证实怀第二胎</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12934209.md#1" target="_blank">高中生为环保议题发声 钟瑶受邀“非去不可”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/8/n12932742.md#1" target="_blank">前关八主唱涩谷昴宣布结婚：人生很有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936497.md#1" target="_blank">戴爱玲曝演唱会5大亮点 忆驻唱时光磨出自信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936326.md#1" target="_blank">范逸臣为演唱会变身帅大叔 送出限量海报</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933947.md#1" target="_blank">辛晓琪开唱用心造型 黄子佼大胆竟称姥姥装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933850.md#1" target="_blank">邱锋泽走出情伤 携手陈零九在北流热唱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/7/n12930744.md#1" target="_blank">A-Lin首场演唱会起跑 自曝太兴奋导致失眠</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
