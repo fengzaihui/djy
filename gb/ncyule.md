@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933947.md#1" target="_blank">辛晓琪开唱用心造型 黄子佼大胆竟称姥姥装</a><br></h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933947.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12933963-2105082307251487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933850.md#1" target="_blank">邱锋泽走出情伤 携手陈零九在北流热唱</a><br></h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933850.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12933868-2105082153321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937279-210510093351100707-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936096.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936866-200507002614100707-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936749-2105100427511487-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936497.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936544-2105100310091487-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936326.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936344-2105100135331487-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12935799.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12935896-210504062330100707-320x200.jpg"></a>
-<a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936028-2105092334181487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936590.md#1" target="_blank">是元介回应感情问题：目前就是好好过生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936485.md#1" target="_blank">《火神》剧情引出“比火更可怕的是刁民”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936497.md#1" target="_blank">戴爱玲曝演唱会5大亮点 忆驻唱时光磨出自信</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/8/n12932742.md#1" target="_blank">前关八主唱涩谷昴宣布结婚：人生很有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/5/n12926156.md#1" target="_blank">竹内美宥离社后剩YouTube 新频道叫“绕远路”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/4/n12922853.md#1" target="_blank">佐野史郎因肾功能障碍住院 新戏由平田满代演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936632.md#1" target="_blank">温岚5年没发片单曲暖身 在对岸解隔离有人送花</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936497.md#1" target="_blank">戴爱玲曝演唱会5大亮点 忆驻唱时光磨出自信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936326.md#1" target="_blank">范逸臣为演唱会变身帅大叔 送出限量海报</a></h4></td></tr>
