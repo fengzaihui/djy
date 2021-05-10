@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933947.md#1" target="_blank">辛晓琪开唱用心造型 黄子佼大胆竟称姥姥装</a><br></h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933947.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12933963-2105082307251487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933850.md#1" target="_blank">邱锋泽走出情伤 携手陈零九在北流热唱</a><br></h3><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933850.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12933868-2105082153321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936880.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937173-1810310455152122-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937279-210510093351100707-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936096.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936866-200507002614100707-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936749-2105100427511487-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936497.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936544-2105100310091487-320x200.jpg"></a>
 <a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936326.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936344-2105100135331487-320x200.jpg"></a>
-<a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12935799.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12935896-210504062330100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936880.md#1" target="_blank">OH MY GIRL迷你八辑迎转捩点 盼开拓自己的路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12936096.md#1" target="_blank">(G)I-DLE四成员开设个人IG 舒华简介“很舒华”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/10/n12935799.md#1" target="_blank">艺声迷你四辑首周热销逾8万张 自身最佳纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/7/n12930522.md#1" target="_blank">ENHYPEN首夺无线台节目冠军 日韩榜单都登顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/7/n12930077.md#1" target="_blank">韩三位偶像需隔离两周 竞赛节目拍摄不受影响</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/9/n12935234.md#1" target="_blank">吴尊庆母亲节晒妈妈照片 网友惊叹婆媳相像</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/8/n12933136.md#1" target="_blank">好莱坞巨星家乡开派对 粉丝羡慕澳洲防疫有成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ezkcme3586/djy/blob/master/gb/21/5/7/n12930926.md#1" target="_blank">陈亚兰制作歌仔戏《嘉庆君》 斥资上百万造船</a></h4></td></tr>
