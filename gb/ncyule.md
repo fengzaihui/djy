@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/7/n12931918.md#1" target="_blank">梁朝伟拒演一部电影 成就周星驰的星爷地位</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/4/n12924637.md#1" target="_blank">受郑爽事件影响？张国立晒深夜收工照被骂翻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/7/n12932241.md#1" target="_blank">李千那父亲演出到一半晕倒 送医动5小时手术</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/9/n12935234.md#1" target="_blank">吴尊庆母亲节晒妈妈照片 网友惊叹婆媳相像</a></h4></td></tr>
