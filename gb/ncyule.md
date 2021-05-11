@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/10/n12937846.md#1" target="_blank">章子怡晒夫妻合照庆纪念日 继女一举动显亲子情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/11/n12939309.md#1" target="_blank">水晶男孩李宰镇宣布结婚：夫妻会相互扶持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/11/n12939043.md#1" target="_blank">NCT DREAM正规专辑展现七人成长 海内外夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/11/n12938264.md#1" target="_blank">ITZY首度打入Billboard 200榜 迷你四辑屡创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/11/n12938432.md#1" target="_blank">金世正与公司续约 Jellyfish娱乐：会全力支持她</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/10/n12936880.md#1" target="_blank">OH MY GIRL迷你八辑迎转捩点 盼开拓自己的路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/11/n12938970.md#1" target="_blank">58届金马奖增设“最佳纪录短片” 6月受理报名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/11/n12938755.md#1" target="_blank">2021台北电影奖 电影学者黄建业获卓越贡献奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vrstnu3415/djy/blob/master/gb/21/5/9/n12935234.md#1" target="_blank">吴尊庆母亲节晒妈妈照片 网友惊叹婆媳相像</a></h4></td></tr>
