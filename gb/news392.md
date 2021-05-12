@@ -16,10 +16,9 @@
 危机落幕了，但中共一再吹嘘的航天技术却忽然露馅了。很多人应该也知道中共的航天技术并不领先，但具体有多大差距恐怕还并不十分了解。其实无须掌握多少.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月11日 10:54 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/dqzwxg352/djy/blob/master/gb/21/5/10/n12937688.md#1" target="_blank">王友群：为什么那么多人修炼法轮功？</a><br></h3><a href="https://github.com/dqzwxg352/djy/blob/master/gb/21/5/10/n12937688.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937690-1905181951021973-600x400-600x381-150x120.jpeg" align ="left"></a>5月13日，是法轮功洪传全世界29周年纪念日。
 
-1992年5月13日，法轮功创始人李洪志先生，从中国东北的长春市传出法轮功。然后，迅速传遍全中国，传到全世界。到2021年的今天，法轮功已洪传到亚、欧、美、澳、非五大洲的110多个国家和地区。
+1992年5月13日，法轮功创始人李洪志先生，从中国东北的长春市传出法轮功。然后，迅速传遍全中国，传到全世界。到2021年的今天，法轮功已洪传到亚、欧、美、澳、非五大洲的一百一十多个国家和地区。
 
-全世界为什么会有那么多人修炼法轮功？我们先看一看四个修炼故事。
-.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月11日 7:34 AM			</td></tr>
+全世界为什么会有那么多人修炼法轮功？我们先看一看四个修炼故事。.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月11日 7:34 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/dqzwxg352/djy/blob/master/gb/21/5/10/n12937671.md#1" target="_blank">杨威：习近平称增强骨气和底气 再失自信</a><br></h3><a href="https://github.com/dqzwxg352/djy/blob/master/gb/21/5/10/n12937671.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937678-GettyImages-1232412238-150x120.jpg" align ="left"></a>5月10日，中共党媒关于习近平的宣传再次回到了书信模式。新华社置顶大头条报导《习近平给&lt;文史哲&gt;编辑部全体编辑人员回信》，下面的列出的小标题包括“增强做中国人的骨气和底气”。
 
 给一个《文史哲》编辑部回信，还非要扯上“中国人的骨气和底气”，怎么看都比较牵强。无论是习近平本人亲自填上了这句话，还是习近平智.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月11日 7:24 AM			</td></tr>
