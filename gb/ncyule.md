@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12938755.md#1" target="_blank">2021台北电影奖 电影学者黄建业获卓越贡献奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/9/n12935234.md#1" target="_blank">吴尊庆母亲节晒妈妈照片 网友惊叹婆媳相像</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/8/n12933136.md#1" target="_blank">好莱坞巨星家乡开派对 粉丝羡慕澳洲防疫有成</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941857.md#1" target="_blank">罗大佑获特别贡献奖 金曲奖评审：思想家高度</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12940997.md#1" target="_blank">一日遭遇两状况 吴凤大赞台湾“心中神地”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12940650.md#1" target="_blank">昆凌晒女儿拉琴背影照 复制周杰伦歌曲MV场景</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12940428.md#1" target="_blank">阿娇身材发福引热议 一日五餐以上吃到吐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12939259.md#1" target="_blank">“按照防疫规定走” 魏如萱7月将第3度攻蛋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/8/n12932742.md#1" target="_blank">前关八主唱涩谷昴宣布结婚：人生很有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
