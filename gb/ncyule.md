@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12937846.md#1" target="_blank">章子怡晒夫妻合照庆纪念日 继女一举动显亲子情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941286.md#1" target="_blank">Joy将推出翻唱专辑 Red Velvet第二位Solo歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941296.md#1" target="_blank">BTS连四年于BBMAs演出 将首度带来《Butter》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12939498.md#1" target="_blank">GOT7在范改艺名JAY B签约新公司 14日发行单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12939309.md#1" target="_blank">水晶男孩李宰镇宣布结婚：夫妻会相互扶持</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12939043.md#1" target="_blank">NCT DREAM正规专辑展现七人成长 海内外夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12938970.md#1" target="_blank">58届金马奖增设“最佳纪录短片” 6月受理报名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12938755.md#1" target="_blank">2021台北电影奖 电影学者黄建业获卓越贡献奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/9/n12935234.md#1" target="_blank">吴尊庆母亲节晒妈妈照片 网友惊叹婆媳相像</a></h4></td></tr>
@@ -49,7 +49,6 @@
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/9/n12933947.md#1" target="_blank">辛晓琪开唱用心造型 黄子佼大胆竟称姥姥装</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/6/n12927345.md#1" target="_blank">嘲讽成龙？香港导演拍《鼠胆龙威》意外大卖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/5/n12924981.md#1" target="_blank">为8千万元与周星驰决裂？华谊兄弟惨不忍睹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/7/n12931918.md#1" target="_blank">梁朝伟拒演一部电影 成就周星驰的星爷地位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/7/n12932241.md#1" target="_blank">李千那父亲演出到一半晕倒 送医动5小时手术</a></h4></td></tr>
@@ -57,6 +56,7 @@
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/7/n12931731.md#1" target="_blank">打完疫苗24小时后发烧 赖铭伟停工返家休养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/6/n12929398.md#1" target="_blank">吃早餐巧遇周润发 港星徐荣直呼：终于轮到我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/5/n12926809.md#1" target="_blank">外媒称台湾地表最危险 台湾女婿吴凤吐心声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/4/n12923745.md#1" target="_blank">单亲妈难为 彭佳慧：孩子是撑下去的动力</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12937591.md#1" target="_blank">被命理师预言晚婚 萧敬腾认真回复引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12936096.md#1" target="_blank">(G)I-DLE四成员开设个人IG 舒华简介“很舒华”</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/cbjyhx386/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/cbjyhx386/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cbjyhx386/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/cbjyhx386/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
