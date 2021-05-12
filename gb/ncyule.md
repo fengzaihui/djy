@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12939119.md#1" target="_blank">台疫情升温 许富凯小巨蛋演唱会确定2度延期</a><br></h3><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12939119.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12939157-2103311012011470-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a><br></h3><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-465336812_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12941871-2104160153351487-320x200.jpg"></a>
 <a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941870.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/1811282149341487-320x200.jpg"></a>
 <a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12940428.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1912040253381487-320x200.jpg"></a>
 <a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12939119.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12939157-2103311012011470-320x200.jpg"></a>
 <a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12936880.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937173-1810310455152122-320x200.jpg"></a>
 <a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937279-210510093351100707-320x200.jpg"></a>
-<a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12936096.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12936866-200507002614100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12938755.md#1" target="_blank">2021台北电影奖 电影学者黄建业获卓越贡献奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/9/n12935234.md#1" target="_blank">吴尊庆母亲节晒妈妈照片 网友惊叹婆媳相像</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/8/n12933136.md#1" target="_blank">好莱坞巨星家乡开派对 粉丝羡慕澳洲防疫有成</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941841.md#1" target="_blank">与林暐哲对簿公堂 吴青峰发4千长文诉心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941870.md#1" target="_blank">林俊杰青峰再问鼎金曲歌王 田馥甄万芳逐歌后</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12941857.md#1" target="_blank">罗大佑获特别贡献奖 金曲奖评审：思想家高度</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/12/n12940997.md#1" target="_blank">一日遭遇两状况 吴凤大赞台湾“心中神地”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/11/n12940650.md#1" target="_blank">昆凌晒女儿拉琴背影照 复制周杰伦歌曲MV场景</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/8/n12932742.md#1" target="_blank">前关八主唱涩谷昴宣布结婚：人生很有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cbjyhx386/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
