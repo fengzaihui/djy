@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/10/n12937846.md#1" target="_blank">章子怡晒夫妻合照庆纪念日 继女一举动显亲子情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945734.md#1" target="_blank">润娥本月迎生日 捧花束参与帮助儿童企划</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944890.md#1" target="_blank">申铉濬54岁迎女儿出生：努力成为更好的父亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944743.md#1" target="_blank">BERRY GOOD因公司并购解散 仅一人加入新公司</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12941823.md#1" target="_blank">有娜感谢粉丝让ITZY发光：会努力成为更好的人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12941286.md#1" target="_blank">Joy将推出翻唱专辑 Red Velvet第二位Solo歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12944123.md#1" target="_blank">全球最长寿演员诺曼·劳埃德去世 享嵩寿106岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12942110.md#1" target="_blank">《异星占领》续集6月登台 美谐星郑肯加盟演出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945867.md#1" target="_blank">台湾疫情升温 《玩命关头9》再次延档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945454.md#1" target="_blank">黄子佼宣布取消家宴“不再延期！”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945189.md#1" target="_blank">以防疫优先 文化部：金曲奖颁奖形式可能变动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
