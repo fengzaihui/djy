@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942663.md#1" target="_blank">再遇疫情搅局 黄子佼取消婚礼市集</a><br></h3><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942663.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12942687-2012070934091470-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12941870.md#1" target="_blank">林俊杰青峰再入围金曲歌王 田馥甄万芳逐歌后</a><br></h3><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12941870.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/1811282149341487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12944825-DSC_8830-1-320x200.jpg"></a>
 <a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12943448-190129092240100707-320x200.jpg"></a>
 <a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12941841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12941871-2104160153351487-320x200.jpg"></a>
 <a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12941296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12941352-200623032327100707-320x200.jpg"></a>
 <a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/11/n12939119.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12939157-2103311012011470-320x200.jpg"></a>
 <a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/10/n12936880.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937173-1810310455152122-320x200.jpg"></a>
-<a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937279-210510093351100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
@@ -27,22 +27,22 @@
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/10/n12937846.md#1" target="_blank">章子怡晒夫妻合照庆纪念日 继女一举动显亲子情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/6/n12929178.md#1" target="_blank">曾批刘德华不算歌手 杨坤商演现尴尬一幕</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/13/n12944743.md#1" target="_blank">BERRY GOOD因公司并购解散 仅一人加入新公司</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12941823.md#1" target="_blank">有娜感谢粉丝让ITZY发光：会努力成为更好的人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12941286.md#1" target="_blank">Joy将推出翻唱专辑 Red Velvet第二位Solo歌手</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12941296.md#1" target="_blank">BTS连四年于BBMAs演出 将首度带来《Butter》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12944123.md#1" target="_blank">全球最长寿演员诺曼·劳埃德去世 享嵩寿106岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942110.md#1" target="_blank">《异星占领》续集6月登台 美谐星郑肯加盟演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/11/n12938970.md#1" target="_blank">58届金马奖增设“最佳纪录短片” 6月受理报名</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/11/n12938755.md#1" target="_blank">2021台北电影奖 电影学者黄建业获卓越贡献奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12943868.md#1" target="_blank">港首任国安处长惊爆丑闻 杜汶泽四度发文嘲讽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942961.md#1" target="_blank">梁心颐新歌唱出爱情观 6月底将释出新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942663.md#1" target="_blank">再遇疫情搅局 黄子佼取消婚礼市集</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942110.md#1" target="_blank">《异星占领》续集6月登台 美谐星郑肯加盟演出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/8/n12932742.md#1" target="_blank">前关八主唱涩谷昴宣布结婚：人生很有趣</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/6/n12928409.md#1" target="_blank">宫胁咲良与成员喊“IZ*ONE结束了” 谈返日心境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/12/n12942961.md#1" target="_blank">梁心颐新歌唱出爱情观 6月底将释出新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/10/n12936632.md#1" target="_blank">温岚5年没发片单曲暖身 在对岸解隔离有人送花</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kvspqe3378/djy/blob/master/gb/21/5/10/n12936497.md#1" target="_blank">戴爱玲曝演唱会5大亮点 忆驻唱时光磨出自信</a></h4></td></tr>
