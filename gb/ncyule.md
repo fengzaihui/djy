@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12944123.md#1" target="_blank">全球最长寿演员诺曼·劳埃德去世 享嵩寿106岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12942110.md#1" target="_blank">《异星占领》续集6月登台 美谐星郑肯加盟演出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945867.md#1" target="_blank">台湾疫情升温 《玩命关头9》再次延档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945454.md#1" target="_blank">黄子佼宣布取消家宴“不再延期！”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12945189.md#1" target="_blank">以防疫优先 文化部：金曲奖颁奖形式可能变动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ibqjkn3026/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
