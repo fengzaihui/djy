@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12943868.md#1" target="_blank">港首任国安处长惊爆丑闻 杜汶泽四度发文嘲讽</a><br></h3><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12943868.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/191106074703100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a><br></h3><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12943852-GettyImages-99760112-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/14/n12948676.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12948746-2012160249292122-320x200.jpg"></a>
 <a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12945454.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12945460-2012210437392122-320x200.jpg"></a>
 <a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12944825-DSC_8830-1-320x200.jpg"></a>
 <a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12943448-190129092240100707-320x200.jpg"></a>
 <a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12941296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12941352-200623032327100707-320x200.jpg"></a>
 <a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/11/n12939119.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12939157-2103311012011470-320x200.jpg"></a>
-<a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/10/n12936880.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12937173-1810310455152122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12944123.md#1" target="_blank">全球最长寿演员诺曼·劳埃德去世 享嵩寿106岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/14/n12948676.md#1" target="_blank">水电全停疫情爆 宥胜惊觉：更珍惜现在所有</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12945867.md#1" target="_blank">台湾疫情升温 《玩命关头9》再次延档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12945454.md#1" target="_blank">黄子佼宣布取消家宴“不再延期！”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12945189.md#1" target="_blank">以防疫优先 文化部：金曲奖颁奖形式可能变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
@@ -51,8 +51,8 @@
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/7/n12931918.md#1" target="_blank">梁朝伟拒演一部电影 成就周星驰的星爷地位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/7/n12932241.md#1" target="_blank">李千那父亲演出到一半晕倒 送医动5小时手术</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/9/n12935234.md#1" target="_blank">吴尊庆母亲节晒妈妈照片 网友惊叹婆媳相像</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/11/n12940428.md#1" target="_blank">阿娇身材发福引热议 一日五餐以上吃到吐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/12/n12940997.md#1" target="_blank">一日遭遇两状况 吴凤大赞台湾“心中神地”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/11/n12940428.md#1" target="_blank">阿娇身材发福引热议 一日五餐以上吃到吐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/7/n12931731.md#1" target="_blank">打完疫苗24小时后发烧 赖铭伟停工返家休养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/10/n12937591.md#1" target="_blank">被命理师预言晚婚 萧敬腾认真回复引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sbhsgd3858/djy/blob/master/gb/21/5/10/n12936096.md#1" target="_blank">(G)I-DLE四成员开设个人IG 舒华简介“很舒华”</a></h4></td></tr>
