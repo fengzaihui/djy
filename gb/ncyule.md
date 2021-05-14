@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947317.md#1" target="_blank">被指“辱华” 两部漫威英雄电影或遭中共封杀</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947317.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12947437-tingliang-chaowei-zhao-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945734.md#1" target="_blank">润娥本月迎生日 捧花束参与帮助儿童企划</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945734.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12945815-190531050206100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12949814-210514102649100707-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12949243-2105140637351487-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948676.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12948746-2012160249292122-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945454.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12945460-2012210437392122-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12944825-DSC_8830-1-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12943448-190129092240100707-320x200.jpg"></a>
-<a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12941296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12941352-200623032327100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/10/n12937846.md#1" target="_blank">章子怡晒夫妻合照庆纪念日 继女一举动显亲子情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948921.md#1" target="_blank">前2NE1成员Dara 与YG娱乐17年合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank">刘在锡摘“百想”大奖  呼吁关注传统与文化</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948208.md#1" target="_blank">祉呼踩空楼梯撞伤 缺席本周OH MY GIRL行程</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947116.md#1" target="_blank">韩国乐团38岁成员骤逝 告白爱猫竟一语成谶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948804.md#1" target="_blank">李玖哲与妻因疫情分隔 天天视讯维系感情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/8/n12932742.md#1" target="_blank">前关八主唱涩谷昴宣布结婚：人生很有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945189.md#1" target="_blank">以防疫优先 文化部：金曲奖颁奖形式可能变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12942961.md#1" target="_blank">梁心颐新歌唱出爱情观 6月底将释出新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/10/n12936632.md#1" target="_blank">温岚5年没发片单曲暖身 在对岸解隔离有人送花</a></h4></td></tr>
