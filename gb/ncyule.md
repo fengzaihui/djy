@@ -2,10 +2,10 @@
 <tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank">刘在锡摘“百想”大奖  呼吁关注传统与文化</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12948403-180219031215100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12947950-dao-niunai-01-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947317.md#1" target="_blank">被指“辱华” 两部漫威英雄电影或遭中共封杀</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947317.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12947437-tingliang-chaowei-zhao-600x400.jpg"></a></td></tr>
+<tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945734.md#1" target="_blank">润娥本月迎生日 捧花束参与帮助儿童企划</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945734.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12945815-190531050206100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12944123.md#1" target="_blank">全球最长寿演员诺曼·劳埃德去世 享嵩寿106岁</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12944123.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12944181-GettyImages-461095378-600x400.jpg"></a></td></tr>
-<tr><td><h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12943868.md#1" target="_blank">港首任国安处长惊爆丑闻 杜汶泽四度发文嘲讽</a><br></h3><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12943868.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/191106074703100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12948403-180219031215100707-320x200.jpg"></a>
+<a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12949243-2105140637351487-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948676.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12948746-2012160249292122-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945454.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12945460-2012210437392122-320x200.jpg"></a>
 <a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12944825-DSC_8830-1-320x200.jpg"></a>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank">刘在锡摘“百想”大奖  呼吁关注传统与文化</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948208.md#1" target="_blank">祉呼踩空楼梯撞伤 缺席本周OH MY GIRL行程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947116.md#1" target="_blank">韩国乐团38岁成员骤逝 告白爱猫竟一语成谶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947317.md#1" target="_blank">被指“辱华” 两部漫威英雄电影或遭中共封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12944123.md#1" target="_blank">全球最长寿演员诺曼·劳埃德去世 享嵩寿106岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948804.md#1" target="_blank">李玖哲与妻因疫情分隔 天天视讯维系感情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948861.md#1" target="_blank">台男星演脑神经外科医师 意外救了妈妈腿疾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948676.md#1" target="_blank">水电全停疫情爆 宥胜惊觉：更珍惜现在所有</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
