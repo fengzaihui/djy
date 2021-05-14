@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank">刘在锡摘“百想”大奖  呼吁关注传统与文化</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948208.md#1" target="_blank">祉呼踩空楼梯撞伤 缺席本周OH MY GIRL行程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947116.md#1" target="_blank">韩国乐团38岁成员骤逝 告白爱猫竟一语成谶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947317.md#1" target="_blank">被指“辱华” 两部漫威英雄电影或遭中共封杀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948804.md#1" target="_blank">李玖哲与妻因疫情分隔 天天视讯维系感情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948861.md#1" target="_blank">台男星演脑神经外科医师 意外救了妈妈腿疾</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/10/n12937275.md#1" target="_blank">板野友美宣布怀孕 因孕吐感受到母亲的伟大</a></h4></td></tr>
