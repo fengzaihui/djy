@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/10/n12937846.md#1" target="_blank">章子怡晒夫妻合照庆纪念日 继女一举动显亲子情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948921.md#1" target="_blank">前2NE1成员Dara 与YG娱乐17年合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank">刘在锡摘“百想”大奖  呼吁关注传统与文化</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/14/n12948208.md#1" target="_blank">祉呼踩空楼梯撞伤 缺席本周OH MY GIRL行程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947116.md#1" target="_blank">韩国乐团38岁成员骤逝 告白爱猫竟一语成谶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945734.md#1" target="_blank">润娥本月迎生日 捧花束参与帮助儿童企划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12947317.md#1" target="_blank">被指“辱华” 两部漫威英雄电影或遭中共封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12945574.md#1" target="_blank">《超红》10周年特辑 于美人偕林乔安表演唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atmdgd314/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank">抱怨防疫禁令被骂翻 郎祖筠深夜发文致歉</a></h4></td></tr>
