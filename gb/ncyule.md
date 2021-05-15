@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/15/n12952232.md#1" target="_blank">Highlight为再夺冠军相拥 惊讶之余感性谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12948921.md#1" target="_blank">前2NE1成员Dara 与YG娱乐17年合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12948346.md#1" target="_blank">刘在锡摘“百想”大奖  呼吁关注传统与文化</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12948208.md#1" target="_blank">祉呼踩空楼梯撞伤 缺席本周OH MY GIRL行程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xodzue399/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
