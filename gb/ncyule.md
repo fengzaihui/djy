@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12950568.md#1" target="_blank">景甜自曝父母吵架30多年 疫情让他们最终离婚</a><br></h3><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12950568.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12950623-GettyImages-1143971005-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12950750.md#1" target="_blank">吴奇隆晒空中一字马 同款姿势不输刘诗诗</a><br></h3><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12950750.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/id12847213-liu-shishi-wu-qilong-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/16/n12953144.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12953151-1906060532532122-320x200.jpg"></a>
 <a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/16/n12952898.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12952910-2105152215251487-320x200.jpg"></a>
 <a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12949243-2105140637351487-320x200.jpg"></a>
 <a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12948676.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12948746-2012160249292122-320x200.jpg"></a>
 <a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/13/n12945454.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12945460-2012210437392122-320x200.jpg"></a>
 <a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/13/n12944764.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12944825-DSC_8830-1-320x200.jpg"></a>
+<a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12943448-190129092240100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12949219.md#1" target="_blank">第23届台北电影奖入围揭晓 《无声》8奖领跑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/16/n12953144.md#1" target="_blank">林可彤二宝准时报到 入院不到2hrs诞生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/16/n12952947.md#1" target="_blank">眼睛被儿打伤 周采诗晒伤照自嘲：算家暴吗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/16/n12952898.md#1" target="_blank">台湾本土病例暴增 男星见1景象吐露担心</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12950935.md#1" target="_blank">李若彤晒与张丰毅健身合照 获赞自信又自律</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jjhjmf3968/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
