@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/17/n12955103.md#1" target="_blank">台疫情加剧 龙千玉5场演出取消 停办1活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/17/n12954655.md#1" target="_blank">民众因疫情往山上跑 阿爆吁别来：部落很困扰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/16/n12954101.md#1" target="_blank">台疫情升温 黄秋生列要点喊话：一月内必可控</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/16/n12953857.md#1" target="_blank">隋棠自曝打疫苗状况 高烧痛苦到只能卧床</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/16/n12953066.md#1" target="_blank">宫胁咲良将从HKT48毕业 因指原莉乃的信落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/17/n12955103.md#1" target="_blank">台疫情加剧 龙千玉5场演出取消 停办1活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/16/n12953319.md#1" target="_blank">台“浪人”歌手推创作 获国际音乐制作人鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/13/n12945189.md#1" target="_blank">以防疫优先 文化部：金曲奖颁奖形式可能变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/12/n12942961.md#1" target="_blank">梁心颐新歌唱出爱情观 6月底将释出新专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/10/n12936632.md#1" target="_blank">温岚5年没发片单曲暖身 在对岸解隔离有人送花</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjjjpl398/djy/blob/master/gb/21/5/12/n12940997.md#1" target="_blank">一日遭遇两状况 吴凤大赞台湾“心中神地”</a></h4></td></tr>
