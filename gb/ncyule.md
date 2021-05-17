@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/16/n12953888.md#1" target="_blank">曾上节目爆料弟弟入伍 IU分享后续有趣互动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/16/n12953066.md#1" target="_blank">宫胁咲良将从HKT48毕业 因指原莉乃的信落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/15/n12952232.md#1" target="_blank">Highlight为再夺冠军相拥 惊讶之余感性谢粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/14/n12949575.md#1" target="_blank">盖瑞奇新作《五眼联盟》再度携手杰森史塔森</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12955027.md#1" target="_blank">黄子佼写歌献妻 感谢命运中的媒人张小燕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12955103.md#1" target="_blank">台疫情加剧 龙千玉5场演出取消 停办1活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12954655.md#1" target="_blank">民众因疫情往山上跑 阿爆吁别来：部落很困扰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/16/n12953066.md#1" target="_blank">宫胁咲良将从HKT48毕业 因指原莉乃的信落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
