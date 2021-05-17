@@ -47,7 +47,7 @@
 1992年5月13日，法轮功创始人李洪志先生，从中国东北的长春市，开始传出法轮功。因净化身心有奇效，法轮功迅速传遍全中国，传到全世界。
 
 法轮功要求修炼者必须按照“真、善、忍”做好人，把“修心性”放在第一位。法轮功所到之处，都出现人心向善、道德回升、安定祥和的局.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月14日 9:58 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/17/n12955438.md#1" target="_blank">蒋立智：“变种恐慌”病毒影响经济</a><br></h3>全球变种病毒蔓延，传播力更强，其实传播力最强的病毒是“变种恐慌”心理病毒。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月17日 5:49 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/13/n12947626.md#1" target="_blank">颜纯钩：没有公义的社会有多可怕？</a><br></h3><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/13/n12947626.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12942338-DSC_2794-02.jpeg-150x120.jpg" align ="left"></a>近日最令人捧腹的好消息，便是蔡展鹏被警方自己人在冇牌按摩店抓个正着，初听消息，禁不住大笑三声，于公于私，这件事都值得浮一大白（饮一杯庆祝的意思)。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月14日 8:21 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/ntrwbs3406/djy/blob/master/gb/21/5/16/n12954229.md#1" target="_blank">王友群：批“党天下”的大右派储安平失踪之谜</a><br></h3>今天的中共党章白纸黑字写着：“党政军民学，东西南北中，党是领导一切的”。这句话是什么意思？很简单，中共通过其党章向全世界表明：中共在中国搞的就是“党天下”。
 
 然而，在1957年毛泽东发动反右派运动时，时任《光明日报》总编辑储安平，就因为批评中共搞“党天下”，受到“深揭猛批”和严厉惩罚。1966年文革爆发后，储安平.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月17日 8:21 AM			</td></tr>
