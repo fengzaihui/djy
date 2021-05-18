@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12956410.md#1" target="_blank">杜汶泽宅在家做运动抗疫 自曝年龄惊呆网友</a><br></h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12956410.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/duwenze_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12956244.md#1" target="_blank">电影《抉择》?值得中国人骄傲的好电影</a><br></h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12956244.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12956251-e8e1e6635cb333763b7bbbeed27d4da0-600x360.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12958443.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12958450-1810310455152122-320x200.jpg"></a>
 <a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957866.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12957906-2105180437451487-320x200.jpg"></a>
 <a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12957278-2104300449392122-320x200.jpg"></a>
 <a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12955562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12955917-210517101627100707-320x200.jpg"></a>
 <a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12955287.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12956876-210517214425100707-320x200.jpg"></a>
 <a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12955027.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12955214-IMG_0205-320x200.jpg"></a>
-<a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12954978-2105170215281487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：一群超能力者 让十九世纪英国更有魅力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12958443.md#1" target="_blank">OH MY GIRL七人一起拿冠军 交换演唱part好逗趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12958161.md#1" target="_blank">TRI.BE推出新歌 台湾成员嘉佳：请多多收听</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957797.md#1" target="_blank">fromis_9疫情期在室内旅行 《WE GO》音源榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957117.md#1" target="_blank">SEVENTEEN新作谈“爱” 迷你八辑6月18日推出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957004.md#1" target="_blank">GFRIEND合约告终全员不续约 未来动向受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
