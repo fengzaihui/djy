@@ -7,9 +7,12 @@
 <tr><td width="742"><h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957502.md#1" target="_blank">李国涛：中共?江山?人民</a><br></h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957502.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/11/82c67660fc3b975f4ee6695c78ac8d71-150x120.jpg" align ="left"></a>人类现代文明国家的准则是，江山主权在民，政府官员民选。而中共却始终以“打江山者坐江山”这一强盗逻辑，对抗历史文明潮流，这就注定了中共是人民的公敌。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月18日 2:35 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957395.md#1" target="_blank">曾慧燕：从人权新闻奖看香港传媒前景</a><br></h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12957395.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12957485-cai-yu-lin--150x120.jpeg" align ="left"></a>“2021年度人权新闻奖”得奖名单5月6日公布，香港电台是大赢家，共夺六个奖项，众所关注的因追查“白衣人”车牌获罪的港台记者蔡玉玲，以及未获续聘的港台记者利君雅双双得奖，但两人所属的香港电台表示拒绝领奖。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月18日 2:02 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12956555.md#1" target="_blank">王友群：被关进监狱的中国亿万富豪</a><br></h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/17/n12956555.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12956561-GettyImages-1173035156-600x400-150x120.jpeg" align ="left"></a>美国前国务卿蓬佩奥的首席中国问题顾问余茂春，4月15日，在“美中经济安全审查委员会”举办的听证会上说，过去15年，至少27位中国亿万富翁被抓捕，他们遭受的指控既离奇又荒唐。河北著名民营企业家孙大午，就是被中共抓捕的亿万富翁中最近的一个例子。
-孙大午等三个典型案例
-1.孙大午可能因言获罪
-4月21日，孙大午被正式逮.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月18日 9:57 AM			</td></tr>
+
+听新闻：
+
+（听更多请至“听纪元”平台）
+
+孙大午等三个典型案例.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月18日 9:57 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12956788.md#1" target="_blank">沈舟：以色列铁穹系统或热销军火市场</a><br></h3><a href="https://github.com/usjngc384/djy/blob/master/gb/21/5/18/n12956788.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12956830-GettyImages-1232819244-150x120.jpg" align ="left"></a>以巴冲突一周多来，以色列的精准反击能力再次令世界刮目相看，人们通过视频看到了以色列的空袭如何令一座目标大楼轰然倒塌。精确制导武器已经不算什么新鲜事，但很多人之前并不一定看得到。空袭前一小时，以色列还电话通知房主撤离，这可能令不少媒体或现场的民众有机会拍下了难得的画面。
 
 以色列的精准攻击的确令人惊叹，不过，更该令所.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月18日 9:39 AM			</td></tr>
