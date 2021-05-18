@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/18/n12957117.md#1" target="_blank">SEVENTEEN新作谈“爱” 迷你八辑6月18日推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/18/n12957004.md#1" target="_blank">GFRIEND合约告终全员不续约 未来动向受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955562.md#1" target="_blank">郑容和以中文翻唱英文曲 网友赞“太好听了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12954333.md#1" target="_blank">IU生日捐款5亿韩圜助弱势 守约将爱归还世人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955528.md#1" target="_blank">MAMAMOO准备演唱会与纪录片 6月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
@@ -43,9 +43,9 @@
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/12/n12942703.md#1" target="_blank">TWICE努力练日文新歌舞蹈 疫情中用心亲近粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/18/n12957461.md#1" target="_blank">李恕权睽违多年释出新歌 盼为防疫带来力量</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/18/n12957171.md#1" target="_blank">“疫情改变剧情” Lulu挑战一人拍片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955905.md#1" target="_blank">美国人气歌手泰勒丝获全英音乐奖最高荣誉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955103.md#1" target="_blank">台疫情加剧 龙千玉5场演出取消 停办1活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/16/n12953319.md#1" target="_blank">台“浪人”歌手推创作 获国际音乐制作人鼓励</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/12/n12940997.md#1" target="_blank">一日遭遇两状况 吴凤大赞台湾“心中神地”</a></h4></td></tr>
