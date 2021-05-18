@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12956410.md#1" target="_blank">杜汶泽宅在家做运动抗疫 自曝年龄惊呆网友</a><br></h3><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12956410.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/duwenze_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12956244.md#1" target="_blank">电影《抉择》?值得中国人骄傲的好电影</a><br></h3><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12956244.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12956251-e8e1e6635cb333763b7bbbeed27d4da0-600x360.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/18/n12957171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12957278-2104300449392122-320x200.jpg"></a>
 <a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12955917-210517101627100707-320x200.jpg"></a>
 <a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955287.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12956876-210517214425100707-320x200.jpg"></a>
 <a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955027.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12955214-IMG_0205-320x200.jpg"></a>
 <a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12954978-2105170215281487-320x200.jpg"></a>
 <a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12954655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12954695-2009122249211487-320x200.jpg"></a>
-<a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/16/n12953144.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12953151-1906060532532122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：一群超能力者 让十九世纪英国更有魅力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/18/n12957171.md#1" target="_blank">“疫情改变剧情” Lulu挑战一人拍片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12956627.md#1" target="_blank">梁咏琪获法国厨艺专业资格 洗碗速度超过保姆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12956243.md#1" target="_blank">吴凤对防疫有信心：等着分享台湾优异表现</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12956410.md#1" target="_blank">杜汶泽宅在家做运动抗疫 自曝年龄惊呆网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/16/n12953066.md#1" target="_blank">宫胁咲良将从HKT48毕业 因指原莉乃的信落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vxdaxr3116/djy/blob/master/gb/21/5/13/n12944797.md#1" target="_blank">内野圣阳发烧后确诊染疫 不影响晨间剧播出</a></h4></td></tr>
