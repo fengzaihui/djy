@@ -26,26 +26,26 @@
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/19/n12959679.md#1" target="_blank">Lizzy酒驾遭立案调查 公司：她由衷反省自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank">TWICE成最多破亿观看MV女团 7月发行日文专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12958443.md#1" target="_blank">OH MY GIRL七人一起拿冠军 交换演唱part好逗趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12958161.md#1" target="_blank">TRI.BE推出新歌 台湾成员嘉佳：请多多收听</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12957797.md#1" target="_blank">fromis_9疫情期在室内旅行 《WE GO》音源榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/14/n12949679.md#1" target="_blank">纪录片《绿色牢笼》 进入台北电影节双竞赛</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/19/n12959974.md#1" target="_blank">新生代台语歌手紫君发片 邀施文彬跨刀新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/19/n12959802.md#1" target="_blank">张庭瑚具运动天赋 快艇冲浪学2天即懂诀窍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12959160.md#1" target="_blank">周润发66岁生日 获好友送别致生日卡祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12959029.md#1" target="_blank">梁朝伟林志玲将续前缘 吴宇森筹拍《赤壁》网剧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12958844.md#1" target="_blank">香港歌手黎瑞恩胰脏长肿瘤 不做手术奇迹康复</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank">TWICE成最多破亿观看MV女团 7月发行日文专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12958588.md#1" target="_blank">田村正和心脏衰竭离世 弟：他的人生很幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/16/n12953066.md#1" target="_blank">宫胁咲良将从HKT48毕业 因指原莉乃的信落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/19/n12959974.md#1" target="_blank">新生代台语歌手紫君发片 邀施文彬跨刀新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12957866.md#1" target="_blank">周兴哲破亿金曲再加1 追平周董、邓紫棋纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12957461.md#1" target="_blank">李恕权睽违多年释出新歌 盼为防疫带来力量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/18/n12957171.md#1" target="_blank">“疫情改变剧情” Lulu挑战一人拍片</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/17/n12955905.md#1" target="_blank">美国人气歌手泰勒丝获全英音乐奖最高荣誉</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hhpibc3339/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
