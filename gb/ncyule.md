@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962233.md#1" target="_blank">新作挑战音域极限 陈势安变得很不一样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961353.md#1" target="_blank">分享在家防疫日常 林心如：再没借口逃避煮菜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960702.md#1" target="_blank">在家防疫带小孩 杨千霈严立婷大吐妈妈心声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960187.md#1" target="_blank">梁静茹在家陪读 7岁儿写作业字迹工整</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank">TWICE成最多破亿观看MV女团 7月发行日文专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12958588.md#1" target="_blank">田村正和心脏衰竭离世 弟：他的人生很幸福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962233.md#1" target="_blank">新作挑战音域极限 陈势安变得很不一样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959974.md#1" target="_blank">新生代台语歌手紫君发片 邀施文彬跨刀新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12957866.md#1" target="_blank">周兴哲破亿金曲再加1 追平周董、邓紫棋纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12957461.md#1" target="_blank">李恕权睽违多年释出新歌 盼为防疫带来力量</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12957171.md#1" target="_blank">“疫情改变剧情” Lulu挑战一人拍片</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
