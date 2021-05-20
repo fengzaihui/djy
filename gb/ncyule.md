@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a><br></h3><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/03/1603290932541487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960702.md#1" target="_blank">在家防疫带小孩 杨千霈严立婷大吐妈妈心声</a><br></h3><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960702.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12960735-1711160644522384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12963091-210516043027100707-320x200.jpg"></a>
 <a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12962769-2105200415231487-320x200.jpg"></a>
 <a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960168.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12960179-RUI_9891-final3-320x200.jpg"></a>
 <a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2003180400291487-320x200.jpg"></a>
 <a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12959662-190801081632100707-320x200.jpg"></a>
 <a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12958443.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12958450-1810310455152122-320x200.jpg"></a>
-<a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12957866.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12957906-2105180437451487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/12/n12943609.md#1" target="_blank">罗晋赞同严父教育 说到爱女又瞬间变卦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/11/n12938160.md#1" target="_blank">拍戏时收到爸爸病危通知 张馨予多次情绪崩溃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12963519.md#1" target="_blank">NCT DREAM首度7人领冠军奖杯 Mark感动谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962690.md#1" target="_blank">郑镒勋呼麻遭检方求刑4年 追缴1.33亿韩圜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960467.md#1" target="_blank">泰民入伍前最后作品 《Advice》41区iTunes榜夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960193.md#1" target="_blank">停课不停学 公视超前部署与政府合制教育节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962645.md#1" target="_blank">大马视帝李铭忠在台防疫 用电扇做出鸡蛋糕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962722.md#1" target="_blank">动力火车在家防疫 同事：不能胖不要为难造型师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank">TWICE成最多破亿观看MV女团 7月发行日文专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12963061.md#1" target="_blank">疫情增温打乱宣传期 蔡诗芸：此刻应团结防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962722.md#1" target="_blank">动力火车在家防疫 同事：不能胖不要为难造型师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962233.md#1" target="_blank">新作挑战音域极限 陈势安变得很不一样</a></h4></td></tr>
@@ -56,6 +56,6 @@
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank">《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/14/n12950568.md#1" target="_blank">景甜自曝父母吵架30多年 疫情让他们最终离婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12956410.md#1" target="_blank">杜汶泽宅在家做运动抗疫 自曝年龄惊呆网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/pznlyv364/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/pznlyv364/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/pznlyv364/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/pznlyv364/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
