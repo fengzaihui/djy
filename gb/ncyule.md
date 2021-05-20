@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959679.md#1" target="_blank">Lizzy酒驾遭立案调查 公司：她由衷反省自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank">TWICE成最多破亿观看MV女团 7月发行日文专辑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960193.md#1" target="_blank">停课不停学 公视超前部署与政府合制教育节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/16/n12953004.md#1" target="_blank">宥胜自评近期“角色”欠扁 戏外给自己打80分</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961659.md#1" target="_blank">“很难在大陆拍戏”香港导演彭浩翔移居加拿大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962233.md#1" target="_blank">新作挑战音域极限 陈势安变得很不一样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961353.md#1" target="_blank">分享在家防疫日常 林心如：再没借口逃避煮菜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank">TWICE成最多破亿观看MV女团 7月发行日文专辑</a></h4></td></tr>
