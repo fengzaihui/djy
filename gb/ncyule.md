@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960193.md#1" target="_blank">停课不停学 公视超前部署与政府合制教育节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/17/n12954935.md#1" target="_blank">疫情挑战身心灵《火神》林柏宏吁支持医护消防</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12963061.md#1" target="_blank">疫情增温打乱宣传期 蔡诗芸：此刻应团结防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962645.md#1" target="_blank">大马视帝李铭忠在台防疫 用电扇做出鸡蛋糕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962722.md#1" target="_blank">动力火车在家防疫 同事：不能胖不要为难造型师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12961659.md#1" target="_blank">“很难在大陆拍戏”香港导演彭浩翔移居加拿大</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959551.md#1" target="_blank">TWICE成最多破亿观看MV女团 7月发行日文专辑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12963061.md#1" target="_blank">疫情增温打乱宣传期 蔡诗芸：此刻应团结防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962722.md#1" target="_blank">动力火车在家防疫 同事：不能胖不要为难造型师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/20/n12962233.md#1" target="_blank">新作挑战音域极限 陈势安变得很不一样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/19/n12959974.md#1" target="_blank">新生代台语歌手紫君发片 邀施文彬跨刀新歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/18/n12957866.md#1" target="_blank">周兴哲破亿金曲再加1 追平周董、邓紫棋纪录</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/14/n12948797.md#1" target="_blank">侯怡君宣布与制作人结婚 期待宝宝到来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pznlyv364/djy/blob/master/gb/21/5/14/n12949185.md#1" target="_blank">TWICE上《MS》 粉丝柏木由纪热论最爱服装</a></h4></td></tr>
