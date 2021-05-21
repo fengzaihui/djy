@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/19/n12961659.md#1" target="_blank">“很难在大陆拍戏”香港导演彭浩翔移居加拿大</a><br></h3><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/19/n12961659.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12961830-GettyImages-80259895-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/19/n12961353.md#1" target="_blank">分享在家防疫日常 林心如：再没借口逃避煮菜</a><br></h3><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/19/n12961353.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/04/id12869389-2104090448252122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965047.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12966030-200127014652100707-320x200.jpg"></a>
+<a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965889.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12965916-2005251123501470-320x200.jpg"></a>
 <a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12965504-2105210452181487-320x200.jpg"></a>
 <a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965102.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12965187-2105210204021487-320x200.jpg"></a>
 <a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12963896.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12964043-tong-liya-320x200.jpg"></a>
 <a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12964063.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/02/1802060422071487-320x200.jpg"></a>
-<a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12963091-210516043027100707-320x200.jpg"></a>
-<a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12963061.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12963097-2105200711051487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
@@ -26,18 +26,18 @@
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12963896.md#1" target="_blank">与陈思诚520宣布离婚 佟丽娅婚礼照现惊人巧合</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/14/n12950568.md#1" target="_blank">景甜自曝父母吵架30多年 疫情让他们最终离婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965047.md#1" target="_blank">BTS盼再挑战葛莱美奖 《Butter》95区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12964688.md#1" target="_blank">GFRIEND各SNS续留 公司为粉丝的期望未果致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12964743.md#1" target="_blank">(G)I-DLE队长田小娟准备Solo出辑 时间或在6月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12963519.md#1" target="_blank">NCT DREAM首度7人领冠军奖杯 Mark感动谢粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962690.md#1" target="_blank">郑镒勋呼麻遭检方求刑4年 追缴1.33亿韩圜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank">和小虎队同公司曾被威胁 李之勤收警告信吓坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965270.md#1" target="_blank">“无薪假”当处罚 《3国智》主持群陷生存之战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/19/n12960193.md#1" target="_blank">停课不停学 公视超前部署与政府合制教育节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965889.md#1" target="_blank">林宥嘉开直播搞神秘 半夜唱儿歌 妻给满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965648.md#1" target="_blank">《黑涩会》玉兔重返医护前线：守护我们的家园</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank">和小虎队同公司曾被威胁 李之勤收警告信吓坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965331.md#1" target="_blank">入围金曲居家庆功 孙盛希喊话：熬过困难时期</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965338.md#1" target="_blank">田馥甄忧疫情与医护 大于入围金曲7奖的喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
