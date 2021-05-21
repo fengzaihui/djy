@@ -30,12 +30,12 @@
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12964743.md#1" target="_blank">(G)I-DLE队长田小娟准备Solo出辑 时间或在6月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12963519.md#1" target="_blank">NCT DREAM首度7人领冠军奖杯 Mark感动谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962690.md#1" target="_blank">郑镒勋呼麻遭检方求刑4年 追缴1.33亿韩圜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank">当小虎队师妹曾被威胁 李之勤收警告信吓坏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank">和小虎队同公司曾被威胁 李之勤收警告信吓坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965270.md#1" target="_blank">“无薪假”当处罚 《3国智》主持群陷生存之战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/19/n12960193.md#1" target="_blank">停课不停学 公视超前部署与政府合制教育节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965648.md#1" target="_blank">《黑涩会》玉兔重返医护前线：守护我们的家园</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank">当小虎队师妹曾被威胁 李之勤收警告信吓坏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank">和小虎队同公司曾被威胁 李之勤收警告信吓坏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965331.md#1" target="_blank">入围金曲居家庆功 孙盛希喊话：熬过困难时期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/21/n12965338.md#1" target="_blank">田馥甄忧疫情与医护 大于入围金曲7奖的喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uczxkr3180/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
