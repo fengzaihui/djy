@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/20/n12963896.md#1" target="_blank">与陈思诚520宣布离婚 佟丽娅婚礼照现惊人巧合</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/14/n12950568.md#1" target="_blank">景甜自曝父母吵架30多年 疫情让他们最终离婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/14/n12947795.md#1" target="_blank">大陆官方再出招 禁艺人收粉丝集资礼物</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/21/n12964688.md#1" target="_blank">GFRIEND各SNS续留 公司为粉丝的期望未果致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/21/n12964743.md#1" target="_blank">(G)I-DLE队长田小娟准备Solo出辑 时间或在6月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/20/n12963519.md#1" target="_blank">NCT DREAM首度7人领冠军奖杯 Mark感动谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/20/n12962690.md#1" target="_blank">郑镒勋呼麻遭检方求刑4年 追缴1.33亿韩圜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/20/n12962542.md#1" target="_blank">吴依霖潘慧如好交情 月初录影都带伤惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/19/n12960193.md#1" target="_blank">停课不停学 公视超前部署与政府合制教育节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cknfwu3583/djy/blob/master/gb/21/5/17/n12955453.md#1" target="_blank">疫情中赶拍台剧 王传一顾及安全先与家人隔离</a></h4></td></tr>
