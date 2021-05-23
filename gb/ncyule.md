@@ -30,22 +30,22 @@
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/22/n12967677.md#1" target="_blank">BTS《Butter》101区iTunes榜夺冠 MV观看破亿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/21/n12965047.md#1" target="_blank">BTS盼再挑战葛莱美奖 《Butter》95区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/21/n12964688.md#1" target="_blank">GFRIEND各SNS续留 公司为粉丝的期望未果致歉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12968883.md#1" target="_blank">老萧公开《萧房车》幕后花絮  松口谈第2季</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/22/n12967987.md#1" target="_blank">加菲尔德再否认出演《蜘蛛侠：无路可退》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/21/n12965397.md#1" target="_blank">和小虎队同公司曾被威胁 李之勤收警告信吓坏</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/21/n12965270.md#1" target="_blank">“无薪假”当处罚 《3国智》主持群陷生存之战</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12969454.md#1" target="_blank">发片日遇疫取消 台双人组合成“通告受灾户”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12969328.md#1" target="_blank">黄明志曝大马惨况 盼台湾最短时间内解除三级</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12969009.md#1" target="_blank">Ella在家防疫当全职主妇 头痛“煮饭快没招”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12968883.md#1" target="_blank">老萧公开《萧房车》幕后花絮  松口谈第2季</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/21/n12965889.md#1" target="_blank">林宥嘉开直播搞神秘 半夜唱儿歌 妻给满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/23/n12969454.md#1" target="_blank">发片日遇疫取消 台双人组合成“通告受灾户”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/21/n12965102.md#1" target="_blank">萧敬腾“520”开直播闲聊 挤进210万人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/20/n12963061.md#1" target="_blank">疫情增温打乱宣传期 蔡诗芸：此刻应团结防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/20/n12962722.md#1" target="_blank">动力火车在家防疫 同事：不能胖不要为难造型师</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/20/n12962233.md#1" target="_blank">新作挑战音域极限 陈势安变得很不一样</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lespav3613/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
