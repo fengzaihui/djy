@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/24/n12970953.md#1" target="_blank">BTS摘2021告示牌音乐奖四奖 刷新自身纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/22/n12967774.md#1" target="_blank">GFRIEND合约告终：一起唱过的歌会永远闪耀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/22/n12967677.md#1" target="_blank">BTS《Butter》101区iTunes榜夺冠 MV观看破亿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/23/n12968883.md#1" target="_blank">老萧公开《萧房车》幕后花絮  松口谈第2季</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/22/n12967987.md#1" target="_blank">加菲尔德再否认出演《蜘蛛侠：无路可退》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/24/n12971103.md#1" target="_blank">资深艺人李玉芬病逝 曾任第一代台语广告配音员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/23/n12969454.md#1" target="_blank">发片日遇疫取消 台双人组合成“通告受灾户”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/19/n12960110.md#1" target="_blank">闻《月薪娇妻》男女主角婚讯 IZ*ONE三成员骚动</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/22/n12967774.md#1" target="_blank">GFRIEND合约告终：一起唱过的歌会永远闪耀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/20/n12963896.md#1" target="_blank">与陈思诚520宣布离婚 佟丽娅婚礼照现惊人巧合</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/21/n12966735.md#1" target="_blank">郝蕾揭大陆娱乐圈乱象：挤破头是为了名和利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/21/n12966897.md#1" target="_blank">李云迪晒与孙俪一家合照 等等与小花正面曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/21/n12966735.md#1" target="_blank">郝蕾揭大陆娱乐圈乱象：挤破头是为了名和利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/17/n12956410.md#1" target="_blank">杜汶泽宅在家做运动抗疫 自曝年龄惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hgnfmq336/djy/blob/master/gb/21/5/19/n12961659.md#1" target="_blank">“很难在大陆拍戏”香港导演彭浩翔移居加拿大</a></h4></td></tr>
