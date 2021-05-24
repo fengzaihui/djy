@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12966897.md#1" target="_blank">李云迪晒与孙俪一家合照 等等与小花正面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12966486.md#1" target="_blank">张国立又摊上糟心事 导戏封路惹冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12966735.md#1" target="_blank">郝蕾揭大陆娱乐圈乱象：挤破头是为了名和利</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/24/n12971400.md#1" target="_blank">Joy《If Only》与Paul Kim合作 改编成始璄歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/24/n12971172.md#1" target="_blank">GOT7成员BamBam 6月15日发行首张Solo专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/24/n12971074.md#1" target="_blank">李昇基将创立个人公司 与李多寅热恋获证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/24/n12970953.md#1" target="_blank">BTS摘2021告示牌音乐奖四奖 刷新自身纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/22/n12967774.md#1" target="_blank">GFRIEND合约告终：一起唱过的歌会永远闪耀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
