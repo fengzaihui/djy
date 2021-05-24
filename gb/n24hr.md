@@ -463,8 +463,19 @@
 <tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/18/n12959014.md#1" target="_blank">是头饰还是化妆品？堪称“人间富贵花”的花钿</a><br></h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/18/n12959014.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12959026-Meihua-Shinv-Tu-150x120.png" align ="left"></a>它是古代女子妆发造型中的小配角，又总是变换着自己的模样，吸引人们的目光。有时飞上发髻，做一只精美的小簪钗，有时停驻在眉心或两鬓，变成各种型态的小贴饰。它不是梳洗打扮的必备步骤，却有着点睛之笔的奇妙效用。
 花钿，一款小巧而看似不起眼的饰品，却代表了华丽、尊贵、精致等诸多令人向往的意象，将它比做“人间富贵花”再合适不过.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月22日 6:48 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/22/n12967774.md#1" target="_blank">GFRIEND合约告终：一起唱过的歌会永远闪耀</a><br></h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/22/n12967774.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12967782-1802270354182122-150x120.jpg" align ="left"></a>今日（22日），韩国人气女团GFRIEND与所属经纪公司Source Music的专属合约告终。GFRIEND的官方社群平台本日下午公开了一张六位成员的合照，配以“谢谢你们成为永远记得GFRIEND的Buddy（官方粉丝名），我们一起唱过的歌曲会永远闪耀”的文字。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月22日 6:43 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12965749.md#1" target="_blank">房价飞涨 悉尼房主以“离谱”价格试探市场</a><br></h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12965749.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12967819-2104102032122124-150x120.jpg" align ="left"></a>随着悉尼房价的快速上涨，市场房源紧张，一些 “投机取巧”的卖家正试图利用买家急于找房的机会以离谱的要价牟利。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月22日 6:34 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/22/n12967797.md#1" target="_blank">花莲添3例确诊  徐榛蔚：违反三级警戒开罚</a><br></h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/22/n12967797.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12967799-499153-150x120.jpg" align ="left"></a>国内疫情持续延烧，中央疫情指挥中心22日下午于记者会公布国内新增321本土个案，及400例校正个案，累积共有721例本土个案，其中花莲就有3例确诊，花莲县卫生局于会中，说明3例确诊个案足迹；县长徐榛蔚并宣布3项防疫措施，自明日起全县餐饮小吃一律外带，停止所有公祭活动，另外三级警戒若有违规，立即开罚，恳请乡亲落实个人自主.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月22日 6:32 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12966491.md#1" target="_blank">宾州州立大学拟停止使用“Freshman”等称呼</a><br></h3>宾州州立大学拟停止使用“Freshman”等称呼。校参议院办公室提议，将术语“Freshman”、“Sophomore”、“Junior”和“Senior”改为“第一年级（first-year）”、第二年级（second-year）、第三年级（third-year）、第四年级（fourth-year）”等。
+
+对于.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月25日 2:41 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12966505.md#1" target="_blank">宾大开发出中共病毒快速测试方法</a><br></h3>宾大医疗系统开发出快速检测中共病毒的方法--RAPID，4分钟内可出结果，准确率达90％。
+
+宾大医疗系统的这项研究近日发表在《Matter》上。该方法检测中共病毒刺突蛋白与其在人体中受体的结合，追踪电信号，检测受感染细胞与健康细胞之间的差异。信号可用台式仪器或智能手机读取。
+
+研究人员使用盲法测试，分析了13.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月25日 2:39 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12966514.md#1" target="_blank">罗格斯大学正开发COVID-19呼气分析测试仪</a><br></h3>罗格斯大学的研究人员正在努力开发一种无创、快速的COVID-19测试法，可以在数分钟内检测出病毒和其他呼吸系统疾病，类似于测定血液中酒精含量的呼吸分析原理。
+
+该测试将收集用户的呼出颗粒,并将其沉积到电子生物传感器上，仅需10分钟即可提供结果。
+
+该大学机械与航天工程系首席研究员德马罗（Edward DeMau.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年05月25日 2:35 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/odwrwk3904/djy/blob/master/gb/21/5/21/n12966536.md#1" target="_blank">费城家庭凶杀案翻倍</a><br></h3>费城发生在家庭内的凶杀案比去年翻了一番。在4月28日的最新一次通报中，费城警察局副局长戴尔（Dale）表示，家庭暴力杀人案上升了100％。
 
 截至5月12号，情况变得更糟。费城警说，去年同期，费城发生了8起家庭凶杀案。而今年截至5月中旬，费城已发生了19起家庭凶杀案，比去年同期增长了138％。
