@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12974093.md#1" target="_blank">周杰伦任“苏富比”策展人 捐演唱服做慈善</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12974202.md#1" target="_blank">柯泯薰生日开直播 分享防疫新生活爱上煮汤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12974108.md#1" target="_blank">罗文裕邀彭佳慧拍片 山中迷航巧遇隐藏版美食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12974085.md#1" target="_blank">84岁资深演员梅芳去年重摔 胸骨塌陷开刀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12974076.md#1" target="_blank">台三级警戒延长 黄秋生停拍《餐车》返港</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12973969.md#1" target="_blank">刘伊心喜获麟儿 逢疫情升温“过程”一波三折</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12973636.md#1" target="_blank">Mnet办Girls Planet 999韩中日女团选秀 8月开播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12973353.md#1" target="_blank">刚宣布进军日本 高桥朱里因健康因素暂停活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12974202.md#1" target="_blank">柯泯薰生日开直播 分享防疫新生活爱上煮汤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/25/n12974108.md#1" target="_blank">罗文裕邀彭佳慧拍片 山中迷航巧遇隐藏版美食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/24/n12972030.md#1" target="_blank">谢博安邀妈妈录唱新歌 苏打绿阿福表赞许</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/24/n12971468.md#1" target="_blank">离家近一年拼专辑圆梦 艾薇自称爱哭鬼担当</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/23/n12969454.md#1" target="_blank">发片日遇疫取消 台双人组合成“通告受灾户”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reeswl3543/djy/blob/master/gb/21/5/20/n12964363.md#1" target="_blank">晒大束玫瑰表白汪峰 章子怡结婚6年被宠成公主</a></h4></td></tr>
