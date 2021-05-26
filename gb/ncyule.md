@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12976423.md#1" target="_blank">林凡新歌获选电影主题曲 歌词提命中4“名人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12976254.md#1" target="_blank">防疫优先 第32届金曲奖颁奖延期举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12975376.md#1" target="_blank">夏语心捐血助人秀健保卡 本名曝光获赞超好听</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12975106.md#1" target="_blank">被抹黑台湾爆疫情便逃回香港 黄秋生霸气回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974093.md#1" target="_blank">周杰伦任“苏富比”策展人 捐演唱服做慈善</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973636.md#1" target="_blank">Mnet办Girls Planet 999韩中日女团选秀 8月开播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973353.md#1" target="_blank">刚宣布进军日本 高桥朱里因健康因素暂停活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12976423.md#1" target="_blank">林凡新歌获选电影主题曲 歌词提命中4“名人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12976254.md#1" target="_blank">防疫优先 第32届金曲奖颁奖延期举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974202.md#1" target="_blank">柯泯薰生日开直播 分享防疫新生活爱上煮汤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974108.md#1" target="_blank">罗文裕邀彭佳慧拍片 山中迷航巧遇隐藏版美食</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12972030.md#1" target="_blank">谢博安邀妈妈录唱新歌 苏打绿阿福表赞许</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12972758.md#1" target="_blank">被问为何继续当演员 舒淇6字回应笑翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a></h4></td></tr>
