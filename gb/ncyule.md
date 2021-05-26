@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12976904.md#1" target="_blank">宅在家11天创自身纪录 解婕翎谢粉丝物资应援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12976626.md#1" target="_blank">陈布朗联手鼓鼓创作 呼应歌名邀小朋友献声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12976423.md#1" target="_blank">林凡新歌获选电影主题曲 歌词提命中4“名人”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/25/n12973636.md#1" target="_blank">Mnet办Girls Planet 999韩中日女团选秀 8月开播</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/25/n12973353.md#1" target="_blank">刚宣布进军日本 高桥朱里因健康因素暂停活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12976626.md#1" target="_blank">陈布朗联手鼓鼓创作 呼应歌名邀小朋友献声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12976423.md#1" target="_blank">林凡新歌获选电影主题曲 歌词提命中4“名人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqfoxa377/djy/blob/master/gb/21/5/26/n12976254.md#1" target="_blank">防疫优先 第32届金曲奖颁奖延期举办</a></h4></td></tr>
