@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12969407.md#1" target="_blank">新剧在疫情升温前杀青 张本渝赠剧组贴心小物</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12976254.md#1" target="_blank">防疫优先 第32届金曲奖颁奖延期举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12975376.md#1" target="_blank">夏语心捐血助人秀健保卡 本名曝光获赞超好听</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12975106.md#1" target="_blank">被抹黑台湾爆疫情便逃回香港 黄秋生霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974093.md#1" target="_blank">周杰伦任“苏富比”策展人 捐演唱服做慈善</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974202.md#1" target="_blank">柯泯薰生日开直播 分享防疫新生活爱上煮汤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973636.md#1" target="_blank">Mnet办Girls Planet 999韩中日女团选秀 8月开播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973353.md#1" target="_blank">刚宣布进军日本 高桥朱里因健康因素暂停活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/20/n12962784.md#1" target="_blank">宫胁咲良坦言纠结 谈决心自HKT48毕业的原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12976254.md#1" target="_blank">防疫优先 第32届金曲奖颁奖延期举办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974202.md#1" target="_blank">柯泯薰生日开直播 分享防疫新生活爱上煮汤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974108.md#1" target="_blank">罗文裕邀彭佳慧拍片 山中迷航巧遇隐藏版美食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12972030.md#1" target="_blank">谢博安邀妈妈录唱新歌 苏打绿阿福表赞许</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12971468.md#1" target="_blank">离家近一年拼专辑圆梦 艾薇自称爱哭鬼担当</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12972758.md#1" target="_blank">被问为何继续当演员 舒淇6字回应笑翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/19/n12961232.md#1" target="_blank">医生父亲台湾前线抗疫 炎亚纶心疼喊话</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/22/n12967774.md#1" target="_blank">GFRIEND合约告终：一起唱过的歌会永远闪耀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12970222.md#1" target="_blank">打错字悼念袁隆平 大陆多位明星被吐槽</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966735.md#1" target="_blank">郝蕾揭大陆娱乐圈乱象：挤破头是为了名和利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966897.md#1" target="_blank">李云迪晒与孙俪一家合照 等等与小花正面曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966735.md#1" target="_blank">郝蕾揭大陆娱乐圈乱象：挤破头是为了名和利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/20/n12963896.md#1" target="_blank">与陈思诚520宣布离婚 佟丽娅婚礼照现惊人巧合</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
