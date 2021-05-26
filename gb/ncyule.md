@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12973141.md#1" target="_blank">同行被说沦为洗车工 黄秋生：该价值观很势利</a><br></h3><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12973141.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/03/1909262114412563-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12972758.md#1" target="_blank">被问为何继续当演员 舒淇6字回应笑翻全场</a><br></h3><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12972758.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-474615232-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12975579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12975780-210525215123100707-320x200.jpg"></a>
 <a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974085.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/04/1604232225092560-320x200.jpg"></a>
 <a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974076.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/06/200325235302100707-320x200.jpg"></a>
 <a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973969.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12973977-2105250310151487-320x200.jpg"></a>
 <a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12973564-2105242354561487-320x200.jpg"></a>
 <a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12972030.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12972045-2105240829441487-320x200.jpg"></a>
-<a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12970953.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12971068-2009190636131487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12970222.md#1" target="_blank">打错字悼念袁隆平 大陆多位明星被吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966897.md#1" target="_blank">李云迪晒与孙俪一家合照 等等与小花正面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966486.md#1" target="_blank">张国立又摊上糟心事 导戏封路惹冲突</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12976063.md#1" target="_blank">NCT DREAM正规专辑卖破200万张 自身新纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/26/n12975579.md#1" target="_blank">子瑜吁台湾战胜疫情 多贤祝子瑜母亲生日快乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12974230.md#1" target="_blank">Lovelyz智秀受喜爱既幸福又不安 盼即时回报粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973844.md#1" target="_blank">SHINee迎出道13周年 成员以五人合照纪念</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973636.md#1" target="_blank">Mnet办Girls Planet 999韩中日女团选秀 8月开播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/20/n12962574.md#1" target="_blank">周子瑜拥有罕见手相 命理老师：她有天使气场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/22/n12967774.md#1" target="_blank">GFRIEND合约告终：一起唱过的歌会永远闪耀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/23/n12970222.md#1" target="_blank">打错字悼念袁隆平 大陆多位明星被吐槽</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966897.md#1" target="_blank">李云迪晒与孙俪一家合照 等等与小花正面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966735.md#1" target="_blank">郝蕾揭大陆娱乐圈乱象：挤破头是为了名和利</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/21/n12966897.md#1" target="_blank">李云迪晒与孙俪一家合照 等等与小花正面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/20/n12963896.md#1" target="_blank">与陈思诚520宣布离婚 佟丽娅婚礼照现惊人巧合</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjnktr353/djy/blob/master/gb/21/5/19/n12960010.md#1" target="_blank">《月薪娇妻》新垣结衣与星野源成为真夫妻</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/tjnktr353/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
