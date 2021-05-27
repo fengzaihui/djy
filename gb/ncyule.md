@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank">《三只小猪》亲情戏感人 林孙煜豪受婆妈欢迎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12979456.md#1" target="_blank">模仿“歌王”开嗓竟破音 品冠难为情急解释</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank">赖铭伟减重23公斤 疫情下赚到跟家人相处时间</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12979182.md#1" target="_blank">不舍员工无薪假 金曲歌手老板照发薪水月亏百万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12978982.md#1" target="_blank">黄小柔、GiGi当爱纱好闺蜜 交情好到像家人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12978561.md#1" target="_blank">郭书瑶晒照推服饰品牌 喊“另一个开始”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/25/n12973636.md#1" target="_blank">Mnet办Girls Planet 999韩中日女团选秀 8月开播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12979456.md#1" target="_blank">模仿“歌王”开嗓竟破音 品冠难为情急解释</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank">赖铭伟减重23公斤 疫情下赚到跟家人相处时间</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/26/n12976626.md#1" target="_blank">陈布朗联手鼓鼓创作 呼应歌名邀小朋友献声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/26/n12976423.md#1" target="_blank">林凡新歌获选电影主题曲 歌词提命中4“名人”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/26/n12976254.md#1" target="_blank">防疫优先 第32届金曲奖颁奖延期举办</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/24/n12972758.md#1" target="_blank">被问为何继续当演员 舒淇6字回应笑翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/25/n12975106.md#1" target="_blank">被抹黑台湾爆疫情便逃回香港 黄秋生霸气回应</a></h4></td></tr>
@@ -56,6 +56,6 @@
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/21/n12966735.md#1" target="_blank">郝蕾揭大陆娱乐圈乱象：挤破头是为了名和利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/20/n12963896.md#1" target="_blank">与陈思诚520宣布离婚 佟丽娅婚礼照现惊人巧合</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/24/n12973141.md#1" target="_blank">同行被说沦为洗车工 黄秋生：该价值观很势利</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/24/n12972884.md#1" target="_blank">甄珍在香港眩晕摔倒 第二次开颅做手术</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/21/5/27/n12978414.md#1" target="_blank">38岁胡歌近照曝光 消瘦老态惊呆网友</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lyzzoh3779/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/lyzzoh3779/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
