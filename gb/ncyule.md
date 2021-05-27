@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a><br></h3><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12977020-190116092729100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12975579.md#1" target="_blank">子瑜吁台湾战胜疫情 多贤祝子瑜母亲生日快乐</a><br></h3><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12975579.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12975780-210525215123100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/27/n12978561.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12978892-2105270139591487-320x200.jpg"></a>
 <a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12975923.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12975966-201123055853100707-320x200.jpg"></a>
 <a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12976614.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12960102-2101050029141487-320x200.jpg"></a>
 <a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12976423.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12976441-2105260238561487-320x200.jpg"></a>
 <a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12976254.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12976275-2105120357142122-320x200.jpg"></a>
 <a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/25/n12974085.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/04/1604232225092560-320x200.jpg"></a>
-<a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/25/n12974076.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/06/200325235302100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/27/n12978561.md#1" target="_blank">郭书瑶晒照推服饰品牌 喊“另一个开始”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/27/n12978447.md#1" target="_blank">于美人为苦撑店家送暖 献招劝长辈配合防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977682.md#1" target="_blank">送200杯爱心饮料挺医护 曾莞婷获赞台湾最美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977852.md#1" target="_blank">在台创立个人品牌 杜汶泽：台湾出品就是良品</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank">《三只小猪》亲情戏感人 林孙煜豪受婆妈欢迎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
