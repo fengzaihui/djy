@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12975923.md#1" target="_blank">SEVENTEEN出道六周年捐款助人 公开特别影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12976516.md#1" target="_blank">李昇基公司回应恋情 吁各界莫写推测性报导</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12975579.md#1" target="_blank">子瑜吁台湾战胜疫情 多贤祝子瑜母亲生日快乐</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/27/n12978982.md#1" target="_blank">黄小柔、GiGi当爱纱好闺蜜 交情好到像家人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank">《三只小猪》亲情戏感人 林孙煜豪受婆妈欢迎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/23/n12970529.md#1" target="_blank">5岁儿脱口说妈妈生男娃原因 徐若瑄感动洒泪</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/27/n12978982.md#1" target="_blank">黄小柔、GiGi当爱纱好闺蜜 交情好到像家人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/27/n12978561.md#1" target="_blank">郭书瑶晒照推服饰品牌 喊“另一个开始”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/27/n12978447.md#1" target="_blank">于美人为苦撑店家送暖 献招劝长辈配合防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977682.md#1" target="_blank">送200杯爱心饮料挺医护 曾莞婷获赞台湾最美</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977852.md#1" target="_blank">在台创立个人品牌 杜汶泽：台湾出品就是良品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wpyydx3062/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
