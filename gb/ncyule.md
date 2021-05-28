@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12978561.md#1" target="_blank">郭书瑶晒照推服饰品牌 喊“另一个开始”</a><br></h3><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12978561.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12978892-2105270139591487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12978414.md#1" target="_blank">38岁胡歌近照曝光 消瘦老态惊呆网友</a><br></h3><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12978414.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/03/1903270615401487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981641.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981720-2105280213251487-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12979172.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979201-200813040055100707-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979282-2105270423411487-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12978447.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12978468-2105130453091487-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12975923.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12975966-201123055853100707-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12977020-190116092729100707-320x200.jpg"></a>
-<a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12976614.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12960102-2101050029141487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank">《三只小猪》亲情戏感人 林孙煜豪受婆妈欢迎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981641.md#1" target="_blank">刘若英IG晒“菜”照 五月天阿信“难以置信”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank">《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12980668.md#1" target="_blank">46岁生日收张曼玉礼物 佘诗曼兴奋如追星少女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12980479.md#1" target="_blank">刘嘉玲上海打车被认出 发哥华仔遭司机瞎搭配</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12979456.md#1" target="_blank">模仿“歌王”开嗓竟破音 品冠难为情急解释</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
