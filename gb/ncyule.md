@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12980479.md#1" target="_blank">刘嘉玲上海打车被认出 发哥华仔遭司机瞎搭配</a><br></h3><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12980479.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/08/DSC_0274_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12981961.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/03/2003060242261487-320x200.jpg"></a>
+<a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12981550.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981767-210409021422100707-320x200.jpg"></a>
 <a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12981641.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981720-2105280213251487-320x200.jpg"></a>
 <a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12979172.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979201-200813040055100707-320x200.jpg"></a>
 <a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979282-2105270423411487-320x200.jpg"></a>
 <a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12978447.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12978468-2105130453091487-320x200.jpg"></a>
-<a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12977347-2105260924221487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12978414.md#1" target="_blank">38岁胡歌近照曝光 消瘦老态惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/25/n12975521.md#1" target="_blank">被范冰冰事件所累？ 冯小刚赔华谊兄弟逾亿元</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/23/n12970222.md#1" target="_blank">打错字悼念袁隆平 大陆多位明星被吐槽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12982190.md#1" target="_blank">所愿公开GFRIEND群组对话 成员温馨诉爱意</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12981788.md#1" target="_blank">多贤迎生日自弹自唱献粉丝 TWICE凌晨为她庆生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12981550.md#1" target="_blank">防弹少年团于2021 iHeartRadio音乐奖获两奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/28/n12981175.md#1" target="_blank">商标权诉讼案两年攻防 H.O.T.胜诉</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12979401.md#1" target="_blank">Young K与Ben&#038;Ben合作 推出《Leaves》改编版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/27/n12978982.md#1" target="_blank">黄小柔、GiGi当爱纱好闺蜜 交情好到像家人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank">《三只小猪》亲情戏感人 林孙煜豪受婆妈欢迎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xmffez390/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
