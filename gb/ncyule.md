@@ -12,10 +12,10 @@
 <a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12977020-190116092729100707-320x200.jpg"></a>
 <a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/26/n12976614.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12960102-2101050029141487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/15/n12951227.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12951240-DF-00242_R2-320x200.jpg"><br>《窥探》影评：足不出户的“宅女” 也能经历精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/9/n12933976.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933980-497017-320x200.jpeg"><br>《朱比特传奇》影评：超级英雄也会面临世代冲突</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/8/n12933124.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12933126-496981-320x200.jpg"><br>《恶水真相》影评：传奇摄影记者 用镜头为民众讨公道</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank">《三只小猪》亲情戏感人 林孙煜豪受婆妈欢迎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank">《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/27/n12980668.md#1" target="_blank">46岁生日收张曼玉礼物 佘诗曼兴奋如追星少女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/27/n12980479.md#1" target="_blank">刘嘉玲上海打车被认出 发哥华仔遭司机瞎搭配</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/27/n12979456.md#1" target="_blank">模仿“歌王”开嗓竟破音 品冠难为情急解释</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank">赖铭伟减重23公斤 疫情下赚到跟家人相处时间</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fbacqn3783/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
