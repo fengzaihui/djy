@@ -9,8 +9,8 @@
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12979172.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979201-200813040055100707-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979282-2105270423411487-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12978447.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12978468-2105130453091487-320x200.jpg"></a>
+<a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12977347-2105260924221487-320x200.jpg"></a>
 <a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12975923.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12975966-201123055853100707-320x200.jpg"></a>
-<a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12977020-190116092729100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/18/n12956900.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12956908-498445-320x200.jpg"><br>《不朽者》影评：超能力者让19世纪英国更有魅力</a></h4></td></tr>
@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977311.md#1" target="_blank">《三只小猪》亲情戏感人 林孙煜豪受婆妈欢迎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/25/n12973513.md#1" target="_blank">台“鱼贩网红”具护理师经历 接征召响应抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/24/n12971259.md#1" target="_blank">《火神》盗版猖獗 导演吁：支持正版鼓励团队</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981807.md#1" target="_blank">F.I.R.曝防疫新生活 阿沁带孩放电 建宁老师更忙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981641.md#1" target="_blank">刘若英IG晒“菜”照 五月天阿信“难以置信”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank">《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12980668.md#1" target="_blank">46岁生日收张曼玉礼物 佘诗曼兴奋如追星少女</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12980479.md#1" target="_blank">刘嘉玲上海打车被认出 发哥华仔遭司机瞎搭配</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/25/n12973636.md#1" target="_blank">Mnet办Girls Planet 999韩中日女团选秀 8月开播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/28/n12981807.md#1" target="_blank">F.I.R.曝防疫新生活 阿沁带孩放电 建宁老师更忙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12979456.md#1" target="_blank">模仿“歌王”开嗓竟破音 品冠难为情急解释</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank">赖铭伟减重23公斤 疫情下赚到跟家人相处时间</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12976626.md#1" target="_blank">陈布朗联手鼓鼓创作 呼应歌名邀小朋友献声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/26/n12976423.md#1" target="_blank">林凡新歌获选电影主题曲 歌词提命中4“名人”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/24/n12972758.md#1" target="_blank">被问为何继续当演员 舒淇6字回应笑翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcuyvp3879/djy/blob/master/gb/21/5/25/n12975106.md#1" target="_blank">被抹黑台湾爆疫情便逃回香港 黄秋生霸气回应</a></h4></td></tr>
