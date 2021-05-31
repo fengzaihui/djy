@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a><br></h3><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12986706-GettyImages-473391490-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12986400.md#1" target="_blank">购物泊车占满停车格 杜汶泽见证台湾感人一幕</a><br></h3><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12986400.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/duwenze_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12989036-201031060402100707-320x200.jpg"></a>
 <a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12987978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/1906190413331487-320x200.jpg"></a>
 <a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12987192.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987286-190129092347100707-320x200.jpg"></a>
 <a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12988941-GettyImages-84415774-320x200.jpg"></a>
 <a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12985305.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985328-2105292222461487-320x200.jpg"></a>
 <a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/28/n12981961.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/03/2003060242261487-320x200.jpg"></a>
-<a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/28/n12981550.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981767-210409021422100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12987978.md#1" target="_blank">世界陷困境梁静茹不庆生 感谢医护无私奉献</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12987302.md#1" target="_blank">发片逢疫情升温 吴申梅录祈福VCR为人们送暖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12987873.md#1" target="_blank">西岛秀俊主演《名侦探主厨》 由煮夫升为主厨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12988057.md#1" target="_blank">花半年手绘动画MV 田心蕾眼睛爆痛频看诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/31/n12987302.md#1" target="_blank">发片逢疫情升温 吴申梅录祈福VCR为人们送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofwhjp3411/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
