@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a><br></h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985810-201202033923100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985506.md#1" target="_blank">陈玮薇备孕3年终成功 惊曝验孕当天狗刚离世</a><br></h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985506.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985516-2105300147511487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987192.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987286-190129092347100707-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985305.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985328-2105292222461487-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981961.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/03/2003060242261487-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981550.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981767-210409021422100707-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981641.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981720-2105280213251487-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/27/n12979172.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979201-200813040055100707-320x200.jpg"></a>
-<a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/27/n12979237.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979282-2105270423411487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985394.md#1" target="_blank">《老友记：重聚篇》疑遭中共审查 网友不满</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987302.md#1" target="_blank">发片逢疫情升温 吴申梅录祈福VCR为人们送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12986400.md#1" target="_blank">购物泊车占满停车格 杜汶泽见证台湾感人一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985756.md#1" target="_blank">台女主播一家三口确诊 因夫无人照顾婉拒送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985506.md#1" target="_blank">陈玮薇备孕3年终成功 惊曝验孕当天狗刚离世</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985305.md#1" target="_blank">李玖哲怕蜂螫拔腿狂奔 因“医说螫3次会死”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/26/n12977497.md#1" target="_blank">“次长课长”河本准一确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/26/n12977007.md#1" target="_blank">深田恭子患适应障碍症 停工辞演夏季连续剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/25/n12973470.md#1" target="_blank">ENHYPEN登Billboard 200榜第18名 成员谢粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987302.md#1" target="_blank">发片逢疫情升温 吴申梅录祈福VCR为人们送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12982466.md#1" target="_blank">阎奕格邀星友上Podcas聊天 唱《手牵手》引爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981807.md#1" target="_blank">F.I.R.曝防疫新生活 阿沁带孩放电 建宁老师更忙</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/27/n12979456.md#1" target="_blank">模仿“歌王”开嗓竟破音 品冠难为情急解释</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/24/n12972758.md#1" target="_blank">被问为何继续当演员 舒淇6字回应笑翻全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/25/n12975106.md#1" target="_blank">被抹黑台湾爆疫情便逃回香港 黄秋生霸气回应</a></h4></td></tr>
