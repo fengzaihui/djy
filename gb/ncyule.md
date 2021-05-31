@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a><br></h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985810-201202033923100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985506.md#1" target="_blank">陈玮薇备孕3年终成功 惊曝验孕当天狗刚离世</a><br></h3><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985506.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985516-2105300147511487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987295.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987325-210531002733100707-320x200.jpg"></a>
+<a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987559-2105310202101487-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987192.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987286-190129092347100707-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985305.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985328-2105292222461487-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981961.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/03/2003060242261487-320x200.jpg"></a>
 <a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981550.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981767-210409021422100707-320x200.jpg"></a>
-<a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981641.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12981720-2105280213251487-320x200.jpg"></a>
-<a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/27/n12979172.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12979201-200813040055100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12980898.md#1" target="_blank">赵又廷带岳父母探班 高圆圆私下状态超好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/27/n12978414.md#1" target="_blank">38岁胡歌近照曝光 消瘦老态惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/25/n12975521.md#1" target="_blank">被范冰冰事件所累？ 冯小刚赔华谊兄弟逾亿元</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987295.md#1" target="_blank">泰民今日入伍SHINee成员为他送行 太妍也不舍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987192.md#1" target="_blank">TWICE迷你十辑由JYP创作主打歌 成员为新曲作词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/29/n12984312.md#1" target="_blank">KEY忧泰民独自入伍无倚靠：盼成为他的力量</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/28/n12982190.md#1" target="_blank">所愿公开GFRIEND群组对话 成员温馨诉爱意</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ldjgwd3392/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
