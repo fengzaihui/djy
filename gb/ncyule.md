@@ -30,10 +30,10 @@
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/29/n12984312.md#1" target="_blank">KEY忧泰民独自入伍无倚靠：盼成为他的力量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/28/n12982190.md#1" target="_blank">所愿公开GFRIEND群组对话 成员温馨诉爱意</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/28/n12981788.md#1" target="_blank">多贤迎生日自弹自唱献粉丝 TWICE凌晨为她庆生</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/30/n12985394.md#1" target="_blank">《老友记：重聚篇》疑遭中共审查 网友不满</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/30/n12985405.md#1" target="_blank">巨石强森《奇航》 联手艾蜜莉·布朗赴丛林探险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/30/n12986400.md#1" target="_blank">购物泊车占满停车格 杜汶泽见证台湾感人一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/30/n12985756.md#1" target="_blank">台女主播一家三口确诊 因夫无人照顾婉拒送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojacpc381/djy/blob/master/gb/21/5/30/n12985506.md#1" target="_blank">陈玮薇备孕3年终成功 惊曝验孕当天狗刚离世</a></h4></td></tr>
