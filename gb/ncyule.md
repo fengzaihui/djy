@@ -9,8 +9,8 @@
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990619-2106010307091487-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990223.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990313-210601002902100707-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12989036-201031060402100707-320x200.jpg"></a>
+<a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990378-210601010259100707-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/1906190413331487-320x200.jpg"></a>
-<a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987192.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987286-190129092347100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
