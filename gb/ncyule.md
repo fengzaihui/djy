@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/28/n12980898.md#1" target="_blank">赵又廷带岳父母探班 高圆圆私下状态超好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/27/n12978414.md#1" target="_blank">38岁胡歌近照曝光 消瘦老态惊呆网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12990223.md#1" target="_blank">车银优办线上见面会 邀台湾粉丝度过美好时光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank">Joy《Hello》溶入自身感性 盼成为众人的喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987295.md#1" target="_blank">泰民今日入伍SHINee成员为他送行 太妍也不舍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987192.md#1" target="_blank">TWICE迷你十辑由JYP创作主打歌 成员为新曲作词</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
