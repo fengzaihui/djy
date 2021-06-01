@@ -2,7 +2,7 @@
 <tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank">刘德华晒录歌视频 素颜朝天下巴皱纹明显</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/1907121022501470-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989495.md#1" target="_blank">“五月天”一善举温暖医护 《勇敢》为台湾打气</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989495.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/12/1912230226521487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank">张艺谋曾因超生遭罚 网友：敢向党讨回748万？</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12989475-GettyImages-485066937-600x400.jpg"></a></td></tr>
-<tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank">Joy《Hello》溶入自身感性 盼成为众人的喜悦</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12988466-210511224036100707-600x400.jpg"></a></td></tr>
+<tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank">Joy《Hello》溶入自身感性 盼成为众人的喜悦</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990378-210601010259100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987295.md#1" target="_blank">泰民今日入伍SHINee成员为他送行 太妍也不舍</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987295.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987325-210531002733100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12989036-201031060402100707-320x200.jpg"></a>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12990293.md#1" target="_blank">古曜威推防疫“限时动态” 邀粉丝为前线打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank">刘德华晒录歌视频 素颜朝天下巴皱纹明显</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989495.md#1" target="_blank">“五月天”一善举温暖医护 《勇敢》为台湾打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12988057.md#1" target="_blank">花半年手绘动画MV 田心蕾眼睛爆痛频看诊</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987978.md#1" target="_blank">世界陷困境梁静茹不庆生 感谢医护无私奉献</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987873.md#1" target="_blank">西岛秀俊主演《名侦探主厨》 由煮夫升为主厨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
@@ -47,8 +47,8 @@
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/28/n12982466.md#1" target="_blank">阎奕格邀星友上Podcas聊天 唱《手牵手》引爆笑</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/25/n12975106.md#1" target="_blank">被抹黑台湾爆疫情便逃回香港 黄秋生霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/25/n12975106.md#1" target="_blank">被抹黑台湾爆疫情便逃回香港 黄秋生霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/28/n12983483.md#1" target="_blank">周星驰30年前拍片总打哈欠 背后原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986400.md#1" target="_blank">购物泊车占满停车格 杜汶泽见证台湾感人一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/27/n12978414.md#1" target="_blank">38岁胡歌近照曝光 消瘦老态惊呆网友</a></h4></td></tr>
