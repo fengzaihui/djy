@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank">Joy《Hello》溶入自身感性 盼成为众人的喜悦</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990378-210601010259100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987295.md#1" target="_blank">泰民今日入伍SHINee成员为他送行 太妍也不舍</a><br></h3><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987295.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987325-210531002733100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12990599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990619-2106010307091487-320x200.jpg"></a>
 <a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12989036-201031060402100707-320x200.jpg"></a>
 <a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/1906190413331487-320x200.jpg"></a>
 <a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987192.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12987286-190129092347100707-320x200.jpg"></a>
 <a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12988941-GettyImages-84415774-320x200.jpg"></a>
 <a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12985305.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12985328-2105292222461487-320x200.jpg"></a>
-<a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/28/n12981961.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/03/2003060242261487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12990599.md#1" target="_blank">小蜜桃姐姐有子承衣钵 组“水星兄妹”出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12990293.md#1" target="_blank">古曜威推防疫“限时动态” 邀粉丝为前线打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank">刘德华晒录歌视频 素颜朝天下巴皱纹明显</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989495.md#1" target="_blank">“五月天”一善举温暖医护 《勇敢》为台湾打气</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12988057.md#1" target="_blank">花半年手绘动画MV 田心蕾眼睛爆痛频看诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/31/n12987873.md#1" target="_blank">西岛秀俊主演《名侦探主厨》 由煮夫升为主厨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ulfucm316/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
