@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank">张艺谋曾因超生遭罚 网友：敢向党讨回748万？</a><br></h3><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12989475-GettyImages-485066937-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank">Joy《Hello》溶入自身感性 盼成为众人的喜悦</a><br></h3><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990378-210601010259100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12991730-2106011129221487-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990811.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990906-210601010249100707-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990619-2106010307091487-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990223.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990313-210601002902100707-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12989036-201031060402100707-320x200.jpg"></a>
 <a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990378-210601010259100707-320x200.jpg"></a>
-<a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/06/1906190413331487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990073.md#1" target="_blank">ITZY迷你四辑《GUESS WHO》销量突破33万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990223.md#1" target="_blank">车银优办线上见面会 邀台湾粉丝度过美好时光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987796.md#1" target="_blank">Joy《Hello》溶入自身感性 盼成为众人的喜悦</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank">Melody 直播秀厨艺 切菜速度慢引粉丝关切</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank">Melody 直播秀厨艺 切菜速度慢引粉丝关切</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990932.md#1" target="_blank">陈明珠与黄子佼合作 成为旗下首位艺人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990599.md#1" target="_blank">小蜜桃姐姐有子承衣钵 组“水星兄妹”出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12990293.md#1" target="_blank">古曜威推防疫“限时动态” 邀粉丝为前线打气</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank">刘德华晒录歌视频 素颜朝天下巴皱纹明显</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/31/n12987873.md#1" target="_blank">西岛秀俊主演《名侦探主厨》 由煮夫升为主厨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bsmkec3726/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
