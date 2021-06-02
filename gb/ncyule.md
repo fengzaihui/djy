@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank">张艺谋曾因超生遭罚 网友：敢向党讨回748万？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12980898.md#1" target="_blank">赵又廷带岳父母探班 高圆圆私下状态超好</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993363.md#1" target="_blank">论爱情为何物 金世正妙答“像函数”理由逗趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992387.md#1" target="_blank">BTS《Butter》空降告示牌Hot 100冠军 四度登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12990811.md#1" target="_blank">JOY读粉丝信感性落泪 《Hello》26区iTunes榜夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12990073.md#1" target="_blank">ITZY迷你四辑《GUESS WHO》销量突破33万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank">Melody 直播秀厨艺 切菜速度慢引粉丝关切</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
