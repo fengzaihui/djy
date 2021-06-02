@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993853.md#1" target="_blank">郑心慈心疼医护受伤 安身新家厨艺大精进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993362.md#1" target="_blank">台演艺圈接力挺医护 徐乃麟捐1000防护面罩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993299.md#1" target="_blank">疫苗争议、名嘴吊唁花篮 柯宇纶发声挺医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993221.md#1" target="_blank">贾永婕携手小S挺医护 日送百份便当感动网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992906.md#1" target="_blank">周兴哲与赵岱新旧情复燃 双方曝近况：很开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank">生物股长山下退团 三人体制最后演出回故乡唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987873.md#1" target="_blank">西岛秀俊主演《名侦探主厨》 由煮夫升为主厨</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993853.md#1" target="_blank">郑心慈心疼医护受伤 安身新家厨艺大精进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12988057.md#1" target="_blank">花半年手绘动画MV 田心蕾眼睛爆痛频看诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987302.md#1" target="_blank">发片逢疫情升温 吴申梅录祈福VCR为人们送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12982466.md#1" target="_blank">阎奕格邀星友上Podcas聊天 唱《手牵手》引爆笑</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12986400.md#1" target="_blank">购物泊车占满停车格 杜汶泽见证台湾感人一幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
