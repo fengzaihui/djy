@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank">张艺谋曾因超生遭罚 网友：敢向党讨回748万？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12980898.md#1" target="_blank">赵又廷带岳父母探班 高圆圆私下状态超好</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992387.md#1" target="_blank">BTS《Butter》空降告示牌Hot 100冠军 四度登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12990811.md#1" target="_blank">JOY读粉丝信感性落泪 《Hello》26区iTunes榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12990073.md#1" target="_blank">ITZY迷你四辑《GUESS WHO》销量突破33万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12990223.md#1" target="_blank">车银优办线上见面会 邀台湾粉丝度过美好时光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank">Melody 直播秀厨艺 切菜速度慢引粉丝关切</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993221.md#1" target="_blank">贾永婕携手小S挺医护 日送百份便当感动网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992906.md#1" target="_blank">周兴哲与赵岱新旧情复燃 双方曝近况：很开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12992258.md#1" target="_blank">周星驰难相处？《新喜剧之王》主角还原实况</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank">生物股长山下退团 三人体制最后演出回故乡唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987873.md#1" target="_blank">西岛秀俊主演《名侦探主厨》 由煮夫升为主厨</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12985809.md#1" target="_blank">BoA宝儿坦言不喜欢跳舞 日本出道20年谈今昔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12988057.md#1" target="_blank">花半年手绘动画MV 田心蕾眼睛爆痛频看诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987302.md#1" target="_blank">发片逢疫情升温 吴申梅录祈福VCR为人们送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12986569.md#1" target="_blank">曾获5座格莱美音乐奖 78岁歌星托马斯病逝</a></h4></td></tr>
@@ -55,7 +55,7 @@
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/26/n12977852.md#1" target="_blank">在台创立个人品牌 杜汶泽：台湾出品就是良品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12980898.md#1" target="_blank">赵又廷带岳父母探班 高圆圆私下状态超好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/28/n12983279.md#1" target="_blank">阿娇为戏增重身材严重发福 一个月瘦回瓜子脸</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/26/n12976614.md#1" target="_blank">星野源谈向新垣结衣求婚过程 透露彼此昵称</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank">刘德华晒录歌视频 素颜朝天下巴皱纹明显</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/snxhgu316/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/snxhgu316/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/snxhgu316/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/snxhgu316/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
