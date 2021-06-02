@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993362.md#1" target="_blank">台演艺圈接力挺医护 徐乃麟捐1000防护面罩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993299.md#1" target="_blank">疫苗争议、名嘴吊唁花篮 柯宇纶发声挺医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12993221.md#1" target="_blank">贾永婕携手小S挺医护 日送百份便当感动网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992906.md#1" target="_blank">周兴哲与赵岱新旧情复燃 双方曝近况：很开心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/1/n12992258.md#1" target="_blank">周星驰难相处？《新喜剧之王》主角还原实况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank">生物股长山下退团 三人体制最后演出回故乡唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/snxhgu316/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
