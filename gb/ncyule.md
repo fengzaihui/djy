@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992387.md#1" target="_blank">BTS《Butter》空降告示牌Hot 100冠军 四度登顶</a><br></h3><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992387.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12992472-190502010334100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12992258.md#1" target="_blank">周星驰难相处？《新喜剧之王》主角还原实况</a><br></h3><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12992258.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12992450-GettyImages-452511544-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995021-200221055928100707-320x200.jpg"></a>
+<a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12994701.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/03/f595b1663cdb1681ff803fbf0269c16f-320x200.jpg"></a>
 <a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/3/n12995044.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995129-2106022346391487-320x200.jpg"></a>
 <a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992906.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12992952-2106020209281487-320x200.jpg"></a>
 <a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12992677-1603140322571487-320x200.jpg"></a>
-<a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12991730-2106011129221487-320x200.jpg"></a>
-<a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12990599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12990619-2106010307091487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
@@ -25,22 +25,22 @@
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12992096.md#1" target="_blank">唐嫣首晒与女儿合照 罗晋幽默互动笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank">张艺谋曾因超生遭罚 网友：敢向党讨回748万？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank">咲良与奈子回HKT48感情更好 仁美坦言偷吃醋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12993363.md#1" target="_blank">论爱情为何物 金世正妙答“像函数”理由逗趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992387.md#1" target="_blank">BTS《Butter》空降告示牌Hot 100冠军 四度登顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12990811.md#1" target="_blank">JOY读粉丝信感性落泪 《Hello》26区iTunes榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank">Melody 直播秀厨艺 切菜速度慢引粉丝关切</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12994701.md#1" target="_blank">余文乐自曝惊恐症复发 悲叹怕以后都好不起来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/3/n12995044.md#1" target="_blank">刘冠廷“转刑警”? 办《第三布局 》悬疑命案</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12994297.md#1" target="_blank">李荣浩提前送生日惊喜 杨丞琳甜收“两宝贝”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12993853.md#1" target="_blank">郑心慈心疼医护受伤 安身新家厨艺大精进</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12993362.md#1" target="_blank">台演艺圈接力挺医护 徐乃麟捐1000防护面罩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank">咲良与奈子回HKT48感情更好 仁美坦言偷吃醋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank">生物股长山下退团 三人体制最后演出回故乡唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12987873.md#1" target="_blank">西岛秀俊主演《名侦探主厨》 由煮夫升为主厨</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/2/n12993853.md#1" target="_blank">郑心慈心疼医护受伤 安身新家厨艺大精进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12988057.md#1" target="_blank">花半年手绘动画MV 田心蕾眼睛爆痛频看诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12987302.md#1" target="_blank">发片逢疫情升温 吴申梅录祈福VCR为人们送暖</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/28/n12983483.md#1" target="_blank">周星驰30年前拍片总打哈欠 背后原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/28/n12982190.md#1" target="_blank">所愿公开GFRIEND群组对话 成员温馨诉爱意</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/28/n12980898.md#1" target="_blank">赵又廷带岳父母探班 高圆圆私下状态超好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12992258.md#1" target="_blank">周星驰难相处？《新喜剧之王》主角还原实况</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/28/n12980898.md#1" target="_blank">赵又廷带岳父母探班 高圆圆私下状态超好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank">刘德华晒录歌视频 素颜朝天下巴皱纹明显</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/28/n12983279.md#1" target="_blank">阿娇为戏增重身材严重发福 一个月瘦回瓜子脸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uvlkzg3999/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
