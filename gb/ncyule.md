@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12997227.md#1" target="_blank">被传已在香港产二胎 谢娜分享双胞胎女儿趣事</a><br></h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12997227.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/03/GettyImages-578233058-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995749.md#1" target="_blank">台歌手陈零九确诊 公司：在防疫旅馆隔离</a><br></h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995749.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/02/2002200903121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998800.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12998869-1707070451272122-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998743.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12998775-2106040504121487-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12996581.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12996908-210603132150100707-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995974.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12996491-1806062238511487-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995945.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995947-2102220042541487-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12994941.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995560-1808060225292384-320x200.jpg"></a>
-<a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995715.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995745-2106030449511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998687.md#1" target="_blank">网友致谢“去日本买爆报恩” 日女星：好可爱　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998278.md#1" target="_blank">《自由行》公视首播 流亡导演期待跟大家对话</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998800.md#1" target="_blank">能年玲奈担忧民众不安 辞退岩手县圣火传递</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank">咲良与奈子回HKT48感情更好 仁美坦言偷吃醋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank">生物股长山下退团 三人体制最后演出回故乡唱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/5/31/n12989026.md#1" target="_blank">《香水》瑛人发烧后确诊染疫 取消参与两活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12997045.md#1" target="_blank">邓紫棋中国献唱疑自我审查 敏感字眼遭修改歌词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995715.md#1" target="_blank">为刘若英献出钢琴录音 徐佳莹：紧张到手抖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12993853.md#1" target="_blank">郑心慈心疼医护受伤 安身新家厨艺大精进</a></h4></td></tr>
