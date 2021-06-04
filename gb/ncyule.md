@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12997227.md#1" target="_blank">被传已在香港产二胎 谢娜分享双胞胎女儿趣事</a><br></h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12997227.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/03/GettyImages-578233058-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995749.md#1" target="_blank">台歌手陈零九确诊 公司：在防疫旅馆隔离</a><br></h3><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995749.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/02/2002200903121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998743.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12998775-2106040504121487-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12996581.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12996908-210603132150100707-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995974.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12996491-1806062238511487-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995945.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995947-2102220042541487-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12994941.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995560-1808060225292384-320x200.jpg"></a>
 <a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995715.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995745-2106030449511487-320x200.jpg"></a>
-<a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12995021-200221055928100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
@@ -26,18 +26,18 @@
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12997227.md#1" target="_blank">被传已在香港产二胎 谢娜分享双胞胎女儿趣事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12994441.md#1" target="_blank">刘诗诗半夜急电袁弘 要求帮吴奇隆做一件小事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/1/n12992096.md#1" target="_blank">唐嫣首晒与女儿合照 罗晋幽默互动笑翻网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998024.md#1" target="_blank">THE BOYZ在两季竞赛中成长 获《Kingdom》亚军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12996581.md#1" target="_blank">Stray Kids摘《Kingdom》冠军：感谢六团共创回忆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12996533.md#1" target="_blank">ENHYPEN迷你二辑 连两周入Billboard 200榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995974.md#1" target="_blank">MAMAMOO盼全员幸福 《WAW》25区iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995665.md#1" target="_blank">TXT正规二辑卖破50万张 LINE MUSIC榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998278.md#1" target="_blank">《自由行》公视首播 流亡导演期待跟大家对话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12997444.md#1" target="_blank">晒1岁儿子爬沙发视频 章子怡配文温馨感人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998743.md#1" target="_blank">亦帆声带水肿禁声半个月 不占用资源配合抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998687.md#1" target="_blank">网友致谢“去日本买爆报恩” 日女星：好可爱　</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/4/n12998278.md#1" target="_blank">《自由行》公视首播 流亡导演期待跟大家对话</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/3/n12995945.md#1" target="_blank">陈零九拍片曝染疫日程 强调：病毒非闹着玩的</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank">咲良与奈子回HKT48感情更好 仁美坦言偷吃醋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ofczvx399/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank">生物股长山下退团 三人体制最后演出回故乡唱</a></h4></td></tr>
