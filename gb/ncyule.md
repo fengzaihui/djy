@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/3/n12996533.md#1" target="_blank">ENHYPEN迷你二辑 连两周入Billboard 200榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/3/n12995974.md#1" target="_blank">MAMAMOO盼全员幸福 《WAW》25区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/3/n12995665.md#1" target="_blank">TXT正规二辑卖破50万张 LINE MUSIC榜夺冠</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/4/n12998278.md#1" target="_blank">《自由行》公视首播 流亡导演期待跟大家对话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/4/n12997444.md#1" target="_blank">晒1岁儿子爬沙发视频 章子怡配文温馨感人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/3/n12997227.md#1" target="_blank">被传已在香港产二胎 谢娜分享双胞胎女儿趣事</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank">Melody 直播秀厨艺 切菜速度慢引粉丝关切</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/4/n12998278.md#1" target="_blank">《自由行》公视首播 流亡导演期待跟大家对话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/3/n12995945.md#1" target="_blank">陈零九拍片曝染疫日程 强调：病毒非闹着玩的</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/3/n12995715.md#1" target="_blank">为刘若英献出钢琴录音 徐佳莹：紧张到手抖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/3/n12995749.md#1" target="_blank">台歌手陈零九确诊 公司：在防疫旅馆隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank">咲良与奈子回HKT48感情更好 仁美坦言偷吃醋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/2/n12992663.md#1" target="_blank">生物股长山下退团 三人体制最后演出回故乡唱</a></h4></td></tr>
@@ -51,9 +51,9 @@
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/5/28/n12983096.md#1" target="_blank">刘涛一场直播销售过亿 为何抠门买半价死鱼？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/5/28/n12983483.md#1" target="_blank">周星驰30年前拍片总打哈欠 背后原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/5/28/n12982190.md#1" target="_blank">所愿公开GFRIEND群组对话 成员温馨诉爱意</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/2/n12994441.md#1" target="_blank">刘诗诗半夜急电袁弘 要求帮吴奇隆做一件小事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/1/n12992258.md#1" target="_blank">周星驰难相处？《新喜剧之王》主角还原实况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/2/n12993299.md#1" target="_blank">疫苗争议、名嘴吊唁花篮 柯宇纶发声挺医护</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/2/n12994441.md#1" target="_blank">刘诗诗半夜急电袁弘 要求帮吴奇隆做一件小事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/2/n12992813.md#1" target="_blank">矢吹奈子坦言对身高自卑 回应粉丝提问获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/6/1/n12989854.md#1" target="_blank">刘德华晒录歌视频 素颜朝天下巴皱纹明显</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lotgrv335/djy/blob/master/gb/21/5/31/n12989156.md#1" target="_blank">张艺谋曾因超生遭罚 网友：敢向党讨回748万？</a></h4></td></tr>
