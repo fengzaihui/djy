@@ -30,10 +30,10 @@
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/3/n12995974.md#1" target="_blank">MAMAMOO盼全员幸福 《WAW》25区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/3/n12995665.md#1" target="_blank">TXT正规二辑卖破50万张 LINE MUSIC榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/3/n12994941.md#1" target="_blank">河正宇治痘疤非法用药遭罚：谦虚接受并反省</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/3/n12997227.md#1" target="_blank">被传已在香港产二胎 谢娜分享双胞胎女儿趣事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/1/n12991711.md#1" target="_blank">Melody 直播秀厨艺 切菜速度慢引粉丝关切</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/5/31/n12987516.md#1" target="_blank">《火神》结局收视飙破4.39  制作人曝第2季有望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/5/30/n12986757.md#1" target="_blank">《新泰山》男主角乔·劳拉与妻子惊传坠机罹难</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/5/31/n12987082.md#1" target="_blank">《新泰山》男主角乔·劳拉坠机身亡 享年58岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/3/n12995945.md#1" target="_blank">陈零九拍片曝染疫日程 强调：病毒非闹着玩的</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/3/n12995715.md#1" target="_blank">为刘若英献出钢琴录音 徐佳莹：紧张到手抖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qjbvfo363/djy/blob/master/gb/21/6/3/n12995749.md#1" target="_blank">台歌手陈零九确诊 公司：在防疫旅馆隔离</a></h4></td></tr>
