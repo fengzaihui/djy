@@ -12,6 +12,7 @@
 <a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/3/n12996581.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12996908-210603132150100707-320x200.jpg"></a>
 <a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/3/n12995974.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12996491-1806062238511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://www.epochtimes.com/assets/themes/djy/images/djy_post_default_featured_image_320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/5/30/n12985540.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12985546-500236-320x200.jpg"><br>《奥斯陆密谈》影评：一对挪威夫妻 为以巴和平立大功</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/5/28/n12981149.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/05/id12981163-500022-320x200.png"><br>《伊甸》影评：出色的剧本 让台湾动画实力发光发热</a></h4></td></tr>
