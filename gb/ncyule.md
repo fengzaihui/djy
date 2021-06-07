@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004575.md#1" target="_blank">明道演出音乐剧重视气场 “要让人动弹不得”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004531.md#1" target="_blank">萧敬腾再添新身份 跨海发起创作串连计划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank">黄明志台北观光歌曲 获美国泰利奖电视最佳MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13003407.md#1" target="_blank">6岁儿子吼哭14岁女儿 萧彤雯分头教育获大赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13003512.md#1" target="_blank">被劝返美避疫情 YouTuber小贝：我是台湾人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank">EXILE兼三代目JSB小林直己染疫 取消出席活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998800.md#1" target="_blank">能年玲奈担忧民众不安 辞退岩手县圣火传递</a></h4></td></tr>
