@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002206.md#1" target="_blank">萧煌奇曝生命中2位贵人  谈母亲逼哭唐绮阳</a><br></h3><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002206.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002241-2106052246591487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002141.md#1" target="_blank">陈镇川找JJ重制抗疫歌 邀金曲群星用歌声传爱</a><br></h3><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002141.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002167-2106052158491487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004265-2106070029151487-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002574-2106060357361487-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002493-2106060230171487-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13000934.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13000936-1706130731002384-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12999075-191202092018100707-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998743.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12998775-2106040504121487-320x200.jpg"></a>
-<a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998687.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/08/dajiu-baomalizi-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12997444.md#1" target="_blank">晒1岁儿子爬沙发视频 章子怡配文温馨感人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13003956.md#1" target="_blank">TWICE迷你十辑预购突破50万张 新歌预告公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13000799.md#1" target="_blank">《Butter》破3亿观看 BTS已拥有16支3亿浏览MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998024.md#1" target="_blank">THE BOYZ在两季竞赛中成长 获《Kingdom》亚军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/3/n12996581.md#1" target="_blank">Stray Kids摘《Kingdom》冠军：感谢六团共创回忆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank">黄明志台北观光歌曲 获美国泰利奖电视最佳MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13003407.md#1" target="_blank">6岁儿子吼哭14岁女儿 萧彤雯分头教育获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13003512.md#1" target="_blank">被劝返美避疫情 YouTuber小贝：我是台湾人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002452.md#1" target="_blank">严爵发掘导演歌手 22岁黄新峰携新作出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank">EXILE兼三代目JSB小林直己染疫 取消出席活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998800.md#1" target="_blank">能年玲奈担忧民众不安 辞退岩手县圣火传递</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/2/n12993710.md#1" target="_blank">咲良与奈子回HKT48感情更好 仁美坦言偷吃醋</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank">黄明志台北观光歌曲 获美国泰利奖电视最佳MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002452.md#1" target="_blank">严爵发掘导演歌手 22岁黄新峰携新作出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002206.md#1" target="_blank">萧煌奇曝生命中2位贵人  谈母亲逼哭唐绮阳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002141.md#1" target="_blank">陈镇川找JJ重制抗疫歌 邀金曲群星用歌声传爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/3/n12997045.md#1" target="_blank">邓紫棋中国献唱疑自我审查 敏感字眼遭修改歌词</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/2/n12994441.md#1" target="_blank">刘诗诗半夜急电袁弘 要求帮吴奇隆做一件小事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/3/n12997045.md#1" target="_blank">邓紫棋中国献唱疑自我审查 敏感字眼遭修改歌词</a></h4></td></tr>
