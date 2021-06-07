@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12997444.md#1" target="_blank">晒1岁儿子爬沙发视频 章子怡配文温馨感人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004799.md#1" target="_blank">TXT正规二辑首周热销63万张 将公开《Magic》MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004446.md#1" target="_blank">2PM时隔五年全员回归 《MUST》6月28日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004249.md#1" target="_blank">RM创作《Bicycle》：骑脚踏车最能感到自由</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13003956.md#1" target="_blank">TWICE迷你十辑预购突破50万张 新歌预告公开</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/5/n13000799.md#1" target="_blank">《Butter》破3亿观看 BTS已拥有16支3亿浏览MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
