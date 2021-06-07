@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002141.md#1" target="_blank">陈镇川找JJ重制抗疫歌 邀金曲群星用歌声传爱</a><br></h3><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002141.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002167-2106052158491487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004265-2106070029151487-320x200.jpg"></a>
+<a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13003956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004080-201123055847100707-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002574-2106060357361487-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002493-2106060230171487-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13000934.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13000936-1706130731002384-320x200.jpg"></a>
 <a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12999075-191202092018100707-320x200.jpg"></a>
-<a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998743.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12998775-2106040504121487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12997444.md#1" target="_blank">晒1岁儿子爬沙发视频 章子怡配文温馨感人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13004249.md#1" target="_blank">RM创作《Bicycle》：骑脚踏车最能感到自由</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/7/n13003956.md#1" target="_blank">TWICE迷你十辑预购突破50万张 新歌预告公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/5/n13000799.md#1" target="_blank">《Butter》破3亿观看 BTS已拥有16支3亿浏览MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998024.md#1" target="_blank">THE BOYZ在两季竞赛中成长 获《Kingdom》亚军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cnbokd393/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
