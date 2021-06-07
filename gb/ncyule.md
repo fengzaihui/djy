@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13002206.md#1" target="_blank">萧煌奇曝生命中2位贵人  谈母亲逼哭唐绮阳</a><br></h3><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13002206.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002241-2106052246591487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13002141.md#1" target="_blank">陈镇川找JJ重制抗疫歌 邀金曲群星用歌声传爱</a><br></h3><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13002141.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002167-2106052158491487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004681-2012230059111487-320x200.jpg"></a>
 <a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004265-2106070029151487-320x200.jpg"></a>
 <a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13003956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004080-201123055847100707-320x200.jpg"></a>
 <a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002574-2106060357361487-320x200.jpg"></a>
 <a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13002452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13002493-2106060230171487-320x200.jpg"></a>
 <a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/5/n13000934.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13000936-1706130731002384-320x200.jpg"></a>
-<a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id12999075-191202092018100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004674.md#1" target="_blank">廖奕琁顺利产女 感受医护谨慎维护看诊环境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004575.md#1" target="_blank">明道演出音乐剧重视气场 “要让人动弹不得”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004531.md#1" target="_blank">萧敬腾再添新身份 跨海发起创作串连计划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank">黄明志台北观光歌曲 获美国泰利奖电视最佳MV</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/6/n13003407.md#1" target="_blank">6岁儿子吼哭14岁女儿 萧彤雯分头教育获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank">EXILE兼三代目JSB小林直己染疫 取消出席活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mmmcpr3473/djy/blob/master/gb/21/6/4/n12998800.md#1" target="_blank">能年玲奈担忧民众不安 辞退岩手县圣火传递</a></h4></td></tr>
