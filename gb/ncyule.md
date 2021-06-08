@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13005816.md#1" target="_blank">黄秋生返港备舞台剧 忧副作用暂不考虑打疫苗</a><br></h3><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13005816.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/02/huangqiusheng-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004249.md#1" target="_blank">RM创作《Bicycle》：骑脚踏车最能感到自由</a><br></h3><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004249.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004251-210607002331100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007630-1910240354231487-320x200.jpg"></a>
+<a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007383.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007530-210608080017100707-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007341-2010042155181487-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13005399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13005543-200607053736100707-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004446.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004757-200506052252100707-320x200.jpg"></a>
-<a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004681-2012230059111487-320x200.jpg"></a>
-<a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004531.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004542-2106070313541487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/6/n13003693.md#1" target="_blank">赵丽颖穿白色连衣裙现身 肩膀现拔火罐痕迹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007383.md#1" target="_blank">EXO新作85区iTunes登顶 SUHO入伍不忘帮宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13006453.md#1" target="_blank">BTS《Butter》连两周Hot 100榜夺冠 SUGA谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13005399.md#1" target="_blank">FTISLAND迎出道14年 洪基：你们快回来做专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004799.md#1" target="_blank">TXT正规二辑首周热销63万张 将公开《Magic》MV</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004446.md#1" target="_blank">2PM时隔五年全员回归 《MUST》6月28日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13006824.md#1" target="_blank">苏晏霈与黄文星录防疫影片 吁就地过节别返乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007559.md#1" target="_blank">詹雅雯谈治疗近况 暂缓回诊留给更需要的人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank">魏如萱7月演唱会延期 宅家做菜打扫找乐趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007140.md#1" target="_blank">影后张榕容苦练擒拿枪械 吁防疫别返乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank">梧桐妹收简体字威胁讯息 贾静雯紧急报案</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13006981.md#1" target="_blank">郁可唯新歌传达活在当下 感受生命中的小美好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
