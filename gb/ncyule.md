@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/7/n13005399.md#1" target="_blank">FTISLAND迎出道14年 洪基：你们快回来做专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/7/n13004799.md#1" target="_blank">TXT正规二辑首周热销63万张 将公开《Magic》MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/7/n13004446.md#1" target="_blank">2PM时隔五年全员回归 《MUST》6月28日发行</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/8/n13006824.md#1" target="_blank">苏晏霈与黄文星录防疫影片 吁就地过节别返乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/4/n12998482.md#1" target="_blank">录影展示好厨艺 王仁甫反被亏像纳豆与恰吉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/8/n13006824.md#1" target="_blank">苏晏霈与黄文星录防疫影片 吁就地过节别返乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/7/n13005918.md#1" target="_blank">“你点餐我买单”黄子佼请30位艺人隔空聚餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/7/n13005816.md#1" target="_blank">黄秋生返港备舞台剧 忧副作用暂不考虑打疫苗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/7/n13005215.md#1" target="_blank">台主播染疫15天几近痊愈 分析接获关键电话</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/7/n13004674.md#1" target="_blank">廖奕琁顺利产女 感受医护谨慎维护看诊环境</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪为治疗脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eifjab3983/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank">EXILE兼三代目JSB小林直己染疫 取消出席活动</a></h4></td></tr>
