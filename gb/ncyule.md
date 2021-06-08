@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004249.md#1" target="_blank">RM创作《Bicycle》：骑脚踏车最能感到自由</a><br></h3><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004249.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004251-210607002331100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007341-2010042155181487-320x200.jpg"></a>
+<a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13005399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13005543-200607053736100707-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004446.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004757-200506052252100707-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004681-2012230059111487-320x200.jpg"></a>
 <a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004531.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004542-2106070313541487-320x200.jpg"></a>
-<a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004265-2106070029151487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jcxdqq3957/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
