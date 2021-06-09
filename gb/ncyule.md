@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13007383.md#1" target="_blank">EXO新作85区iTunes登顶 SUHO入伍不忘帮宣传</a><br></h3><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13007383.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007530-210608080017100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a><br></h3><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13006311-180827091100100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/02/1902210456192384-320x200.jpg"></a>
 <a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13007559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007630-1910240354231487-320x200.jpg"></a>
 <a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007341-2010042155181487-320x200.jpg"></a>
 <a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
 <a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/7/n13005399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13005543-200607053736100707-320x200.jpg"></a>
 <a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/7/n13004446.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004757-200506052252100707-320x200.jpg"></a>
-<a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/7/n13004674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004681-2012230059111487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/4/n12998716.md#1" target="_blank">《不可能7》阿汤哥剧组接触确诊者 第三度停拍</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/9/n13009644.md#1" target="_blank">《国际桥牌社2》“同岛一命” 首映会线上办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank">小S自掏腰包捐医疗物资 医护家属发文致谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/9/n13009352.md#1" target="_blank">摄影同事染疫猝逝 主播张雅琴已做快筛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13008672.md#1" target="_blank">洪卓立大陆拍戏高处坠下 口吐白沫紧急送医</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13008485.md#1" target="_blank">古天乐曾迷失找高人指点 晒出黝黑皮肤催星运</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/slpruo3856/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
