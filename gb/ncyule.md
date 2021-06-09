@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a><br></h3><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13006311-180827091100100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/02/1902210456192384-320x200.jpg"></a>
+<a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13008943.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13008998-210608224802100707-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007630-1910240354231487-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007341-2010042155181487-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/7/n13005399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13005543-200607053736100707-320x200.jpg"></a>
-<a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/7/n13004446.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13004757-200506052252100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
