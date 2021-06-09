@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank">EXILE兼三代目JSB小林直己染疫 取消出席活动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/8/n13008255.md#1" target="_blank">“五月天”为医院捐66台呼吸器 网友直呼感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank">魏如萱7月演唱会延期 宅家做菜打扫找乐趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/8/n13006981.md#1" target="_blank">郁可唯新歌传达活在当下 感受生命中的小美好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank">黄明志台北观光歌曲 获美国泰利奖电视最佳MV</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/6/n13002452.md#1" target="_blank">严爵发掘导演歌手 22岁黄新峰携新作出道</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/2/n12994441.md#1" target="_blank">刘诗诗半夜急电袁弘 要求帮吴奇隆做一件小事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rewqru320/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
