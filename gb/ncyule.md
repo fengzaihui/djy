@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007383.md#1" target="_blank">EXO新作85区iTunes登顶 SUHO入伍不忘帮宣传</a><br></h3><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007383.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007530-210608080017100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a><br></h3><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13006311-180827091100100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13010102-2106090739311487-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13009379.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13009383-180611033513100707-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/02/1902210456192384-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13008943.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13008998-210608224802100707-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007630-1910240354231487-320x200.jpg"></a>
 <a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007341-2010042155181487-320x200.jpg"></a>
-<a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006824.md#1" target="_blank">苏晏霈与黄文星录防疫影片 吁就地过节别返乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank">林俊杰首场线上售票演唱会 4千万打造舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13009883.md#1" target="_blank">Vidol推线上短剧 谢毅宏等艺人跨地视讯拍戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13009517.md#1" target="_blank">周蕙、江宏杰等同门 挑战远端“上体育课”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13009644.md#1" target="_blank">《国际桥牌社2》“同岛一命” 首映会线上办</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank">小S自掏腰包捐医疗物资 医护家属发文致谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/4/n12999012.md#1" target="_blank">EXILE兼三代目JSB小林直己染疫 取消出席活动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank">林俊杰首场线上售票演唱会 4千万打造舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13008255.md#1" target="_blank">“五月天”为医院捐66台呼吸器 网友直呼感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank">魏如萱7月演唱会延期 宅家做菜打扫找乐趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/8/n13006981.md#1" target="_blank">郁可唯新歌传达活在当下 感受生命中的小美好</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/7/n13004182.md#1" target="_blank">黄明志台北观光歌曲 获美国泰利奖电视最佳MV</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/2/n12994441.md#1" target="_blank">刘诗诗半夜急电袁弘 要求帮吴奇隆做一件小事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abrwif329/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
