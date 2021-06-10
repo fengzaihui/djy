@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13010887.md#1" target="_blank">刘涛回应为何仅有两个闺密：没时间对所有人好</a><br></h3><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13010887.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1149115921-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13009706.md#1" target="_blank">TWICE推出《Alcohol-Free》 以迷你十辑展现成长</a><br></h3><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13009706.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13010497-190129092240100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012071-2106100200521487-320x200.jpg"></a>
 <a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13010102-2106090739311487-320x200.jpg"></a>
 <a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/02/1902210456192384-320x200.jpg"></a>
 <a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13008943.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13008998-210608224802100707-320x200.jpg"></a>
 <a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13007559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007630-1910240354231487-320x200.jpg"></a>
 <a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007341-2010042155181487-320x200.jpg"></a>
-<a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/04/1812200521522384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13009883.md#1" target="_blank">Vidol推线上短剧 谢毅宏等艺人跨地视讯拍戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13006824.md#1" target="_blank">苏晏霈与黄文星录防疫影片 吁就地过节别返乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/6/n13002547.md#1" target="_blank">平安就是礼物 林美秀简单庆生 吁大家心稳住</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank">萧敬腾郑容和跨海连线 疫情期间合录新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/10/n13011685.md#1" target="_blank">雷霸龙演真人动画 今年暑假先专心对抗“恶棍队”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13011043.md#1" target="_blank">与小38岁杨紫同台 赵雅芝冻龄外表惊人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank">林俊杰首场线上售票演唱会 4千万打造舞台</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13009883.md#1" target="_blank">Vidol推线上短剧 谢毅宏等艺人跨地视讯拍戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/4/n12999216.md#1" target="_blank">BoA宝儿涉跨海寄送安眠药疏失案 获判不起诉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank">萧敬腾郑容和跨海连线 疫情期间合录新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank">林俊杰首场线上售票演唱会 4千万打造舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13008255.md#1" target="_blank">“五月天”为医院捐66台呼吸器 网友直呼感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13007334.md#1" target="_blank">魏如萱7月演唱会延期 宅家做菜打扫找乐趣</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/8/n13006981.md#1" target="_blank">郁可唯新歌传达活在当下 感受生命中的小美好</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvujva311/djy/blob/master/gb/21/6/3/n12997045.md#1" target="_blank">邓紫棋中国献唱疑自我审查 敏感字眼遭修改歌词</a></h4></td></tr>
