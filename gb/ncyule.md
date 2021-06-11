@@ -3,7 +3,7 @@
 <tr><td><h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank">宋康昊受邀担任戛纳影展评审 韩国男星第一人</a><br></h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13013755-GettyImages-1198326685-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13013857.md#1" target="_blank">陈学冬下海拍戏 双腿遭水母严重螫伤</a><br></h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13013857.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13013934-chen-xuedong-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012606.md#1" target="_blank">Rosé亲至剧组送花献唱庆生 惠利：无法不爱你</a><br></h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012606.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012721-210610071403100707-600x400.jpg"></a></td></tr>
-<tr><td><h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a><br></h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-600x400.jpg"></a></td></tr>
+<tr><td><h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012171.md#1" target="_blank">申成禄与车银优专注本职 退出《家师父一体》</a><br></h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012171.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012197-210610030825100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/11/n13014754.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13014771-2106110238511487-320x200.jpg"></a>
 <a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012321.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012458-190408061059100707-320x200.jpg"></a>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/11/n13014412.md#1" target="_blank">SEVENTEEN正规三辑卖破百万张 拥三张百万专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank">宋康昊受邀担任戛纳影展评审 韩国男星第一人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012606.md#1" target="_blank">Rosé亲至剧组送花献唱庆生 惠利：无法不爱你</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/11/n13014992.md#1" target="_blank">“用影片为台湾加油” 剧团圈、歌手演员齐响应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank">宋康昊受邀担任戛纳影展评审 韩国男星第一人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012502.md#1" target="_blank">陈美凤为新戏拼了 吊钢丝重现秀场风华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13011685.md#1" target="_blank">雷霸龙演真人动画 今年暑假先专心对抗“恶棍队”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/9/n13009883.md#1" target="_blank">Vidol推线上短剧 谢毅宏等艺人跨地视讯拍戏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/11/n13014992.md#1" target="_blank">“用影片为台湾加油” 剧团圈、歌手演员齐响应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/11/n13014821.md#1" target="_blank">《搭错车》再延期 丁当遗憾向粉丝喊话再相见</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/11/n13014754.md#1" target="_blank">澎恰恰工作停摆改做生意 惊见“债权人上门”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13014019.md#1" target="_blank">郭富城名下爱驹病逝 两周前曾出赛夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13012502.md#1" target="_blank">陈美凤为新戏拼了 吊钢丝重现秀场风华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
@@ -50,13 +50,13 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/4/n12999803.md#1" target="_blank">胡歌观看前女友演音乐剧 分手12年再传复合？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/4/n12999132.md#1" target="_blank">林志玲护台抗疫 隔海捐6座“正压检疫亭”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/9/n13011043.md#1" target="_blank">与小38岁杨紫同台 赵雅芝冻龄外表惊人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/4/n13000154.md#1" target="_blank">蒋欣晒吃饭自拍照 网民：难怪能瘦那么多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/8/n13007127.md#1" target="_blank">梧桐妹收简体字威胁讯息 贾静雯紧急报案</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/9/n13011043.md#1" target="_blank">与小38岁杨紫同台 赵雅芝冻龄外表惊人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank">《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/6/n13003693.md#1" target="_blank">赵丽颖穿白色连衣裙现身 肩膀现拔火罐痕迹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/4/n13000002.md#1" target="_blank">一众港星悼“六四” 杜汶泽讽中共掩盖罪行</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ouidlh319/djy/blob/master/gb/21/6/7/n13006080.md#1" target="_blank">孙俪晒照庆结婚十周年 邓超转发帖文搞笑夸妻</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ouidlh319/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/ouidlh319/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ouidlh319/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/ouidlh319/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
