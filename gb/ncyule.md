@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012606.md#1" target="_blank">Rosé亲至剧组送花献唱庆生 惠利：无法不爱你</a><br></h3><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012606.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012721-210610071403100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a><br></h3><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/11/n13014754.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13014771-2106110238511487-320x200.jpg"></a>
 <a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012321.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012458-190408061059100707-320x200.jpg"></a>
 <a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012071-2106100200521487-320x200.jpg"></a>
 <a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13010102-2106090739311487-320x200.jpg"></a>
 <a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/02/1902210456192384-320x200.jpg"></a>
 <a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/9/n13008943.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13008998-210608224802100707-320x200.jpg"></a>
-<a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/8/n13007559.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13007630-1910240354231487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012502.md#1" target="_blank">陈美凤为新戏拼了 吊钢丝重现秀场风华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13011685.md#1" target="_blank">雷霸龙演真人动画 今年暑假先专心对抗“恶棍队”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/9/n13009883.md#1" target="_blank">Vidol推线上短剧 谢毅宏等艺人跨地视讯拍戏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/11/n13014754.md#1" target="_blank">澎恰恰工作停摆改做生意 惊见“债权人上门”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13014019.md#1" target="_blank">郭富城名下爱驹病逝 两周前曾出赛夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012502.md#1" target="_blank">陈美凤为新戏拼了 吊钢丝重现秀场风华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012326.md#1" target="_blank">兑现预购限量黑胶送签名 万芳做好防疫亲上工</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13012343.md#1" target="_blank">疫情冲击无毕典 陈庭妮、林柏宏鼓励毕业生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lcmprz365/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
