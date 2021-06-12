@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank">孙俪第七遍写千字文 毛笔书法获赞像印刷体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/10/n13013857.md#1" target="_blank">陈学冬下海拍戏 双腿遭水母严重螫伤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/12/n13017435.md#1" target="_blank">TWICE迷你十辑31区iTunes登顶 主打歌MV创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/11/n13014923.md#1" target="_blank">水晶男孩张水院筹备婚礼 新娘也在娱乐界工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/11/n13014870.md#1" target="_blank">辉人个人合约告终 MAMAMOO团体约至2023年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/11/n13014412.md#1" target="_blank">SEVENTEEN正规三辑卖破百万张 拥三张百万专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank">宋康昊受邀担任戛纳影展评审 韩国男星第一人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/11/n13015558.md#1" target="_blank">谢坤达梅贤治踩场《3国智》 双帅气势先占上风</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/11/n13014992.md#1" target="_blank">“用影片为台湾加油” 剧团圈、歌手演员齐响应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank">宋康昊受邀担任戛纳影展评审 韩国男星第一人</a></h4></td></tr>
@@ -53,9 +53,9 @@
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank">《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/6/n13003693.md#1" target="_blank">赵丽颖穿白色连衣裙现身 肩膀现拔火罐痕迹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/7/n13006080.md#1" target="_blank">孙俪晒照庆结婚十周年 邓超转发帖文搞笑夸妻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/11/n13015006.md#1" target="_blank">泰裔魔术师露一手 技惊《美国达人秀》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/6/n13003512.md#1" target="_blank">被劝返美避疫情 YouTuber小贝：我是台湾人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/7/n13003956.md#1" target="_blank">TWICE迷你十辑预购突破50万张 新歌预告公开</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/5/n13000934.md#1" target="_blank">大S被爆闹离婚 疑与汪小菲发文争议有关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rkofhj355/djy/blob/master/gb/21/6/8/n13008672.md#1" target="_blank">洪卓立大陆拍戏高处坠下 口吐白沫紧急送医</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rkofhj355/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/rkofhj355/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rkofhj355/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/rkofhj355/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
