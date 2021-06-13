@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13016353.md#1" target="_blank">蔡少芬晒与1岁儿逗趣视频 素颜憔悴惊呆网友</a><br></h3><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13016353.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/10/cai-shaofen01-1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank">孙俪第七遍写千字文 毛笔书法获赞像印刷体</a><br></h3><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018726-2106130026031487-320x200.jpg"></a>
 <a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/12/n13017455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13017512-180611033513100707-320x200.jpg"></a>
 <a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/10/n13012321.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012458-190408061059100707-320x200.jpg"></a>
 <a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012071-2106100200521487-320x200.jpg"></a>
 <a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13010102-2106090739311487-320x200.jpg"></a>
-<a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/9/n13008932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/02/1902210456192384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016881-502297-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13014992.md#1" target="_blank">“用影片为台湾加油” 剧团圈、歌手演员齐响应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank">宋康昊受邀担任戛纳影展评审 韩国男星第一人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/10/n13012502.md#1" target="_blank">陈美凤为新戏拼了 吊钢丝重现秀场风华</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/13/n13018566.md#1" target="_blank">台医院急缺救命神器 贾永婕2天募到252台获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13016353.md#1" target="_blank">蔡少芬晒与1岁儿逗趣视频 素颜憔悴惊呆网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13015558.md#1" target="_blank">谢坤达梅贤治踩场《3国智》 双帅气势先占上风</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13015181.md#1" target="_blank">纳豆节目推居家防疫企划 发起自煮厨艺大赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mhwtzt3607/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
