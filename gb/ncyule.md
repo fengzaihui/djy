@@ -5,6 +5,7 @@
 <tr><td><h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13018878.md#1" target="_blank">赖雅妍坦承有数字癖 当年因录《我猜》被挖掘</a><br></h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13018878.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018908-2106130251261487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a><br></h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018726-2106130026031487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020942.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170411532122-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020768-2106140333441487-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020519-2106140045561487-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13018962.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018992-2106130342351487-320x200.jpg"></a>
@@ -34,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019883.md#1" target="_blank">为美国队长庆生 “雷神”搞笑晒与别人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/11/n13015558.md#1" target="_blank">谢坤达梅贤治踩场《3国智》 双帅气势先占上风</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/11/n13014992.md#1" target="_blank">“用影片为台湾加油” 剧团圈、歌手演员齐响应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020942.md#1" target="_blank">回顾14年前演护士 林依晨盼同理心鼓励医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank">周兴哲电影杀青 与演员同框直播成线上狗聚</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13020015.md#1" target="_blank">隋棠女儿教弟弟爬出婴儿床 影片曝光网民大赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019124.md#1" target="_blank">许含光迎28岁生日 魏如萱揪同门办线上庆生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13012326.md#1" target="_blank">兑现预购限量黑胶送签名 万芳做好防疫亲上工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank">萧敬腾郑容和跨海连线 疫情期间合录新单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/9/n13010083.md#1" target="_blank">林俊杰首场线上售票演唱会 4千万打造舞台</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/8/n13008255.md#1" target="_blank">“五月天”为医院捐66台呼吸器 网友直呼感动</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/9/n13011043.md#1" target="_blank">与小38岁杨紫同台 赵雅芝冻龄外表惊人</a></h4></td></tr>
