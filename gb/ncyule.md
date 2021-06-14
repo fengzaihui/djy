@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank">张雨绮节目中认不出胡歌 看旧照追问他是谁</a><br></h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13019851-GettyImages-139030847-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019883.md#1" target="_blank">为美国队长庆生 “雷神”搞笑晒与别人合照</a><br></h3><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019883.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13019978-GettyImages-1153232605-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021259-210516043027100707-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13021272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021321-2009191307041487-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020768-2106140333441487-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020519-2106140045561487-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13018962.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018992-2106130342351487-320x200.jpg"></a>
 <a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13018878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018908-2106130251261487-320x200.jpg"></a>
-<a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/12/n13017455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13017512-180611033513100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016881-502297-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank">孙俪第七遍写千字文 毛笔书法获赞像印刷体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13013857.md#1" target="_blank">陈学冬下海拍戏 双腿遭水母严重螫伤</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13021632.md#1" target="_blank">TXT登告示牌200榜第5名创纪录 秀彬：很幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020497.md#1" target="_blank">周子瑜迎生日连声诉幸福 祈求上天让疫情结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020764.md#1" target="_blank">EXO特别专辑热销 已有六张专辑卖破百万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020280.md#1" target="_blank">暗指Lia校园暴力者未被起诉 JYP娱乐：难以接受</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/12/n13017455.md#1" target="_blank">辉人写亲笔信：MAMAMOO全员会一直陪伴大家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank">周兴哲电影杀青 与演员同框直播成线上狗聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019883.md#1" target="_blank">为美国队长庆生 “雷神”搞笑晒与别人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/11/n13015558.md#1" target="_blank">谢坤达梅贤治踩场《3国智》 双帅气势先占上风</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020942.md#1" target="_blank">回顾14年前演护士 林依晨盼同理心鼓励医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/8/n13006309.md#1" target="_blank">柏木由纪患罕病脊髓空洞症 暂停活动专注治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13012326.md#1" target="_blank">兑现预购限量黑胶送签名 万芳做好防疫亲上工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank">萧敬腾郑容和跨海连线 疫情期间合录新单曲</a></h4></td></tr>
