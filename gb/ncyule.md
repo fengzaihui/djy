@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018878.md#1" target="_blank">赖雅妍坦承有数字癖 当年因录《我猜》被挖掘</a><br></h3><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018878.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018908-2106130251261487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a><br></h3><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018726-2106130026031487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/pputke380/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020519-2106140045561487-320x200.jpg"></a>
 <a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018962.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018992-2106130342351487-320x200.jpg"></a>
 <a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018878.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13018908-2106130251261487-320x200.jpg"></a>
 <a href="https://github.com/pputke380/djy/blob/master/gb/21/6/12/n13017455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13017512-180611033513100707-320x200.jpg"></a>
 <a href="https://github.com/pputke380/djy/blob/master/gb/21/6/10/n13012321.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012458-190408061059100707-320x200.jpg"></a>
-<a href="https://github.com/pputke380/djy/blob/master/gb/21/6/10/n13012040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13012071-2106100200521487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016881-502297-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -26,18 +26,18 @@
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank">孙俪第七遍写千字文 毛笔书法获赞像印刷体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/10/n13013857.md#1" target="_blank">陈学冬下海拍戏 双腿遭水母严重螫伤</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/14/n13020280.md#1" target="_blank">暗指Lia校园暴力者未被起诉 JYP娱乐：难以接受</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/12/n13017455.md#1" target="_blank">辉人写亲笔信：MAMAMOO全员会一直陪伴大家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/12/n13017435.md#1" target="_blank">TWICE迷你十辑31区iTunes登顶 主打歌MV创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/11/n13014923.md#1" target="_blank">水晶男孩张水院筹备婚礼 新娘也在娱乐界工作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/11/n13014870.md#1" target="_blank">辉人个人合约告终 MAMAMOO团体约至2023年</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank">周兴哲电影杀青 与演员同框直播成线上狗聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13019883.md#1" target="_blank">为美国队长庆生 “雷神”搞笑晒与别人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/11/n13015558.md#1" target="_blank">谢坤达梅贤治踩场《3国智》 双帅气势先占上风</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/11/n13014992.md#1" target="_blank">“用影片为台湾加油” 剧团圈、歌手演员齐响应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/10/n13013631.md#1" target="_blank">宋康昊受邀担任戛纳影展评审 韩国男星第一人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank">周兴哲电影杀青 与演员同框直播成线上狗聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13020015.md#1" target="_blank">隋棠女儿教弟弟爬出婴儿床 影片曝光网民大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13019124.md#1" target="_blank">许含光迎28岁生日 魏如萱揪同门办线上庆生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018962.md#1" target="_blank">徐哲纬端午节不返乡 称病毒无情不急此刻相聚</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pputke380/djy/blob/master/gb/21/6/8/n13006776.md#1" target="_blank">南明奈怀胎七月流产 两个月前曾与滨口优报喜</a></h4></td></tr>
