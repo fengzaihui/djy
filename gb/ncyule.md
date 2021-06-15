@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a><br></h3><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/07/DSC_9624-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank">走红毯被指身材发福 章子怡公开真实体重</a><br></h3><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-1145305822-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13023253-2106150535241487-320x200.jpg"></a>
 <a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022691-2104160149201487-320x200.jpg"></a>
 <a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13022420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022647-190502010325100707-320x200.jpg"></a>
 <a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021259-210516043027100707-320x200.jpg"></a>
 <a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021321-2009191307041487-320x200.jpg"></a>
 <a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020768-2106140333441487-320x200.jpg"></a>
-<a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020519-2106140045561487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016881-502297-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank">走红毯被指身材发福 章子怡公开真实体重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank">张雨绮节目中认不出胡歌 看旧照追问他是谁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13023242.md#1" target="_blank">SEVENTEEN成员Hoshi 生日前捐款1亿韩圜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13022652.md#1" target="_blank">照镜子常想“很漂亮” 子瑜以此自我鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13022420.md#1" target="_blank">BTS《Butter》连三周Hot 100榜称冠 新作7月推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021632.md#1" target="_blank">TXT登告示牌200榜第5名创纪录 秀彬：很幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank">走红毯被指身材发福 章子怡公开真实体重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank">周兴哲电影杀青 与演员同框直播成线上狗聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/13/n13019883.md#1" target="_blank">为美国队长庆生 “雷神”搞笑晒与别人合照</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank">柯佳嬿也挺医护 端午节赴医院亲送百份餐点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13023074.md#1" target="_blank">谈募捐医材 贾永婕：深知帮人加油打气的重要</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13022461.md#1" target="_blank">网购买吉他收到纸板 动力火车颜志琳傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13023002.md#1" target="_blank">疫情升温 hito流行音乐颁奖典礼2度停办</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank">吴青峰遭控违反著作权案 今获法院宣判无罪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank">张雨绮节目中认不出胡歌 看旧照追问他是谁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/11/n13014412.md#1" target="_blank">SEVENTEEN正规三辑卖破百万张 拥三张百万专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank">孙俪第七遍写千字文 毛笔书法获赞像印刷体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frzfvh3644/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank">孙俪第七遍写千字文 毛笔书法获赞像印刷体</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/frzfvh3644/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/frzfvh3644/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/frzfvh3644/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/frzfvh3644/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
