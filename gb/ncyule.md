@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank">走红毯被指身材发福 章子怡公开真实体重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank">张雨绮节目中认不出胡歌 看旧照追问他是谁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/15/n13022420.md#1" target="_blank">BTS《Butter》连三周Hot 100榜称冠 新作7月推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021632.md#1" target="_blank">TXT登告示牌200榜第5名创纪录 秀彬：很幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13020497.md#1" target="_blank">周子瑜迎生日连声诉幸福 祈求上天让疫情结束</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13020764.md#1" target="_blank">EXO特别专辑热销 已有六张专辑卖破百万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank">走红毯被指身材发福 章子怡公开真实体重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank">周兴哲电影杀青 与演员同框直播成线上狗聚</a></h4></td></tr>
