@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank">走红毯被指身材发福 章子怡公开真实体重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13020420.md#1" target="_blank">周兴哲电影杀青 与演员同框直播成线上狗聚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/13/n13019883.md#1" target="_blank">为美国队长庆生 “雷神”搞笑晒与别人合照</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/15/n13023002.md#1" target="_blank">疫情升温 hito流行音乐颁奖典礼2度停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank">吴青峰遭控违反著作权案 今获法院宣判无罪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13022205.md#1" target="_blank">受疫情影响 港星杨淇转职当大学保安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021272.md#1" target="_blank">任贤齐端午过生日 母亲备整盘粽子插蜡烛庆生</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/owcgqx3850/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
