@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021845.md#1" target="_blank">走红毯被指身材发福 章子怡公开真实体重</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025129.md#1" target="_blank">太妍7月以新作回归歌坛 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024923.md#1" target="_blank">BLACKPINK出道5周年纪念电影 8月于全球上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023382.md#1" target="_blank">JYP娱乐回应Lia遭暗指校园暴力：要求警方再调查</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023242.md#1" target="_blank">SEVENTEEN成员Hoshi 生日前捐款1亿韩圜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank">(G)I-DLE舒华首登台综 YT频道首播吸引多国粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025489.md#1" target="_blank">隔离12天康复返家 陈零九谈过程：症状千变万化</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank">(G)I-DLE舒华首登台综 YT频道首播吸引多国粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank">李心洁带小孩累到快崩溃 自曝靠一招平复心情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/10/n13011602.md#1" target="_blank">柏木由纪6月底开刀 盼未来能开朗谈罕病经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023622.md#1" target="_blank">台女歌手婚后与夫创作 以家常菜入名推台语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank">吴青峰遭控违反著作权案 今获法院宣判无罪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
