@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank">李心洁带小孩累到快崩溃 自曝靠一招平复心情</a><br></h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/08/1_meitu_1-13-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022652.md#1" target="_blank">照镜子常想“很漂亮” 子瑜以此自我鼓励</a><br></h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022652.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13023202-2101282306381487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025489.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025505-2102220042521487-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025240-2106160118031487-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13023253-2106150535241487-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022691-2104160149201487-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022647-190502010325100707-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021259-210516043027100707-320x200.jpg"></a>
-<a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021321-2009191307041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank">李心洁带小孩累到快崩溃 自曝靠一招平复心情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025489.md#1" target="_blank">隔离12天康复返家 陈零九谈过程：症状千变万化</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank">(G)I-DLE舒华首登台综 YT频道首播吸引多国粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank">李心洁带小孩累到快崩溃 自曝靠一招平复心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023622.md#1" target="_blank">台女歌手婚后与夫创作 以家常菜入名推台语歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank">柯佳嬿也挺医护 端午节赴医院亲送百份餐点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
