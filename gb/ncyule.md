@@ -5,14 +5,14 @@
 <tr><td><h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank">李心洁带小孩累到快崩溃 自曝靠一招平复心情</a><br></h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/08/1_meitu_1-13-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022652.md#1" target="_blank">照镜子常想“很漂亮” 子瑜以此自我鼓励</a><br></h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022652.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13023202-2101282306381487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025240-2106160118031487-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13023253-2106150535241487-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022691-2104160149201487-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13022420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022647-190502010325100707-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021259-210516043027100707-320x200.jpg"></a>
 <a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021321-2009191307041487-320x200.jpg"></a>
-<a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13020768-2106140333441487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016881-502297-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024923.md#1" target="_blank">BLACKPINK出道5周年纪念电影 8月于全球上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023382.md#1" target="_blank">JYP娱乐回应Lia遭暗指校园暴力：要求警方再调查</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023242.md#1" target="_blank">SEVENTEEN成员Hoshi 生日前捐款1亿韩圜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank">(G)I-DLE舒华首登台综 YT频道首播吸引多国粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank">李心洁带小孩累到快崩溃 自曝靠一招平复心情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank">(G)I-DLE舒华首登台综 YT频道首播吸引多国粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13024255.md#1" target="_blank">李心洁带小孩累到快崩溃 自曝靠一招平复心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023622.md#1" target="_blank">台女歌手婚后与夫创作 以家常菜入名推台语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank">柯佳嬿也挺医护 端午节赴医院亲送百份餐点</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/15/n13023074.md#1" target="_blank">谈募捐医材 贾永婕：深知帮人加油打气的重要</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/11/n13015538.md#1" target="_blank">Hey! Say! JUMP《负能量斗士》 战胜消极向前迈进</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/9/n13011043.md#1" target="_blank">与小38岁杨紫同台 赵雅芝冻龄外表惊人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/11/n13015006.md#1" target="_blank">泰裔魔术师露一手 技惊《美国达人秀》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/11/n13015006.md#1" target="_blank">泰裔魔术师露一手 技惊《美国达人秀》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank">张雨绮节目中认不出胡歌 看旧照追问他是谁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/13/n13018566.md#1" target="_blank">台医院急缺救命医材 贾永婕2天募到252台获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
