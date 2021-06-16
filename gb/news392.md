@@ -4,7 +4,7 @@
 
 这是美国与欧盟领导人峰会第一次在联合公报中提到对台海和平稳定的重视。这个声明对台海地区，印太地区，乃至整个世界的和平稳定，都有重要意义。
 
-美欧领导人的这个表态，不是一时心血来潮，而是因应.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 1:29 PM			</td></tr>
+美欧领导人的这个表态，不是一时心血来潮，而是因应.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 2:03 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024943.md#1" target="_blank">胡平：《最后的秘密》透露了哪些重大信息</a><br></h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024943.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/06/4-1-150x120.jpg" align ="left"></a>2019年“六四”30周年前夕，香港新世纪出版社推出了一部新书《最后的秘密——中共十三届四中“六四”结论文档》，公布了关于“六四”事件的又一批党内机密文件。美国哥伦比亚大学教授黎安友（Andrew James Nathan）在序言中，介绍了这些文件的出处来自两次会议：即1989年6月19日至21日中共中央政治局扩大会议.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 11:04 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024688.md#1" target="_blank">影评：英雄的壮举（上）</a><br></h3><a href="https://github.com/fncjhn376/djy/blob/master/gb/21/6/16/n13024688.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2019/07/2dd96510b305841a89ec3c27e6b3fc04-150x120.jpg" align ="left"></a>天光之下，绿野茫茫的青纱帐里，好人在奔跑，坏人在围追。随即有枪声响起……英雄，越狱。
 
