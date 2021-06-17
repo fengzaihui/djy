@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a><br></h3><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025057-GettyImages-866208910-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a><br></h3><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13024833-1903140718392384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027917.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13027990-210617022213100707-320x200.jpg"></a>
+<a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028002-JEN4378-320x200.jpg"></a>
 <a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2013/06/1303180645282275-320x200.jpg"></a>
 <a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025240-2106160118031487-320x200.jpg"></a>
 <a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13023253-2106150535241487-320x200.jpg"></a>
 <a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022691-2104160149201487-320x200.jpg"></a>
-<a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/15/n13022420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13022647-190502010325100707-320x200.jpg"></a>
-<a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021259-210516043027100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027917.md#1" target="_blank">GFRIEND睿邻签约新公司 与Rain、哈妮等人同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027686.md#1" target="_blank">(G)I-DLE田小娟首张专辑《Windy》 7月5日推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025622.md#1" target="_blank">BamBam盼成为粉丝好友 Solo专辑34区iTunes登顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank">(G)I-DLE舒华首登台综 YT频道首播吸引多国粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank">捐赠医材遭批评 总统致电表谢意 贾永婕惊喜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027417.md#1" target="_blank">“香肠伯”长青辞世 妻曝生前对话 ：人生无憾</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13026141.md#1" target="_blank">台资深艺人长青因心肌梗塞过世 享寿76岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
