@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028947.md#1" target="_blank">金钟国健身频道首日16万订阅 DinDin等人支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028998.md#1" target="_blank">CUBE娱乐不对合约案上诉 为赖冠霖的未来加油</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028134.md#1" target="_blank">THE 8徐明浩脚部疼痛 减少舞蹈参与新专辑活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027542.md#1" target="_blank">赖冠霖于合约纠纷胜诉 CUBE娱乐需负担诉讼费</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027917.md#1" target="_blank">GFRIEND睿邻签约新公司 与Rain、哈妮等人同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
