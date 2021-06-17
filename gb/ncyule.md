@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13028162.md#1" target="_blank">《读者文摘》信赖调查 黄子佼谢震武再获奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13028176.md#1" target="_blank">华语歌手首位 周兴哲拥4首点击破亿歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13028086.md#1" target="_blank">胡瓜送医疗物资 消防员问：电视上那个送的吗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank">捐赠医材遭批评 总统致电表谢意 贾永婕惊喜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
