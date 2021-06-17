@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank">(G)I-DLE舒华首登台综 YT频道首播吸引多国粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/17/n13027417.md#1" target="_blank">“香肠伯”长青辞世 妻曝生前对话 ：人生无憾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13026141.md#1" target="_blank">台资深艺人长青因心肌梗塞过世 享寿76岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13025730.md#1" target="_blank">连俞涵温昇豪挑战台剧新高度 海报低调奢华</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13025521.md#1" target="_blank">郑容和萧敬腾合作曲首播 双方靠想像力隔空拍MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xnjndl308/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a></h4></td></tr>
