@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028353.md#1" target="_blank">陈威全开线上体验班 向年轻人分享音乐创作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028162.md#1" target="_blank">《读者文摘》信赖调查 黄子佼谢震武再获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028176.md#1" target="_blank">华语歌手首位 周兴哲拥4首点击破亿歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028086.md#1" target="_blank">胡瓜送医疗物资 消防员问：电视上那个送的吗</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank">捐赠医材遭批评 总统致电表谢意 贾永婕惊喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028353.md#1" target="_blank">陈威全开线上体验班 向年轻人分享音乐创作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/15/n13023622.md#1" target="_blank">台女歌手婚后与夫创作 以家常菜入名推台语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank">吴青峰遭控违反著作权案 今获法院宣判无罪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/10/n13012326.md#1" target="_blank">兑现预购限量黑胶送签名 万芳做好防疫亲上工</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/11/n13015006.md#1" target="_blank">泰裔魔术师露一手 技惊《美国达人秀》</a></h4></td></tr>
