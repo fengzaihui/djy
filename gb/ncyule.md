@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13028134.md#1" target="_blank">THE 8徐明浩脚部疼痛 减少舞蹈参与新专辑活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027542.md#1" target="_blank">赖冠霖于合约纠纷胜诉 CUBE娱乐需负担诉讼费</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027917.md#1" target="_blank">GFRIEND睿邻签约新公司 与Rain、哈妮等人同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027686.md#1" target="_blank">(G)I-DLE田小娟首张专辑《Windy》 7月5日推出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/13/n13018566.md#1" target="_blank">台医院急缺救命医材 贾永婕2天募到252台获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/11/n13014412.md#1" target="_blank">SEVENTEEN正规三辑卖破百万张 拥三张百万专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyuooa3373/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fyuooa3373/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/fyuooa3373/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fyuooa3373/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/fyuooa3373/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
