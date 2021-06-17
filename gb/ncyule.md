@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025622.md#1" target="_blank">BamBam盼成为粉丝好友 Solo专辑34区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025129.md#1" target="_blank">太妍7月以新作回归歌坛 获SM娱乐证实</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13024923.md#1" target="_blank">BLACKPINK出道5周年纪念电影 8月于全球上映</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
@@ -39,24 +39,24 @@
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13026141.md#1" target="_blank">台资深艺人长青因心肌梗塞过世 享寿76岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025730.md#1" target="_blank">连俞涵温昇豪挑战台剧新高度 海报低调奢华</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13021161.md#1" target="_blank">宫胁咲良毕业曲由秋元康创作：他好了解我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/15/n13023622.md#1" target="_blank">台女歌手婚后与夫创作 以家常菜入名推台语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank">吴青峰遭控违反著作权案 今获法院宣判无罪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/10/n13012326.md#1" target="_blank">兑现预购限量黑胶送签名 万芳做好防疫亲上工</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/10/n13011593.md#1" target="_blank">闺密晒两人5年前后对比照 孙俪仿佛逆生长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/11/n13015006.md#1" target="_blank">泰裔魔术师露一手 技惊《美国达人秀》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank">张雨绮节目中认不出胡歌 看旧照追问他是谁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/13/n13018566.md#1" target="_blank">台医院急缺救命医材 贾永婕2天募到252台获赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/11/n13014412.md#1" target="_blank">SEVENTEEN正规三辑卖破百万张 拥三张百万专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/11/n13016233.md#1" target="_blank">孙俪第七遍写千字文 毛笔书法获赞像印刷体</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/frbteq307/djy/blob/master/gb/21/6/14/n13021980.md#1" target="_blank">65岁刘晓庆自信满满 搞笑回应整容传闻</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/frbteq307/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/frbteq307/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/frbteq307/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/frbteq307/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
