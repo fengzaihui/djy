@@ -41,7 +41,31 @@
 <tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13026134.md#1" target="_blank">乐观主义使你在更小压力下实现目标</a><br></h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13026134.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13026167-a-woman-smiles-on-a-city-sidewalk-700x420-150x120.jpg" align ="left"></a>当你听到乐观这个词时会想到什么呢？它是否会作为一种切实可行的生活实践引起你的共鸣呢？抑或因它听起来太过波利安娜式而不和你的口味。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 10:12 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025582.md#1" target="_blank">【网海拾贝】色厉内荏的中共百岁党庆</a><br></h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025582.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13021258-008bIAPVgy1gri2eu1q4dj31690s7npd-150x120.jpg" align ="left"></a>还有半个月，中共这个全世界最大政党就要庆祝自己的成立一百周年生日了。目前，各项党庆准备活动已经展开，12日在天安门广场附近进行了庆典演练，动员一万四千多人参加。据外媒报导，当局已经下令，要在15日之前，把上访民众全部驱除出北京；到20日，必须没有任何死角。喜事丧办、如临大敌的景象，再次出现。100岁生日，按理说应当营造.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 4:23 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025475.md#1" target="_blank">袁斌：广东核电站泄漏，切尔诺贝利2.0？</a><br></h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025475.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025544-GettyImages-1232301314--150x120.jpeg" align ="left"></a>CNN近日报导，广东台山核电站核泄漏告急， 帮助建造并合作运营的法国EDF公司上周二去信美国国务院求救技术援助，这一举动非常反常，信中说中国政府为了不关闭核反应堆修改标准，不断提高气体泄露的允许值上限，把超标核辐射强行认定安全，目前已增加近一倍。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 3:42 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025435.md#1" target="_blank">清竹：著名歌唱家关贵敏的故事</a><br></h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025435.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025469-1603200312041886--150x120.jpeg" align ="left"></a>当今的中国，有些人仍然抱着眼见为实的观念不放，你告诉他中共是如何迫害人权，迫害信仰的法轮功学员，可是他还是怀疑你说的是不是真的？因为在他的心里，只有亲眼看见那才是真实的。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 2:56 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/18/n13030050.md#1" target="_blank">石铭：“六一零”日子前的疯狂</a><br></h3>今年是第22个“六一零”的日子，进入六月份以来中共政法委、610又在兴风作浪，制造多起恶性绑架冤判法轮功学员事件。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 10:14 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/18/n13030033.md#1" target="_blank">吐为快：菩萨蛮</a><br></h3>
+（一）
+紫禁城里和谐调，
+异地访民归乡好。
+八旗忆晚清，
+赵家同病兆。
+
+武毒蝙蝠飞，
+世界溯源潮。
+变种党更毒，
+拉人垫背悄。
+
+（二）
+党媒尽说共匪好，
+人民只合墙内老。
+鹰犬多如毛，
+百年保党笑。
+
+红楼人似虎，
+獠牙镀金包。
+莺莺常藏娇，
+燕燕歌舞妙。
+
+责任编辑.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 10:03 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13027569.md#1" target="_blank">戴安娜：在中国，逃无可逃</a><br></h3>如果在中国国内长大，长期受到洗脑教育，后遗症很严重，很多人产生了一种幻觉：如果我一直保持沉默，远离政治远离体制，就能远离暴行和谎言，保得平安。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月17日 11:14 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13027183.md#1" target="_blank">九天剑：口炮是你的 子宫是我的</a><br></h3>滚刀肉一般的匪共这次终于吓到了。从70年前在那条红船上秘谋煽颠，到8964派20万匪兵开到广场杀平民，它从来没见过今天这场面——韭菜躺一地，冲着它冷笑。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月17日 9:36 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025567.md#1" target="_blank">李春草：雨中花慢?三朝国师（外一首）</a><br></h3>品证六四，官应妖蟾，师肇三代国难。
@@ -53,20 +77,5 @@
 推保党，捆打虎手，背血锅窜。
 煽情中美冷战，妄立香港国安。
 内斗正酣，命陷绞肉，有泪莫弹。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 3:53 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025387.md#1" target="_blank">关乐：韩战前后（上）</a><br></h3>韩战道是中美战，话似偏颇非无缘。
-
-“援朝”侵韩冠“抗美”，中共亮相美敌面。
-
-称美世界之警察，自认贼匪不意宣。
-
-美率义师反侵略，堂堂联合国军团。
-
-韩战停火多因素，美核威慑系一元。
-
-河东河西一轮过，进退攻守两倒颠。
-
-今日联合国大旗，中共反美虎皮幡。
-
-国家恐怖核讹诈，朝中双簧演焦点.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月16日 2:40 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/rraias314/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rraias314/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/rraias314/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rraias314/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/rraias314/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
