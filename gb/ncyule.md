@@ -6,10 +6,10 @@
 <tr><td><h3><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a><br></h3><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/10/PO_X2915_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895178-DSC_2611-320x200.jpg"></a>
+<a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13028947.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028967-200407063132100707-320x200.jpg"></a>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028002-JEN4378-320x200.jpg"></a>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13027976-2106170211371487-320x200.jpg"></a>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025240-2106160118031487-320x200.jpg"></a>
-<a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/15/n13023243.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13023253-2106150535241487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
