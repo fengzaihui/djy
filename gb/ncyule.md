@@ -8,9 +8,9 @@
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13031095-2106180733551487-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030895.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030916-2106180508461487-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030751.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/201107020703100707-320x200.jpg"></a>
+<a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028529-502928-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030489-2106180126411487-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895178-DSC_2611-320x200.jpg"></a>
-<a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13028947.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028967-200407063132100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030380.md#1" target="_blank">Arin崔乂园迎生日 捐3,000万韩圜帮助儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13029756.md#1" target="_blank">李英爱50岁近照超冻龄 10岁龙凤胎相貌曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13028947.md#1" target="_blank">金钟国健身频道首日16万订阅 DinDin等人支持</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13031400.md#1" target="_blank">“顽童”大渊自嘲肥男 上节目担心踩坏道具</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank">王彩桦王中平合作新戏 即兴演出常逗笑导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13031400.md#1" target="_blank">“顽童”大渊自嘲肥男 上节目担心踩坏道具</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank">王彩桦王中平合作新戏 即兴演出常逗笑导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030895.md#1" target="_blank">朱海君携女儿开直播 NO妹童言童语超抢镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030751.md#1" target="_blank">粉丝以Super Junior之名赠隔离衣 消防局惊喜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank">糗挂总统3次电话 贾永婕：不怕委屈继续努力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
