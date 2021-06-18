@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027747.md#1" target="_blank">获邀奥运表演 跆拳道团体震撼《美国达人秀》</a><br></h3><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027747.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13027749-shutterstock_1359877007-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a><br></h3><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/191106074703100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030489-2106180126411487-320x200.jpg"></a>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895178-DSC_2611-320x200.jpg"></a>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13028947.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028967-200407063132100707-320x200.jpg"></a>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028002-JEN4378-320x200.jpg"></a>
 <a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13027976-2106170211371487-320x200.jpg"></a>
-<a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13025216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13025240-2106160118031487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -34,18 +34,18 @@
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank">动力火车“北流”延期开唱 宣布加开高雄场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13029496.md#1" target="_blank">双料港姐邓卓殷完成建筑专业硕士课程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank">徐若瑄晒国小毕业照 自曝儿时绰号笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13028353.md#1" target="_blank">陈威全开线上体验班 向年轻人分享音乐创作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13028162.md#1" target="_blank">《读者文摘》信赖调查 黄子佼谢震武再获奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13024827.md#1" target="_blank">木村拓哉次女Koki将主演电影 引发热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank">动力火车“北流”延期开唱 宣布加开高雄场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/17/n13028353.md#1" target="_blank">陈威全开线上体验班 向年轻人分享音乐创作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/15/n13023622.md#1" target="_blank">台女歌手婚后与夫创作 以家常菜入名推台语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/15/n13022686.md#1" target="_blank">吴青峰遭控违反著作权案 今获法院宣判无罪</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/14/n13020901.md#1" target="_blank">返台避疫当上直播主 歌坛新人忆人生转变契机</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xuciyt387/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a></h4></td></tr>
