@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027747.md#1" target="_blank">获邀奥运表演 跆拳道团体震撼《美国达人秀》</a><br></h3><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027747.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13027749-shutterstock_1359877007-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a><br></h3><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/191106074703100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030895.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030916-2106180508461487-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030751.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/201107020703100707-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030489-2106180126411487-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895178-DSC_2611-320x200.jpg"></a>
 <a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13028947.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028967-200407063132100707-320x200.jpg"></a>
-<a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028002-JEN4378-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030895.md#1" target="_blank">朱海君携女儿开直播 NO妹童言童语超抢镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030751.md#1" target="_blank">粉丝以Super Junior之名赠隔离衣 消防局惊喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank">糗挂总统3次电话 贾永婕：不怕委屈继续努力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030655.md#1" target="_blank">蔡岳宸再推创作单曲 邀AKB48台湾成员共演MV</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank">动力火车“北流”延期开唱 宣布加开高雄场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
@@ -49,7 +49,6 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/13/n13018705.md#1" target="_blank">台艺人染疫再添1 李培祯叹：病毒真无孔不入</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/11/n13015006.md#1" target="_blank">泰裔魔术师露一手 技惊《美国达人秀》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/13/n13019789.md#1" target="_blank">张雨绮节目中认不出胡歌 看旧照追问他是谁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
@@ -57,5 +56,6 @@
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uotrro3300/djy/blob/master/gb/21/6/12/n13016755.md#1" target="_blank">下电梯被路人踩一脚 杨幂的反应获称赞</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/uotrro3300/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/uotrro3300/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/uotrro3300/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/uotrro3300/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
