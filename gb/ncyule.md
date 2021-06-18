@@ -30,10 +30,10 @@
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13028998.md#1" target="_blank">CUBE娱乐不对合约案上诉 为赖冠霖的未来加油</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13028134.md#1" target="_blank">THE 8徐明浩脚部疼痛 减少舞蹈参与新专辑活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13027542.md#1" target="_blank">赖冠霖于合约纠纷胜诉 CUBE娱乐需负担诉讼费</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank">徐若瑄晒国小毕业照 自曝儿时绰号笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13025859.md#1" target="_blank">江宏杰携师妹开直播节目 首集近7千粉丝观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13029496.md#1" target="_blank">双料港姐邓卓殷完成建筑专业硕士课程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank">徐若瑄晒国小毕业照 自曝儿时绰号笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13028353.md#1" target="_blank">陈威全开线上体验班 向年轻人分享音乐创作</a></h4></td></tr>
@@ -55,7 +55,7 @@
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/11/n13014412.md#1" target="_blank">SEVENTEEN正规三辑卖破百万张 拥三张百万专辑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rraias314/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/rraias314/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rraias314/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rraias314/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/rraias314/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rraias314/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/rraias314/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
