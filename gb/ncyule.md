@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/19/n13032824.md#1" target="_blank">SEVENTEEN盼于告示牌夺冠 新作18区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/18/n13030445.md#1" target="_blank">Brave Girls爆红后首度推出新歌 登音源榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/18/n13030380.md#1" target="_blank">Arin崔乂园迎生日 捐3,000万韩圜帮助儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/17/n13029756.md#1" target="_blank">李英爱50岁近照超冻龄 10岁龙凤胎相貌曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/17/n13028947.md#1" target="_blank">金钟国健身频道首日16万订阅 DinDin等人支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车？大女主演成小丫鬟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/18/n13031400.md#1" target="_blank">“顽童”大渊自嘲肥男 上节目担心踩坏道具</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uolkhq362/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank">王彩桦王中平合作新戏 即兴演出常逗笑导演</a></h4></td></tr>
