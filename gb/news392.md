@@ -23,7 +23,15 @@
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029663.md#1" target="_blank">谢田：北约出击俄罗斯缩手 中共腹背受敌</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029663.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13026209-GettyImages-1233484307-150x120.jpg" align ="left"></a>今年入夏以来，随着瘟疫形势此消彼长的变化，国际政治和军事局势也发生了一些微妙的变化。这主要体现在世界各国对待中共的态度，有了明显的转变；中共内部的恶斗和焦躁不安，也或多或少的体现了出来。美英两国签署的《新大西洋宪章》，北约的隔空取火、长臂出击，加上美俄峰会之后，俄罗斯缩手、对中共隔岸观火，都让中共政权感到了空前的危机.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 2:10 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029751.md#1" target="_blank">吴惠林：一条由善意铺就的地狱之路</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029751.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030239-4bb3088213b6e94266679a4173eb7a16-150x120.jpg" align ="left"></a>二〇二〇年的美国总统大选是一场惊天地、泣鬼神的选战，更是正与邪的大战，不但关乎美国会不会从自由民主、自由经济、资本主义、市场经济体制，走向社会主义体制，甚至是集体主义、共产主义体制，也攸关全人类的存亡。结果我们也都知道了，在满天的作弊疑云下，民主党拜登政府上台了，社会主义可谓全面攻占美国。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 11:33 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030146.md#1" target="_blank">首位文革杀人犯的忏悔：革命逆天、人命关天</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030146.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-49197-0614-1200x819-150x120.jpg" align ="left"></a>近日上海市长宁区政府官网一则报导称，一名患上认知障碍症16年、坐轮椅3年的91岁婆婆，在养老院听红歌时，竟然慢慢站起来跳起舞来。这则新闻为突显表忠的主题，手法和大跃进时亩产万斤的报道同等荒诞。今天的人们已不再相信中共这套东西。但在历次政治风暴漩涡中，荒谬和虚假是政治正确的基本要素，越荒谬、越疯狂、越反人性才越革命、越党.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 11:14 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13029990.md#1" target="_blank">父亲节话为坚守信仰而受难的父亲们</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13029990.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/2018-6-20-mh-dc-grand-parade-08-2-150x120.jpg" align ="left"></a>父亲节要到了，在中共迫害法轮功的二十二年中，有多少法轮功学员被强行剥夺了信仰真、善、忍法轮大法的权利，并遭绑架、关押、劳教、判刑，甚至失去了生命，有多少法轮功学员的家庭被迫害得支离破碎、妻离子散？孩子失去父亲、母亲的照顾。在此列举部分迫害案例：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 9:54 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034093.md#1" target="_blank">郑纯清：科学靠不住 免疫在漂红</a><br></h3>口罩本何用？谁都被搞懵。
+咋就非要戴，急即变万能？
+交距有何据？没人给提供。
+凭何竟成为，硬性之规定？
+疫苗能救命？未闻有谁吭。
+如此急着打，不怕副作用？
+打完疫苗后，心怎还扑腾？
+封城啥实效？不见谁验证。
+得失各何在？有谁来说清？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月20日 12:39 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034084.md#1" target="_blank">吴新：中南海遭海难重</a><br></h3>网搜不见董经纬，
 党媒纯文报开会：
 “间谍内奸一起抓”，
