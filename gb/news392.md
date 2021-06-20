@@ -24,10 +24,21 @@
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029751.md#1" target="_blank">吴惠林：一条由善意铺就的地狱之路</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029751.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030239-4bb3088213b6e94266679a4173eb7a16-150x120.jpg" align ="left"></a>二〇二〇年的美国总统大选是一场惊天地、泣鬼神的选战，更是正与邪的大战，不但关乎美国会不会从自由民主、自由经济、资本主义、市场经济体制，走向社会主义体制，甚至是集体主义、共产主义体制，也攸关全人类的存亡。结果我们也都知道了，在满天的作弊疑云下，民主党拜登政府上台了，社会主义可谓全面攻占美国。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 11:33 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030146.md#1" target="_blank">首位文革杀人犯的忏悔：革命逆天、人命关天</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030146.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-49197-0614-1200x819-150x120.jpg" align ="left"></a>近日上海市长宁区政府官网一则报导称，一名患上认知障碍症16年、坐轮椅3年的91岁婆婆，在养老院听红歌时，竟然慢慢站起来跳起舞来。这则新闻为突显表忠的主题，手法和大跃进时亩产万斤的报道同等荒诞。今天的人们已不再相信中共这套东西。但在历次政治风暴漩涡中，荒谬和虚假是政治正确的基本要素，越荒谬、越疯狂、越反人性才越革命、越党.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 11:14 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13029990.md#1" target="_blank">父亲节话为坚守信仰而受难的父亲们</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13029990.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2020/12/2018-6-20-mh-dc-grand-parade-08-2-150x120.jpg" align ="left"></a>父亲节要到了，在中共迫害法轮功的二十二年中，有多少法轮功学员被强行剥夺了信仰真、善、忍法轮大法的权利，并遭绑架、关押、劳教、判刑，甚至失去了生命，有多少法轮功学员的家庭被迫害得支离破碎、妻离子散？孩子失去父亲、母亲的照顾。在此列举部分迫害案例：......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 9:54 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029645.md#1" target="_blank">沈舟：军机扰台暴露中共战略战术混乱</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029645.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13029664-4592491e19e232334416f9c442a06d92-150x120.jpg" align ="left"></a>6月15日，中共忽然出动28架军机骚扰台海，应该是对G7 和北约峰会关注台海的政治回应，也可算作对美军里根号航母进入南海的回应。不过，面对日趋孤立的窘境，中共此举在战略上等于又一次四面出击，显然再度失策；当日采用的模拟战术也现出了混乱。
+<tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034084.md#1" target="_blank">吴新：中南海遭海难重</a><br></h3>网搜不见董经纬，
+党媒纯文报开会：
+“间谍内奸一起抓”，
+哪怕疑贼喊捉贼。
+党魁领誓“永不叛”，
+此地无银三百枚。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月20日 12:22 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034058.md#1" target="_blank">金浴凤：为叛党者喝彩</a><br></h3>党在贼船上惶，
+贼在黑帮中享。
+乱世看英雄，
+满世香。
 
-6月17日，中共又出动7架军机，包括4架即将淘汰的歼-7，彻底暴露了中共空军.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 8:39 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029798.md#1" target="_blank">【美股瞭望】商品行情崩挫 科技股重回主流</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029798.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id12993787-GettyImages-1231890819-700x420-150x120.jpg" align ="left"></a>去年疫后的大行情由科技股领衔，尤其宅经济效应发威，相关的科技股倍数飙涨。但自今年以后，原物料行情全面上扬和通胀题材发烧，引发投资人大量转投传统景气循环股的怀抱。6月以后，科技股跑赢传产股，道指下挫2%跑输纳斯达克的3%涨幅，揭示科技股又重夺主流，再度成为投资人的最爱。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月18日 8:29 AM			</td></tr>
+心被正义唤醒，
+身向光明起航。
+墙倒众人推，
+弃匪党。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月20日 12:11 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13032288.md#1" target="_blank">王友群：毛泽东的接班人王洪文之死</a><br></h3>中共独裁者毛泽东选的第一个接班人刘少奇，1969年11月12日，被毛整死。第二接班人林彪，遭到毛的连番痛击后，1971年9月13日，在蒙古温都尔汗坠机身亡。之后，毛提出，要选一个年纪小的、学问少的、立场坚定的人来接班。经再三考虑，1973年，毛选定了他的第三个接班人王洪文。
 王洪文被抓捕
 1976年9月9日，毛泽东.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月19日 10:57 PM			</td></tr>
