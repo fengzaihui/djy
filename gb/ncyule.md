@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank">金曲歌后蔡健雅秀刀工 小黄瓜切出8层金字塔</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/02/2002140508271487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031768.md#1" target="_blank">侯昌明夫妇做50个便当送医护 亲自下厨网赞爆</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031768.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/06/1706270702182384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034239-2106200255401487-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034164-2105251131211470-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13031095-2106180733551487-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030895.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030916-2106180508461487-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030751.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/201107020703100707-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028529-502928-320x200.jpg"></a>
-<a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030489-2106180126411487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13032439.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13032442-503228-320x200.jpeg"><br>《为父进行式》影评：独自养育子女 是项重大挑战</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13032824.md#1" target="_blank">SEVENTEEN盼于告示牌夺冠 新作18区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030445.md#1" target="_blank">Brave Girls爆红后首度推出新歌 登音源榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030380.md#1" target="_blank">Arin崔乂园迎生日 捐3,000万韩圜帮助儿童</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank">《桥牌社2》迟未定档 制作人：已与5平台接洽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031400.md#1" target="_blank">“顽童”大渊自嘲肥男 上节目担心踩坏道具</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank">《桥牌社2》迟未定档 制作人：已与5平台接洽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13033980.md#1" target="_blank">赵传庆60岁生日有感：真是以不变应万变的1年</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank">金曲歌后蔡健雅秀刀工 小黄瓜切出8层金字塔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13027747.md#1" target="_blank">获邀奥运表演 跆拳道团体震撼《美国达人秀》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fhecyx3896/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/fhecyx3896/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fhecyx3896/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/fhecyx3896/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
