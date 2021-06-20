@@ -5,18 +5,18 @@
 <tr><td><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank">金曲歌后蔡健雅秀刀工 小黄瓜切出8层金字塔</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/02/2002140508271487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031768.md#1" target="_blank">侯昌明夫妇做50个便当送医护 亲自下厨网赞爆</a><br></h3><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031768.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/06/1706270702182384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034164-2105251131211470-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13031095-2106180733551487-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030895.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030916-2106180508461487-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030751.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/201107020703100707-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028529-502928-320x200.jpg"></a>
 <a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030489-2106180126411487-320x200.jpg"></a>
-<a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13029372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12895178-DSC_2611-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13032439.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13032442-503228-320x200.jpeg"><br>《为父进行式》影评：独自养育子女 是项重大挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/1/n12989880.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id12989889-818677_5507869_6000x4000-320x200.jpg"><br>《东城奇案》影评：乡下小镇命案 背后有曲折故事</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13032824.md#1" target="_blank">SEVENTEEN盼于告示牌夺冠 新作18区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030445.md#1" target="_blank">Brave Girls爆红后首度推出新歌 登音源榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030380.md#1" target="_blank">Arin崔乂园迎生日 捐3,000万韩圜帮助儿童</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031400.md#1" target="_blank">“顽童”大渊自嘲肥男 上节目担心踩坏道具</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank">王彩桦王中平合作新戏 即兴演出常逗笑导演</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13033980.md#1" target="_blank">赵传庆60岁生日有感：真是以不变应万变的1年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank">金曲歌后蔡健雅秀刀工 小黄瓜切出8层金字塔</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031768.md#1" target="_blank">侯昌明夫妇做50个便当送医护 亲自下厨网赞爆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
