@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/19/n13032824.md#1" target="_blank">SEVENTEEN盼于告示牌夺冠 新作18区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030445.md#1" target="_blank">Brave Girls爆红后首度推出新歌 登音源榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13030380.md#1" target="_blank">Arin崔乂园迎生日 捐3,000万韩圜帮助儿童</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031400.md#1" target="_blank">“顽童”大渊自嘲肥男 上节目担心踩坏道具</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank">王彩桦王中平合作新戏 即兴演出常逗笑导演</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/17/n13027909.md#1" target="_blank">陈仙梅淡出8年回归 瘦身4公斤接演八点档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/20/n13033980.md#1" target="_blank">赵传庆60岁生日有感：真是以不变应万变的1年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fhecyx3896/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank">金曲歌后蔡健雅秀刀工 小黄瓜切出8层金字塔</a></h4></td></tr>
