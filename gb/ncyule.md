@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank">《桥牌社2》迟未定档 制作人：已与5平台接洽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/21/n13036651.md#1" target="_blank">新歌像武侠剧主题曲 吴申梅拍MV败给1滴泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/21/n13036560.md#1" target="_blank">副业受疫情冲击 丫头苦撑：赔钱也不愿裁员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/21/n13036521.md#1" target="_blank">林志玲怀念台南美食 献声艺文回馈家乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/21/n13036525.md#1" target="_blank">周兴哲首度跨足电影 剧组祝福他26岁生日</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank">梁静茹生日暖捐90万 以儿名义应援防疫物资</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank">糗挂总统3次电话 贾永婕：不怕委屈继续努力</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/koowhv3182/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank">捐赠医材遭批评 总统致电表谢意 贾永婕惊喜</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/koowhv3182/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/koowhv3182/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/koowhv3182/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/koowhv3182/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
