@@ -51,10 +51,10 @@
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/17/n13029756.md#1" target="_blank">李英爱50岁近照超冻龄 10岁龙凤胎相貌曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/17/n13027747.md#1" target="_blank">获邀奥运表演 跆拳道团体震撼《美国达人秀》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/14/n13020732.md#1" target="_blank">贾永婕募到342台救命医材 感谢各界热血救援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/15/n13024376.md#1" target="_blank">孙俪成功追星丁俊晖 晒照自嘲“笑得像傻子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank">捐赠医材遭批评 总统致电表谢意 贾永婕惊喜</a></h4></td></tr>
