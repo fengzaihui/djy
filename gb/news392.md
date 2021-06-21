@@ -36,7 +36,7 @@
 <tr><td width="742"><h3><a href="https://github.com/jkxvna377/djy/blob/master/gb/21/6/19/n13032119.md#1" target="_blank">沈舟：卡尔文森号航母全新舰队抵夏威夷</a><br></h3><a href="https://github.com/jkxvna377/djy/blob/master/gb/21/6/19/n13032119.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/06/id13032130-51252999437_b88e466a82_k-150x120.jpg" align ="left"></a>西方各国关注台海局势，中共却偏要摆出挑衅架势，6月15日忽然派出大批军机骚扰台海。美军应该早料到中共可能的反应，也进行了有针对性的部署。里根号航母（CVN76）6月14日就进入南海，展示在恶劣天气下继续舰载机起降训练；美利坚号两栖舰队与日本海上自卫队也在菲律宾海联合演练；美军侦察机也不断在中国沿海侦察。
 
 美军的另.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月19日 10:30 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/jkxvna377/djy/blob/master/gb/21/6/20/n13035206.md#1" target="_blank">林辉：背叛中共的三名高官带来的重创</a><br></h3>近日，习近平继在青海考察时提出“崇尚对党忠诚的大德”的要求，并要求中共党员莫要忘记入党时做的“对党忠诚、永不叛党的誓言”后，又于6月18日亲率中共政治局委员等几十名高官，前往历史展览馆，重温入党誓词。19日，中纪委监察网站头条发文：《永不叛党不仅仅是一句誓言》。
+<tr><td width="742"><h3><a href="https://github.com/jkxvna377/djy/blob/master/gb/21/6/20/n13035206.md#1" target="_blank">林辉：中共三名高官叛逃带来的重创</a><br></h3>近日，习近平继在青海考察时提出“崇尚对党忠诚的大德”的要求，并要求中共党员莫要忘记入党时做的“对党忠诚、永不叛党的誓言”后，又于6月18日亲率中共政治局委员等几十名高官，前往历史展览馆，重温入党誓词。19日，中纪委监察网站头条发文：《永不叛党不仅仅是一句誓言》。
 
 诡异的是，文章近三分之二的篇幅都在讲述1931年背.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月21日 3:34 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/jkxvna377/djy/blob/master/gb/21/6/20/n13034093.md#1" target="_blank">郑纯清：科学靠不住 免疫在漂红</a><br></h3>口罩本何用？谁都被搞懵。
