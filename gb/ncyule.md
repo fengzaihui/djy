@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13033980.md#1" target="_blank">赵传庆60岁生日有感：真是以不变应万变的1年</a><br></h3><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13033980.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13033995-2106192234331487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/19/n13032918.md#1" target="_blank">SJ队长利特分享体悟：放下欲望就能找到幸福</a><br></h3><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/19/n13032918.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13032998-210415093231100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036560.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036577-2005050407091487-320x200.jpg"></a>
+<a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036521.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/11/1908200439471487-320x200.jpg"></a>
 <a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036366-2010290456512122-320x200.jpg"></a>
+<a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036041.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036056-190129092240100707-320x200.jpg"></a>
 <a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13034434.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034548-2106200614131487-320x200.jpg"></a>
 <a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034239-2106200255401487-320x200.jpg"></a>
-<a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034164-2105251131211470-320x200.jpg"></a>
-<a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/18/n13031078.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13031095-2106180733551487-320x200.jpg"></a>
-<a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/18/n13030895.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13030916-2106180508461487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/19/n13032439.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13032442-503228-320x200.jpeg"><br>《为父进行式》影评：独自养育子女 是项重大挑战</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036069.md#1" target="_blank">THE BOYZ《Kingdom》后推新作 迷你六辑8月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036041.md#1" target="_blank">TWICE迷你十辑登Billboard 200榜第6名 新歌创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/19/n13032918.md#1" target="_blank">SJ队长利特分享体悟：放下欲望就能找到幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/19/n13032824.md#1" target="_blank">SEVENTEEN盼于告示牌夺冠 新作18区iTunes登顶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/18/n13030445.md#1" target="_blank">Brave Girls爆红后首度推出新歌 登音源榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank">梁静茹生日暖捐90万 以儿名义应援防疫物资</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank">《桥牌社2》迟未定档 制作人：已与5平台接洽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13034015.md#1" target="_blank">《多情城市》防疫不办杀青宴 改送剧组纪念礼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036560.md#1" target="_blank">副业受疫情冲击 丫头苦撑：赔钱也不愿裁员</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036521.md#1" target="_blank">林志玲怀念台南美食 献声艺文回馈家乡</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036525.md#1" target="_blank">周兴哲首度跨足电影 剧组祝福他26岁生日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank">梁静茹生日暖捐90万 以儿名义应援防疫物资</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13035474.md#1" target="_blank">林俊杰父亲节晒旧照 被发现招牌浏海是遗传</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13035251.md#1" target="_blank">相识冯德伦20年才结婚 舒淇曝逗趣原因秀恩爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/20/n13034434.md#1" target="_blank">贾永婕花百万再捐呼吸防护具 保护医护安全</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tstusp3875/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
