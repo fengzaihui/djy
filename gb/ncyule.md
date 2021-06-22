@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/22/n13038042.md#1" target="_blank">SEVENTEEN迷你八辑获佳绩 连四作卖破百万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13036594.md#1" target="_blank">SJ厉旭生日办音乐会艺声支持 手写信感动粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13036069.md#1" target="_blank">THE BOYZ《Kingdom》后推新作 迷你六辑8月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13036041.md#1" target="_blank">TWICE迷你十辑登Billboard 200榜第6名 新歌创佳绩</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/19/n13032918.md#1" target="_blank">SJ队长利特分享体悟：放下欲望就能找到幸福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13036753.md#1" target="_blank">叶家妤减10公斤拼复出 与潘柏希11年后再合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank">梁静茹生日暖捐90万 以儿名义应援防疫物资</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank">《桥牌社2》迟未定档 制作人：已与5平台接洽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/22/n13038326.md#1" target="_blank">骑脚踏车外出遭撞 房思瑜受惊吓：险在车轮下</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank">黄安贬损台湾竞争力排名 反遭大陆网民呛偏激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13037619.md#1" target="_blank">被传将参加大陆综艺节目 刘德华直接回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13037497.md#1" target="_blank">周星驰59岁生日 林允连续6年为老板送祝福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13036753.md#1" target="_blank">叶家妤减10公斤拼复出 与潘柏希11年后再合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/16/n13025055.md#1" target="_blank">日本女星快抽面纸1分钟157张 刷新世界纪录</a></h4></td></tr>
