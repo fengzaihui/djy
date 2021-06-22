@@ -5,8 +5,8 @@
 <tr><td><h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13037619.md#1" target="_blank">被传将参加大陆综艺节目 刘德华直接回应</a><br></h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13037619.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/08/1708100618112384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13037497.md#1" target="_blank">周星驰59岁生日 林允连续6年为老板送祝福</a><br></h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13037497.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/03/zhouxingchi-linyun-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13039671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039672-210618040806100707-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13039365.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039392-2105180437451487-320x200.jpg"></a>
-<a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039490-huang-an-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036560.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036577-2005050407091487-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036521.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/11/1908200439471487-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036041.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036056-190129092240100707-320x200.jpg"></a>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/16/n13024667.md#1" target="_blank">范冰冰为21岁弟弟庆生 称范丞丞为小孩儿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13039671.md#1" target="_blank">Brave Girls回归夺冠感谢粉丝 向勇敢兄弟贺生日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13038862.md#1" target="_blank">Super Junior圭贤夏季新歌《Together》 7月5日推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13039011.md#1" target="_blank">DinDin守约支持洪基与灿多 同音乐剧连看两场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13038042.md#1" target="_blank">SEVENTEEN迷你八辑获佳绩 连四作卖破百万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036753.md#1" target="_blank">叶家妤减10公斤拼复出 与潘柏希11年后再合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank">梁静茹生日暖捐90万 以儿名义应援防疫物资</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank">《桥牌社2》迟未定档 制作人：已与5平台接洽</a></h4></td></tr>
