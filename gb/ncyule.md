@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036594.md#1" target="_blank">SJ厉旭生日办音乐会艺声支持 手写信感动粉丝</a><br></h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036594.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13037228-200929205858100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank">梁静茹生日暖捐90万 以儿名义应援防疫物资</a><br></h3><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036366-2010290456512122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13039365.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039392-2105180437451487-320x200.jpg"></a>
+<a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039490-huang-an-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036560.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036577-2005050407091487-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036521.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/11/1908200439471487-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036041.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036056-190129092240100707-320x200.jpg"></a>
 <a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/20/n13034434.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034548-2106200614131487-320x200.jpg"></a>
-<a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034239-2106200255401487-320x200.jpg"></a>
-<a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13034164-2105251131211470-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/19/n13032439.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13032442-503228-320x200.jpeg"><br>《为父进行式》影评：独自养育子女 是项重大挑战</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/21/n13036315.md#1" target="_blank">梁静茹生日暖捐90万 以儿名义应援防疫物资</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/20/n13034217.md#1" target="_blank">《桥牌社2》迟未定档 制作人：已与5平台接洽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/20/n13034148.md#1" target="_blank">陈珮骐长年关怀流浪动物 痛失爱犬情绪低落</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13039365.md#1" target="_blank">周兴哲复合赵岱新首度放闪 26岁生日甜晒合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13039225.md#1" target="_blank">鼓鼓与邱胜翊为饥饿30代言 参与南苏丹线上关怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13038775.md#1" target="_blank">安以轩跨海捐赠PAPR  夏于乔等友人响应送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13038916.md#1" target="_blank">“陈门家宴”冠军殊荣 Ella为丈夫煮宵夜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13038326.md#1" target="_blank">骑脚踏车外出遭撞 房思瑜受惊吓：险在车轮下</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/opxehf3434/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
