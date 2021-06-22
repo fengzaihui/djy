@@ -40,8 +40,16 @@
 被俘二一八三九，一口咬定全遣走。
 可有一四三二五，坚决拒绝回大陆。
 联军惊喜中共惧，刺字明志.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月20日 1:26 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/22/n13038692.md#1" target="_blank">中共罪行录之三十：访民刘耀明之死</a><br></h3>2010年12月10日世界人权日到来之前的那个夜晚，北京国家信访局对面的地下通道里，74岁的贵州访民刘耀明在上访40年之后悄然离开人世。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月22日 3:11 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13036513.md#1" target="_blank">中共罪行录之二十九：没头的尸体一大片</a><br></h3>据作家铁流回忆，土改时，工作组组长就有权力批准逮人或杀人。后来逐步收上去，杀人权力控制在县上，但工作组仍可抓捕人。他们只需动过嘴，武装（民兵）就去执行，根本无审讯起诉一说，全是根据事先搞好的材料，布告也是手写，一批一批押出去毙了就是。把他们从监狱拉出来，对上名字、照片，也不脱衣服，也不赏酒饭，立刻五花大绑，插上标子，甩.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月21日 4:05 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/21/n13035884.md#1" target="_blank">田云：小官贪2亿 内蒙“倒查20年”透何信息</a><br></h3>6月18日，鄂尔多斯市煤炭局前党委书记、局长郭成信“受贿、巨额财产来源不明案”开庭审理。郭成信被指控受贿九千余万元人民币，并有1.1亿多元不能说明来源。一个处级官员贪腐金额高达2亿！那么其他更高级别的官员贪污了多少？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月21日 2:26 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/crzlhp3279/djy/blob/master/gb/21/6/20/n13034093.md#1" target="_blank">郑纯清：科学靠不住 免疫在漂红</a><br></h3>口罩本何用？谁都被搞懵。
+咋就非要戴，急即变万能？
+交距有何据？没人给提供。
+凭何竟成为，硬性之规定？
+疫苗能救命？未闻有谁吭。
+如此急着打，不怕副作用？
+打完疫苗后，心怎还扑腾？
+封城啥实效？不见谁验证。
+得失各何在？有谁来说清？......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年06月20日 12:39 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/crzlhp3279/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/crzlhp3279/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/crzlhp3279/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/crzlhp3279/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
