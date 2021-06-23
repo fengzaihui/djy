@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a><br></h3><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039390-180827091050100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13038775.md#1" target="_blank">安以轩跨海捐赠PAPR  夏于乔等友人响应送暖</a><br></h3><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13038775.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13038802-2106220341261487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041571-2106230515541487-320x200.jpg"></a>
 <a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041118.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041143-2106230232501487-320x200.jpg"></a>
 <a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13039671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039672-210618040806100707-320x200.jpg"></a>
 <a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13039365.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039392-2105180437451487-320x200.jpg"></a>
 <a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/21/n13036560.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036577-2005050407091487-320x200.jpg"></a>
 <a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/21/n13036521.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/11/1908200439471487-320x200.jpg"></a>
-<a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/21/n13036041.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036056-190129092240100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/19/n13032439.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13032442-503228-320x200.jpeg"><br>《为父进行式》影评：独自养育子女 是项重大挑战</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041353.md#1" target="_blank">杨丽音戏里演控制狂妈妈 戏外为亲生儿征友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/21/n13036753.md#1" target="_blank">叶家妤减10公斤拼复出 与潘柏希11年后再合作</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank">蔡健雅社群晒照与青峰互动 疑预告音乐新动向</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041425.md#1" target="_blank">宅家防疫追台剧 十部网路声量片单公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041353.md#1" target="_blank">杨丽音戏里演控制狂妈妈 戏外为亲生儿征友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041118.md#1" target="_blank">陈零九康复后首露面 谈有后遗症“恐慌”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13040258.md#1" target="_blank">周星驰生日怎么过？田启文透露好友新动向</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/16/n13025208.md#1" target="_blank">BTS日文作首日出货逾百万张 《Butter》再创佳绩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank">蔡健雅社群晒照与青峰互动 疑预告音乐新动向</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/20/n13035474.md#1" target="_blank">林俊杰父亲节晒旧照 被发现招牌浏海是遗传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank">金曲歌后蔡健雅秀刀工 小黄瓜切出8层金字塔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/18/n13030477.md#1" target="_blank">动力火车“北流”延期开唱 宣布加开高雄场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/17/n13028353.md#1" target="_blank">陈威全开线上体验班 向年轻人分享音乐创作</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wtyoso3338/djy/blob/master/gb/21/6/17/n13029756.md#1" target="_blank">李英爱50岁近照超冻龄 10岁龙凤胎相貌曝光</a></h4></td></tr>
