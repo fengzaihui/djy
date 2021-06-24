@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/20/n13035598.md#1" target="_blank">田亮晒照庆父亲节 幽默感谢儿女继承他的美貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044019.md#1" target="_blank">VIXX爀亲人遇酒驾事故离世 吁“绝对不要酒驾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043833.md#1" target="_blank">李圣经与Loco被误传热恋 真相是7月推出合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043848.md#1" target="_blank">TWICE登告示牌Artist 100榜第9名 自身最佳纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043282.md#1" target="_blank">太妍天天更新IG动态 自曝背后原因超暖心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042428.md#1" target="_blank">贾永婕曝子瑜捐PAPR助台湾抗疫：她的生日愿望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043954.md#1" target="_blank">《变形金刚：万兽崛起》柯博文、大黄蜂回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042145.md#1" target="_blank">《白雪公主》真人电影主演确定 引热议</a></h4></td></tr>
