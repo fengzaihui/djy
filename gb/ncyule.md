@@ -5,18 +5,18 @@
 <tr><td><h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a><br></h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13042107-2106230850411487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank">“黑寡妇”史嘉蕾乔韩森获颁美国电影贡献奖</a><br></h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/08/GettyImages-1138970645-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043707-2106240033361487-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/DSC_0290_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042428.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13042434-2101282306381487-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041756-201109093359100707-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041571-2106230515541487-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13040652.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13040656-210525054746100707-320x200.jpg"></a>
-<a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13039671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039672-210618040806100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/19/n13032439.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13032442-503228-320x200.jpeg"><br>《为父进行式》影评：独自养育子女 是项重大挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/12/n13016875.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13016878-502294-320x200.jpg"><br>《许愿神龙》影评：趣味神龙 助青梅竹马再续前缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/5/n13001209.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001212-501257-320x200.jpeg"><br>《Sweet Tooth：鹿角男孩》影评：儿童外貌改变 也带来全新冲突</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/5/n13000721.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13001523-20201019-CATCHPLAY-01-320x200.jpg"><br>《无声》影评：听障学校隐藏的群体霸凌</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042145.md#1" target="_blank">《白雪公主》真人电影主演确定 引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank">“黑寡妇”史嘉蕾乔韩森获颁美国电影贡献奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041353.md#1" target="_blank">杨丽音戏里演控制狂妈妈 戏外为亲生儿征友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043593.md#1" target="_blank">吴映洁粉专被“菜单”洗版 救援店家暖举获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042428.md#1" target="_blank">贾永婕曝子瑜捐PAPR助台湾抗疫：她的生日愿望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank">蔡健雅社群晒照与青峰互动 疑预告音乐新动向</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041425.md#1" target="_blank">宅家防疫追台剧 十部网路声量片单公开</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041353.md#1" target="_blank">杨丽音戏里演控制狂妈妈 戏外为亲生儿征友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
