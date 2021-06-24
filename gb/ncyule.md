@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a><br></h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13042107-2106230850411487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank">“黑寡妇”史嘉蕾乔韩森获颁美国电影贡献奖</a><br></h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/08/GettyImages-1138970645-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043869-190115102731100707-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043707-2106240033361487-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/DSC_0290_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042428.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13042434-2101282306381487-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041756-201109093359100707-320x200.jpg"></a>
 <a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041571-2106230515541487-320x200.jpg"></a>
-<a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13040652.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13040656-210525054746100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/20/n13035598.md#1" target="_blank">田亮晒照庆父亲节 幽默感谢儿女继承他的美貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043833.md#1" target="_blank">李圣经与Loco被误传热恋 真相是7月推出合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043848.md#1" target="_blank">TWICE登告示牌Artist 100榜第9名 自身最佳纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043282.md#1" target="_blank">太妍天天更新IG动态 自曝背后原因超暖心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042428.md#1" target="_blank">贾永婕曝子瑜捐PAPR助台湾抗疫：她的生日愿望</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041755.md#1" target="_blank">金桐俊宣布7月12日入伍：打算先吃胖再当兵</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043954.md#1" target="_blank">《变形金刚：万兽崛起》柯博文、大黄蜂回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042145.md#1" target="_blank">《白雪公主》真人电影主演确定 引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank">“黑寡妇”史嘉蕾乔韩森获颁美国电影贡献奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041353.md#1" target="_blank">杨丽音戏里演控制狂妈妈 戏外为亲生儿征友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13044013.md#1" target="_blank">陈零九赠医疗物资回馈前线 感谢染疫期间照顾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/24/n13043593.md#1" target="_blank">吴映洁粉专被“菜单”洗版 救援店家暖举获赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042428.md#1" target="_blank">贾永婕曝子瑜捐PAPR助台湾抗疫：她的生日愿望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank">蔡健雅社群晒照与青峰互动 疑预告音乐新动向</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13041425.md#1" target="_blank">宅家防疫追台剧 十部网路声量片单公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/22/n13038775.md#1" target="_blank">安以轩跨海捐赠PAPR  夏于乔等友人响应送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank">糗挂总统3次电话 贾永婕：不怕委屈继续努力</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank">捐赠医材遭批评 总统致电表谢意 贾永婕惊喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/20/n13035251.md#1" target="_blank">相识冯德伦20年才结婚 舒淇曝逗趣原因秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/21/n13037497.md#1" target="_blank">周星驰59岁生日 林允连续6年为老板送祝福</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phvhkd3594/djy/blob/master/gb/21/6/20/n13035598.md#1" target="_blank">田亮晒照庆父亲节 幽默感谢儿女继承他的美貌</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/phvhkd3594/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/phvhkd3594/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/phvhkd3594/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/phvhkd3594/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
