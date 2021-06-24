@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a><br></h3><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13042107-2106230850411487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank">“黑寡妇”史嘉蕾乔韩森获颁美国电影贡献奖</a><br></h3><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/08/GettyImages-1138970645-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13045062-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13044400-2106240611231487-320x200.jpg"></a>
 <a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044013.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13044029-2106230232501487-320x200.jpg"></a>
 <a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043833.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043836-210624014353100707-320x200.jpg"></a>
 <a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043869-190115102731100707-320x200.jpg"></a>
 <a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043707-2106240033361487-320x200.jpg"></a>
-<a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/DSC_0290_meitu_1-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/20/n13035598.md#1" target="_blank">田亮晒照庆父亲节 幽默感谢儿女继承他的美貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044019.md#1" target="_blank">VIXX爀亲人遇酒驾事故离世 吁“绝对不要酒驾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043833.md#1" target="_blank">李圣经与Loco被误传热恋 真相是7月推出合作曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043848.md#1" target="_blank">TWICE登告示牌Artist 100榜第9名 自身最佳纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043282.md#1" target="_blank">太妍天天更新IG动态 自曝背后原因超暖心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043954.md#1" target="_blank">《变形金刚：万兽崛起》柯博文、大黄蜂回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042145.md#1" target="_blank">《白雪公主》真人电影主演确定 引热议</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044110.md#1" target="_blank">浩子宅家防疫 学会“影片上传云端”吓到同事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044013.md#1" target="_blank">陈零九赠医疗物资回馈前线 感谢染疫期间照顾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13043593.md#1" target="_blank">吴映洁粉专被“菜单”洗版 救援店家暖举获赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/17/n13027591.md#1" target="_blank">《BTS, THE BEST》登公信榜冠军 销量刷新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank">鱼丁糸视讯分享新作与生活 青峰提宅家新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13042742.md#1" target="_blank">洁西卡胃酸倒流声带长茧 被医生劝诫放弃唱歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kjkhhx387/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank">蔡健雅社群晒照与青峰互动 疑预告音乐新动向</a></h4></td></tr>
