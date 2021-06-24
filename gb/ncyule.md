@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a><br></h3><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13042107-2106230850411487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank">“黑寡妇”史嘉蕾乔韩森获颁美国电影贡献奖</a><br></h3><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13041046.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/08/GettyImages-1138970645-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/12/DSC_0290_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13041755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041756-201109093359100707-320x200.jpg"></a>
 <a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13041571-2106230515541487-320x200.jpg"></a>
 <a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13040652.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13040656-210525054746100707-320x200.jpg"></a>
 <a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/22/n13039671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039672-210618040806100707-320x200.jpg"></a>
 <a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/22/n13039365.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13039392-2105180437451487-320x200.jpg"></a>
-<a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/21/n13036560.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13036577-2005050407091487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/19/n13032439.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13032442-503228-320x200.jpeg"><br>《为父进行式》影评：独自养育子女 是项重大挑战</a></h4></td></tr>
@@ -23,10 +23,10 @@
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/20/n13035598.md#1" target="_blank">田亮晒照庆父亲节 幽默感谢儿女继承他的美貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13042428.md#1" target="_blank">贾永婕曝子瑜捐PAPR助台湾抗疫：她的生日愿望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13041755.md#1" target="_blank">金桐俊宣布7月12日入伍：打算先吃胖再当兵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/23/n13041296.md#1" target="_blank">泰国工作人员染疫 (G)I-DLE成员Minnie自主隔离</a></h4></td></tr>
@@ -48,15 +48,15 @@
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/20/n13035474.md#1" target="_blank">林俊杰父亲节晒旧照 被发现招牌浏海是遗传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/18/n13032046.md#1" target="_blank">金曲歌后蔡健雅秀刀工 小黄瓜切出8层金字塔</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/16/n13026880.md#1" target="_blank">迪丽热巴被一眼认定演女主角 理由令人讶异</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank">黄安贬损台湾竞争力排名 反遭大陆网民呛偏激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/17/n13029756.md#1" target="_blank">李英爱50岁近照超冻龄 10岁龙凤胎相貌曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/17/n13027747.md#1" target="_blank">获邀奥运表演 跆拳道团体震撼《美国达人秀》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/21/n13037619.md#1" target="_blank">被传将参加大陆综艺节目 刘德华直接回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/18/n13031909.md#1" target="_blank">周冬雨首部古装剧翻车 大女主演成小丫鬟？</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/16/n13027003.md#1" target="_blank">吴尊爸爸75岁生日 冻龄外表与儿子像兄弟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/17/n13027271.md#1" target="_blank">杜汶泽发文斥假新闻 自曝与刘德华闹掰原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/22/n13038775.md#1" target="_blank">安以轩跨海捐赠PAPR  夏于乔等友人响应送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/18/n13030745.md#1" target="_blank">糗挂总统3次电话 贾永婕：不怕委屈继续努力</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rjhtvd372/djy/blob/master/gb/21/6/17/n13027998.md#1" target="_blank">捐赠医材遭批评 总统致电表谢意 贾永婕惊喜</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rjhtvd372/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/rjhtvd372/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rjhtvd372/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/rjhtvd372/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
