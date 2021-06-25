@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13043282.md#1" target="_blank">太妍天天更新IG动态 自曝背后原因超暖心</a><br></h3><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13043282.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/12/180619011933100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/23/n13042742.md#1" target="_blank">洁西卡胃酸倒流声带长茧 被医生劝诫放弃唱歌</a><br></h3><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/23/n13042742.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-687440628-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13047057.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13047087-2105040546152122-320x200.jpg"></a>
+<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046857.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13047022-210303031204100707-320x200.jpg"></a>
 <a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046498.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13046516-191009042141100707-320x200.jpg"></a>
 <a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046694.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13046744-2103040332222122-320x200.jpg"></a>
 <a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13046595-2106250129141487-320x200.jpg"></a>
 <a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046198.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13046225-181005075832100707-320x200.jpg"></a>
-<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13045062-181211004125100707-320x200.jpg"></a>
-<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13044400-2106240611231487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -27,22 +27,22 @@
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/20/n13035598.md#1" target="_blank">田亮晒照庆父亲节 幽默感谢儿女继承他的美貌</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046857.md#1" target="_blank">TWICE日韩英文作接连推出 首支英文单曲9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046498.md#1" target="_blank">SEVENTEEN迷你八辑 创2021年最高首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046198.md#1" target="_blank">EXO成员D.O.都敬秀 7月底发行首张Solo专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13044019.md#1" target="_blank">VIXX爀亲人遇酒驾事故离世 吁“绝对不要酒驾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13045902.md#1" target="_blank">杨幂为刘诗诗整理领口 两人获赞互动有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13045725.md#1" target="_blank">剧组15人染Delta病毒 真人版《小美人鱼》停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13043954.md#1" target="_blank">《变形金刚：万兽崛起》柯博文、大黄蜂回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13047057.md#1" target="_blank">彭佳慧自宅重摔未就医 谈伤势“先吃药观察”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046694.md#1" target="_blank">为防疫前线献唱新歌 卢广仲也捐物资挺医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank">黄明志为东京奥运写日式英文歌 点击“破亿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank">鱼丁糸视讯分享新作与生活 青峰提宅家新纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046694.md#1" target="_blank">为防疫前线献唱新歌 卢广仲也捐物资挺医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank">黄明志为东京奥运写日式英文歌 点击“破亿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank">鱼丁糸视讯分享新作与生活 青峰提宅家新纪录</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/20/n13035251.md#1" target="_blank">相识冯德伦20年才结婚 舒淇曝逗趣原因秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/20/n13035598.md#1" target="_blank">田亮晒照庆父亲节 幽默感谢儿女继承他的美貌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/20/n13034434.md#1" target="_blank">贾永婕花百万再捐呼吸防护具 保护医护安全</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/21/n13036041.md#1" target="_blank">TWICE迷你十辑登Billboard 200榜第6名 新歌创佳绩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bgpzwe3866/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/bgpzwe3866/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
