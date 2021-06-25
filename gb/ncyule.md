@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13043282.md#1" target="_blank">太妍天天更新IG动态 自曝背后原因超暖心</a><br></h3><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13043282.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/12/180619011933100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/23/n13042742.md#1" target="_blank">洁西卡胃酸倒流声带长茧 被医生劝诫放弃唱歌</a><br></h3><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/23/n13042742.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-687440628-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13046595-2106250129141487-320x200.jpg"></a>
 <a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13045062-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13044400-2106240611231487-320x200.jpg"></a>
 <a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044013.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13044029-2106230232501487-320x200.jpg"></a>
 <a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13043833.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043836-210624014353100707-320x200.jpg"></a>
 <a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13043848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043869-190115102731100707-320x200.jpg"></a>
-<a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13043593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13043707-2106240033361487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13045725.md#1" target="_blank">剧组15人染Delta病毒 真人版《小美人鱼》停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13043954.md#1" target="_blank">《变形金刚：万兽崛起》柯博文、大黄蜂回归</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank">黄明志为东京奥运写日式英文歌 点击“破亿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank">鱼丁糸视讯分享新作与生活 青峰提宅家新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044110.md#1" target="_blank">浩子宅家防疫 学会“影片上传云端”吓到同事</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044013.md#1" target="_blank">陈零九赠医疗物资回馈前线 感谢染疫期间照顾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/22/n13038492.md#1" target="_blank">BTS《Butter》连四周Hot 100榜夺冠 日文作创纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank">黄明志为东京奥运写日式英文歌 点击“破亿”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank">鱼丁糸视讯分享新作与生活 青峰提宅家新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/23/n13042742.md#1" target="_blank">洁西卡胃酸倒流声带长茧 被医生劝诫放弃唱歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/23/n13041562.md#1" target="_blank">蔡健雅社群晒照与青峰互动 疑预告音乐新动向</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/20/n13035474.md#1" target="_blank">林俊杰父亲节晒旧照 被发现招牌浏海是遗传</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank">黄安贬损台湾竞争力排名 反遭大陆网民呛偏激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blfrgf330/djy/blob/master/gb/21/6/21/n13037619.md#1" target="_blank">被传将参加大陆综艺节目 刘德华直接回应</a></h4></td></tr>
