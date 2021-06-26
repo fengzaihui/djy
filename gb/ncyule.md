@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank">黄安贬损台湾竞争力排名 反遭大陆网民呛偏激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/21/n13037619.md#1" target="_blank">被传将参加大陆综艺节目 刘德华直接回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/20/n13035251.md#1" target="_blank">相识冯德伦20年才结婚 舒淇曝逗趣原因秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/22/n13038775.md#1" target="_blank">安以轩跨海捐赠PAPR  夏于乔等友人响应送暖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/21/n13037497.md#1" target="_blank">周星驰59岁生日 林允连续6年为老板送祝福</a></h4></td></tr>
