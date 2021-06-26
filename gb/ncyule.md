@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/24/n13045902.md#1" target="_blank">杨幂为刘诗诗整理领口 两人获赞互动有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/26/n13049429.md#1" target="_blank">李洪基分享合照 不忘“代言”D.O.都敬秀近况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/26/n13049167.md#1" target="_blank">Brave Girls后续曲《Pool Party》MV 7月1日公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/25/n13046857.md#1" target="_blank">TWICE日韩英文作接连推出 首支英文单曲9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/25/n13046498.md#1" target="_blank">SEVENTEEN迷你八辑 创2021年最高首周销量纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/25/n13046198.md#1" target="_blank">EXO成员D.O.都敬秀 7月底发行首张Solo专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/25/n13048432.md#1" target="_blank">邓超不被女儿接受讲故事 缘于孙俪一搞笑爆料</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kggovc316/djy/blob/master/gb/21/6/24/n13045902.md#1" target="_blank">杨幂为刘诗诗整理领口 两人获赞互动有趣</a></h4></td></tr>
