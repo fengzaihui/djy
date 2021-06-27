@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/25/n13048432.md#1" target="_blank">邓超不被女儿接受讲故事 缘于孙俪一搞笑爆料</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/24/n13045902.md#1" target="_blank">杨幂为刘诗诗整理领口 两人获赞互动有趣</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/27/n13050535.md#1" target="_blank">来台1年见不到家人  艾薇珍惜爱犬相伴时光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/27/n13050195.md#1" target="_blank">鱼丁糸携新作回归 幽默喊话“救救老残穷”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/27/n13050067.md#1" target="_blank">台综因疫情停录 群星趁空忙做公益练歌喉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/25/n13048070.md#1" target="_blank">蔡少芬一手抱娃一手做饭 站姿霸气也逗趣</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/25/n13047488.md#1" target="_blank">光良捐医疗器材赠爱心餐 送暖医护也挺同乡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/22/n13039122.md#1" target="_blank">柏木由纪坚持偶像美学 罹罕病仍想展现活力</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/27/n13050535.md#1" target="_blank">来台1年见不到家人  艾薇珍惜爱犬相伴时光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/27/n13050195.md#1" target="_blank">鱼丁糸携新作回归 幽默喊话“救救老残穷”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/25/n13046694.md#1" target="_blank">为防疫前线献唱新歌 卢广仲也捐物资挺医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank">黄明志为东京奥运写日式英文歌 点击“破亿”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/24/n13044361.md#1" target="_blank">鱼丁糸视讯分享新作与生活 青峰提宅家新纪录</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank">黄安贬损台湾竞争力排名 反遭大陆网民呛偏激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vwfnsa367/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
