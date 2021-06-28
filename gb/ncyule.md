@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050438.md#1" target="_blank">金圣圭17天前才打完疫苗 无症状确诊染疫</a><br></h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050438.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050439-1710030531091487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050067.md#1" target="_blank">台综因疫情停录 群星趁空忙做公益练歌喉</a><br></h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050067.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050075-2002130342401487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052352.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13053507-200506052252100707-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13053094.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13053102-1803142241451487-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052486.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13052513-2003100504481487-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13052706-180827091100100707-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052584.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/06/2006100708062384-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050645.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050658-1409240943142384-320x200.jpg"></a>
-<a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050195.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050209-2106262324041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/24/n13045902.md#1" target="_blank">杨幂为刘诗诗整理领口 两人获赞互动有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/23/n13042921.md#1" target="_blank">被节目测体重仅45公斤 杨颖惊人饭量引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052352.md#1" target="_blank">2PM守约五年后重回舞台 俊昊笑说祐荣超越JYP</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13051912.md#1" target="_blank">子瑜唱《ME!》登推特趋势榜冠军 方灿赞其成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050438.md#1" target="_blank">金圣圭17天前才打完疫苗 无症状确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/26/n13049429.md#1" target="_blank">李洪基分享合照 不忘“代言”D.O.都敬秀近况</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/26/n13049167.md#1" target="_blank">Brave Girls后续曲《Pool Party》MV 7月1日公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052828.md#1" target="_blank">孙协志王仁甫新节目 首创“网视并进”制作模式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052148.md#1" target="_blank">陈仙梅为戏登台演唱 好歌喉让观众以为是代唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13051287.md#1" target="_blank">《不可能的任务7》复工又停拍 传阿汤哥染疫</a></h4></td></tr>
