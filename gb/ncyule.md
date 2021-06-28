@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050438.md#1" target="_blank">金圣圭17天前才打完疫苗 无症状确诊染疫</a><br></h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050438.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050439-1710030531091487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050067.md#1" target="_blank">台综因疫情停录 群星趁空忙做公益练歌喉</a><br></h3><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050067.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050075-2002130342401487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13053094.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13053102-1803142241451487-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052486.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13052513-2003100504481487-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13052706-180827091100100707-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052584.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/06/2006100708062384-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050645.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050658-1409240943142384-320x200.jpg"></a>
 <a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050195.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13050209-2106262324041487-320x200.jpg"></a>
-<a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/25/n13046857.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13047022-210303031204100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052148.md#1" target="_blank">陈仙梅为戏登台演唱 好歌喉让观众以为是代唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13051287.md#1" target="_blank">《不可能的任务7》复工又停拍 传阿汤哥染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050067.md#1" target="_blank">台综因疫情停录 群星趁空忙做公益练歌喉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13053094.md#1" target="_blank">“那对夫妻”报喜怀二胎 流产2年“终于回来”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052828.md#1" target="_blank">孙协志王仁甫新节目 首创“网视并进”制作模式</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052486.md#1" target="_blank">Delta侵屏东害芒果滞销 张龄予挺果农带头吃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052486.md#1" target="_blank">Delta侵袭屏东害芒果滞销 张龄予挺果农带头吃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052618.md#1" target="_blank">《徘徊年代》演员秀4语种 喊话台湾社会团结防疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052584.md#1" target="_blank">王子告别3年恋情 祝福邓丽欣：新旅程一切安好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/28/n13053094.md#1" target="_blank">“那对夫妻”报喜怀二胎 流产2年“终于回来”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050535.md#1" target="_blank">来台1年见不到家人  艾薇珍惜爱犬相伴时光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/27/n13050195.md#1" target="_blank">鱼丁糸携新作回归 幽默喊话“救救老残穷”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/25/n13046694.md#1" target="_blank">为防疫前线献唱新歌 卢广仲也捐物资挺医护</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/25/n13046566.md#1" target="_blank">黄明志为东京奥运写日式英文歌 点击“破亿”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/21/n13037820.md#1" target="_blank">黄安贬损台湾竞争力排名 反遭大陆网民呛偏激</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yqjdaq390/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
