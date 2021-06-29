@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/29/n13055164.md#1" target="_blank">“日子时好时坏” 卓文萱谈感触：这就是人生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/28/n13054241.md#1" target="_blank">隋棠曾暖心帮一件事 曾之乔如今激动洒泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/28/n13052828.md#1" target="_blank">孙协志王仁甫新节目 首创“网视并进”制作模式</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/29/n13055387.md#1" target="_blank">黄伟晋推抒情单曲 吴映洁友情助阵共演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/29/n13055192.md#1" target="_blank">“赚来干嘛 ” 柯宇纶膝盖超硬拒陆800万片酬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/29/n13055164.md#1" target="_blank">“日子时好时坏” 卓文萱谈感触：这就是人生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/28/n13054241.md#1" target="_blank">隋棠曾暖心帮一件事 曾之乔如今激动洒泪</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/29/n13054694.md#1" target="_blank">窦智孔分享小孩理发妙招 开创副业推潮流品牌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/24/n13044674.md#1" target="_blank">宫胁咲良谈奈子泪洒演唱会：想多陪她一会儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/23/n13042066.md#1" target="_blank">AKIRA演唱会精选登台湾 疫情下度结婚两周年</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/29/n13055387.md#1" target="_blank">黄伟晋推抒情单曲 吴映洁友情助阵共演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/28/n13053094.md#1" target="_blank">“那对夫妻”喜怀二胎 流产2年后“终于回来”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/27/n13050535.md#1" target="_blank">来台1年见不到家人  艾薇珍惜爱犬相伴时光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/27/n13050195.md#1" target="_blank">鱼丁糸携新作回归 幽默喊话“救救老残穷”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/25/n13046694.md#1" target="_blank">为防疫前线献唱新歌 卢广仲也捐物资挺医护</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mjhpml342/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
