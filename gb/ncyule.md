@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/25/n13048432.md#1" target="_blank">邓超不被女儿接受讲故事 缘于孙俪一搞笑爆料</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/24/n13045902.md#1" target="_blank">杨幂为刘诗诗整理领口 两人获赞互动有趣</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/29/n13054969.md#1" target="_blank">太妍7月6日以新单曲《Weekend》回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/29/n13054697.md#1" target="_blank">SEVENTEEN如愿登上Billboard 200榜 今解除隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/29/n13054534.md#1" target="_blank">BTS《Butter》登Hot 100榜冠军五周 MV浏览破4亿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/28/n13052352.md#1" target="_blank">2PM守约五年后重回舞台 俊昊笑说祐荣超越JYP</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/28/n13051912.md#1" target="_blank">子瑜唱《ME!》登推特趋势榜冠军 方灿赞其成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/29/n13055256.md#1" target="_blank">疫情以来最卖座 《玩命9》北美首周票房19.5亿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/29/n13055164.md#1" target="_blank">“日子时好时坏” 卓文萱谈感触：这就是人生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hupjdu3701/djy/blob/master/gb/21/6/28/n13054241.md#1" target="_blank">隋棠曾暖心帮一件事 曾之乔如今激动洒泪</a></h4></td></tr>
