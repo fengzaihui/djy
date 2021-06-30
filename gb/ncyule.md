@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a><br></h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-454781354-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a><br></h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-598116592-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058339-210630090359100707-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13058233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058260-1910310729482384-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057056.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13057174-210629230555100707-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13056093-1612032351351487-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055628.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13055658-2106290723561487-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055164.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13055177-2106290258211487-320x200.jpg"></a>
-<a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13054241.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13054362-suitang-zeng-zhiqiao-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13054065.md#1" target="_blank">张雨绮为何改名？只因电视广告里常有一个字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank">金世正翻唱《Alcohol-Free》 展现与志效好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057318.md#1" target="_blank">BTS忍睡意开直播谢粉丝 谈7月新歌值得期待</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057056.md#1" target="_blank">ARON开直播宣布健康好转 重启NU’EST活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055617.md#1" target="_blank">李洪基获金秀贤与希澈联名应援 河铉雨也支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057734.md#1" target="_blank">“神力女超人”诞下第3胎 甜蜜拥爱女报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13054442.md#1" target="_blank">第81届皮博迪奖得主揭晓 最高荣誉落谁家？</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055192.md#1" target="_blank">“赚来干嘛 ” 柯宇纶膝盖超硬拒陆800万片酬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/27/n13051398.md#1" target="_blank">梁朝伟庆59岁生日 刘嘉玲晒照秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13051912.md#1" target="_blank">子瑜唱《ME!》登推特趋势榜冠军 方灿赞其成长</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/25/n13046498.md#1" target="_blank">SEVENTEEN迷你八辑 创2021年最高首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13053920.md#1" target="_blank">传张学友出售豪宅 叫价4.3亿港币</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/25/n13046498.md#1" target="_blank">SEVENTEEN迷你八辑 创2021年最高首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13054065.md#1" target="_blank">张雨绮为何改名？只因电视广告里常有一个字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/25/n13048432.md#1" target="_blank">邓超不被女儿接受讲故事 缘于孙俪一搞笑爆料</a></h4></td></tr>
