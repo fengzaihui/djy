@@ -27,7 +27,7 @@
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13054065.md#1" target="_blank">张雨绮为何改名？只因电视广告里常有一个字</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank">金世正翻唱《Alcohol-Free》 展现与志效好交情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank">金世正翻唱《Alcohol-Free》 展现与志效的友情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057318.md#1" target="_blank">BTS忍睡意开直播谢粉丝 谈7月新歌值得期待</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057056.md#1" target="_blank">ARON开直播宣布健康好转 重启NU’EST活动</a></h4></td></tr>
