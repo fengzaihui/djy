@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a><br></h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-454781354-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a><br></h3><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-598116592-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13058233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058260-1910310729482384-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057056.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13057174-210629230555100707-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13056093-1612032351351487-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055628.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13055658-2106290723561487-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055164.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13055177-2106290258211487-320x200.jpg"></a>
 <a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13054241.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13054362-suitang-zeng-zhiqiao-320x200.jpg"></a>
-<a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13054694.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13054792-2106282343171487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057734.md#1" target="_blank">“神力女超人”诞下第3胎 甜蜜拥爱女报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13054442.md#1" target="_blank">第81届皮博迪奖得主揭晓 最高荣誉落谁家？</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/29/n13055256.md#1" target="_blank">疫情以来最卖座 《玩命9》北美首周票房19.5亿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13058233.md#1" target="_blank">因疫情工作停摆 李千那开宾士当起外送员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057680.md#1" target="_blank">力挺屏东家乡芒果 彭佳慧大气订102箱送亲友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057679.md#1" target="_blank">拼工作 陈雅琳拼出“金轮奖” 拼到身体酸麻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057515.md#1" target="_blank">田中千绘挺屏东芒果 “病毒和谣言一样可怕”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/emdlvv3569/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
