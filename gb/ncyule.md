@@ -50,9 +50,9 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/22/n13040404.md#1" target="_blank">陆女星陈好教授职称掀风波 校方紧急撤下头衔</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/29/n13055192.md#1" target="_blank">“赚来干嘛 ” 柯宇纶膝盖超硬拒陆800万片酬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/28/n13051912.md#1" target="_blank">子瑜唱《ME!》登推特趋势榜冠军 方灿赞其成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/27/n13051398.md#1" target="_blank">梁朝伟庆59岁生日 刘嘉玲晒照秀恩爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/29/n13055192.md#1" target="_blank">“赚来干嘛 ” 柯宇纶膝盖超硬拒陆800万片酬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/25/n13046498.md#1" target="_blank">SEVENTEEN迷你八辑 创2021年最高首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzxnzi3171/djy/blob/master/gb/21/6/25/n13048432.md#1" target="_blank">邓超不被女儿接受讲故事 缘于孙俪一搞笑爆料</a></h4></td></tr>
