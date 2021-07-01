@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/28/n13054065.md#1" target="_blank">张雨绮为何改名？只因电视广告里常有一个字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059366.md#1" target="_blank">D.O.都敬秀首张个人专辑《共感》 7月26日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059333.md#1" target="_blank">孙佳人非法注射牛奶针遭罚款 公司说明并致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank">金世正翻唱《Alcohol-Free》 展现与志效的友情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057318.md#1" target="_blank">BTS忍睡意开直播谢粉丝 谈7月新歌值得期待</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057734.md#1" target="_blank">“神力女超人”诞下第3胎 甜蜜拥爱女报喜</a></h4></td></tr>
