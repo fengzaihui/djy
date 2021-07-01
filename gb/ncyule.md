@@ -10,7 +10,6 @@
 <a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057056.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13057174-210629230555100707-320x200.jpg"></a>
 <a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13055617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13056093-1612032351351487-320x200.jpg"></a>
 <a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13055628.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13055658-2106290723561487-320x200.jpg"></a>
-<a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13055164.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13055177-2106290258211487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -50,9 +49,9 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/24/n13045511.md#1" target="_blank">杜汶泽聘用《苹果》失业员工 港人直呼感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13055192.md#1" target="_blank">“赚来干嘛 ” 柯宇纶膝盖超硬拒陆800万片酬</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/27/n13051398.md#1" target="_blank">梁朝伟庆59岁生日 刘嘉玲晒照秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/28/n13051912.md#1" target="_blank">子瑜唱《ME!》登推特趋势榜冠军 方灿赞其成长</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/28/n13053920.md#1" target="_blank">传张学友出售豪宅 叫价4.3亿港币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/25/n13046498.md#1" target="_blank">SEVENTEEN迷你八辑 创2021年最高首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
