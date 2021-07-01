@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a><br></h3><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058007-210311000901100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057515.md#1" target="_blank">田中千绘挺屏东芒果 “病毒和谣言一样可怕”</a><br></h3><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057515.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13057537-2106300203101487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059904.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13059925-2107010251091487-320x200.jpg"></a>
 <a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058339-210630090359100707-320x200.jpg"></a>
 <a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13058233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058260-1910310729482384-320x200.jpg"></a>
 <a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057056.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13057174-210629230555100707-320x200.jpg"></a>
 <a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13055617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13056093-1612032351351487-320x200.jpg"></a>
-<a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13055628.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13055658-2106290723561487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/28/n13054065.md#1" target="_blank">张雨绮为何改名？只因电视广告里常有一个字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059904.md#1" target="_blank">BLACKPINK Lisa登杂志封面 私下是正能量女孩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059366.md#1" target="_blank">D.O.都敬秀首张个人专辑《共感》 7月26日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059333.md#1" target="_blank">孙佳人非法注射牛奶针遭罚款 公司说明并致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank">金世正翻唱《Alcohol-Free》 展现与志效的友情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057734.md#1" target="_blank">“神力女超人”诞下第3胎 甜蜜拥爱女报喜</a></h4></td></tr>
