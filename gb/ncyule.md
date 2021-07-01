@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank">金世正翻唱《Alcohol-Free》 展现与志效的友情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057318.md#1" target="_blank">BTS忍睡意开直播谢粉丝 谈7月新歌值得期待</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057734.md#1" target="_blank">“神力女超人”诞下第3胎 甜蜜拥爱女报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13054442.md#1" target="_blank">第81届皮博迪奖得主揭晓 最高荣誉落谁家？</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/29/n13055256.md#1" target="_blank">疫情以来最卖座 《玩命9》北美首周票房19.5亿</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13059084.md#1" target="_blank">周杰伦香港演唱会四度延期 拟申请吉尼斯纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13058956.md#1" target="_blank">黎明7月红馆开唱 将设脱口秀环节爆金句</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13058233.md#1" target="_blank">因疫情工作停摆 李千那开宾士当起外送员</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ogayrp3509/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
