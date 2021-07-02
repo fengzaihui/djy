@@ -9,8 +9,8 @@
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062393.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062863-201210234009100707-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062916.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062954-2107020440371487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062624-2105082153281487-320x200.jpg"></a>
-<a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062277-2101050029111487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13060072.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13060128-2107010421271487-320x200.jpg"></a>
+<a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059904.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13059925-2107010251091487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13063059.md#1" target="_blank">睽违7年发片 林凡自曝过程与经纪人磨合多次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062916.md#1" target="_blank">在家工作机会找上门 吴申梅15天内7品牌谈合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank">陈零九染疫后首次开嗓 与邱锋泽线上合唱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13063059.md#1" target="_blank">睽违7年发片 林凡自曝过程与经纪人磨合多次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061305.md#1" target="_blank">梁咏琪女儿幼儿园毕业 与同学郊游显优越身高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059469.md#1" target="_blank">英流行歌手艾德爆料 又为BTS创作单曲</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/25/n13048292.md#1" target="_blank">关晓彤路透照被指像大爷遛弯 小演员帮澄清</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/28/n13054065.md#1" target="_blank">张雨绮为何改名？只因电视广告里常有一个字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061793.md#1" target="_blank">古天乐大陆机场被搜身 安检人员表情引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/25/n13048432.md#1" target="_blank">邓超不被女儿接受讲故事 缘于孙俪一搞笑爆料</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/27/n13050645.md#1" target="_blank">Delta病毒侵台 贾永婕急送PAPR等器材至屏东</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/rskgqd324/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/rskgqd324/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rskgqd324/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/rskgqd324/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
