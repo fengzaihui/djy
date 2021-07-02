@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061547.md#1" target="_blank">“终有一天会完” 杜汶泽呛声中共百年党庆</a><br></h3><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061547.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/MK91_MG_2221_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062393.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062863-201210234009100707-320x200.jpg"></a>
+<a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062916.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062954-2107020440371487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062624-2105082153281487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062277-2101050029111487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059904.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13059925-2107010251091487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058339-210630090359100707-320x200.jpg"></a>
-<a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13058233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058260-1910310729482384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
