@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061547.md#1" target="_blank">“终有一天会完” 杜汶泽呛声中共百年党庆</a><br></h3><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061547.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/MK91_MG_2221_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059469.md#1" target="_blank">英流行歌手艾德爆料 又为BTS创作单曲</a><br></h3><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059469.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13059475-GettyImages-923478172-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062624-2105082153281487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062277-2101050029111487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059904.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13059925-2107010251091487-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13058019.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058339-210630090359100707-320x200.jpg"></a>
 <a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13058233.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13058260-1910310729482384-320x200.jpg"></a>
-<a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057056.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13057174-210629230555100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/19/n13033119.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13033124-503270-320x200.jpg"><br>《企鹅小镇》影评：拍摄企鹅的纪录片 也能很有故事性</a></h4></td></tr>
@@ -34,10 +34,10 @@
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057734.md#1" target="_blank">“神力女超人”诞下第3胎 甜蜜拥爱女报喜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank">陈零九染疫后首次开嗓 与邱锋泽线上合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061793.md#1" target="_blank">古天乐大陆机场被搜身 安检人员表情引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061305.md#1" target="_blank">梁咏琪女儿幼儿园毕业 与同学郊游显优越身高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061547.md#1" target="_blank">“终有一天会完” 杜汶泽呛声中共百年党庆</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13060356.md#1" target="_blank">《花路米3》暑假登场 首发兰屿体验责任旅行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
