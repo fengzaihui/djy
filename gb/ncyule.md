@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057734.md#1" target="_blank">“神力女超人”诞下第3胎 甜蜜拥爱女报喜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13063059.md#1" target="_blank">睽违7年发片 林凡自曝过程与经纪人磨合多次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062916.md#1" target="_blank">在家工作机会找上门 吴申梅15天内7品牌谈合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank">陈零九染疫后首次开嗓 与邱锋泽线上合唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061793.md#1" target="_blank">古天乐大陆机场被搜身 安检人员表情引关注</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061305.md#1" target="_blank">梁咏琪女儿幼儿园毕业 与同学郊游显优越身高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/25/n13047052.md#1" target="_blank">King &#038; Prince新歌由Babyface制作 赴LA录制歌曲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/2/n13063059.md#1" target="_blank">睽违7年发片 林凡自曝过程与经纪人磨合多次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13061305.md#1" target="_blank">梁咏琪女儿幼儿园毕业 与同学郊游显优越身高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/7/1/n13059469.md#1" target="_blank">英流行歌手艾德爆料 又为BTS创作单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/30/n13059084.md#1" target="_blank">周杰伦香港演唱会四度延期 拟申请吉尼斯纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/29/n13055628.md#1" target="_blank">AKB48线上音乐祭 连线海外姐妹团齐聚演出</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rskgqd324/djy/blob/master/gb/21/6/29/n13055192.md#1" target="_blank">“赚来干嘛 ” 柯宇纶膝盖超硬拒陆800万片酬</a></h4></td></tr>
