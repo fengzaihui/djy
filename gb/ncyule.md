@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062881.md#1" target="_blank">宋仲基被列为密切接触者须自主隔离 电影停拍</a><br></h3><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062881.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062893-160908081205100649-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a><br></h3><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062277-2101050029111487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/3/n13065098.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13065113-201123031100100707-320x200.jpg"></a>
 <a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062975.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13063795-1712290910341487-320x200.jpg"></a>
 <a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13063386.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13063405-170717152947100694-320x200.jpg"></a>
 <a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062393.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062863-201210234009100707-320x200.jpg"></a>
 <a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062916.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062954-2107020440371487-320x200.jpg"></a>
 <a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062624-2105082153281487-320x200.jpg"></a>
-<a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/1/n13060072.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13060128-2107010421271487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/6/29/n13056887.md#1" target="_blank">黄晓明晒厨艺引围观 独自推6大件行李录节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/3/n13065098.md#1" target="_blank">XIUMIN与朴素贤今昔对比照 粉丝：只有我老了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062975.md#1" target="_blank">SEVENTEEN迷你八辑已获四座冠军 屡创新话题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062881.md#1" target="_blank">宋仲基被列为密切接触者须自主隔离 电影停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13062393.md#1" target="_blank">BTS新歌名正式公开 粉丝幽默道：我上周有梦到</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/2/n13064189.md#1" target="_blank">鬼才导演再谈《好莱坞往事》李小龙形象争议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/1/n13060356.md#1" target="_blank">《花路米3》暑假登场 首发兰屿体验责任旅行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/arvtrn3389/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
