@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/4/n13066078.md#1" target="_blank">金宇彬健康回归 考虑接演Netflix新剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/3/n13065098.md#1" target="_blank">XIUMIN与朴素贤今昔对比照 粉丝：只有我老了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13062975.md#1" target="_blank">SEVENTEEN迷你八辑已获四座冠军 屡创新话题</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/4/n13066251.md#1" target="_blank">《俗女2》再释预告 开启“少女嘉玲”的烦恼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13064189.md#1" target="_blank">鬼才导演再谈《好莱坞往事》李小龙形象争议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/1/n13060356.md#1" target="_blank">《花路米3》暑假登场 首发兰屿体验责任旅行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/6/30/n13057828.md#1" target="_blank">摄影棚收庆生惊喜 王中平收盆栽贺礼笑开怀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/4/n13066251.md#1" target="_blank">《俗女2》再释预告 开启“少女嘉玲”的烦恼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13064083.md#1" target="_blank">林青霞6个月减重12公斤 祈祷台湾家乡平安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13063386.md#1" target="_blank">刚完成产前筛检 台女星小甜甜今产下女娃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13063059.md#1" target="_blank">睽违7年发片 林凡自曝过程与经纪人磨合多次</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13062916.md#1" target="_blank">在家工作机会找上门 吴申梅15天内7品牌谈合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
