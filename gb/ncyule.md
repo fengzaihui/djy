@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/6/29/n13056887.md#1" target="_blank">黄晓明晒厨艺引围观 独自推6大件行李录节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/6/29/n13056427.md#1" target="_blank">赵薇丈夫黄有龙被追欠款 连本带息近3亿港币</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/4/n13066114.md#1" target="_blank">车智妍染疫多行程受影响 世正与仁诚接受检疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/4/n13066078.md#1" target="_blank">金宇彬健康回归 考虑接演Netflix新剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/3/n13065098.md#1" target="_blank">XIUMIN与朴素贤今昔对比照 粉丝：只有我老了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13062975.md#1" target="_blank">SEVENTEEN迷你八辑已获四座冠军 屡创新话题</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13062881.md#1" target="_blank">宋仲基被列为密切接触者须自主隔离 电影停拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/2/n13064189.md#1" target="_blank">鬼才导演再谈《好莱坞往事》李小龙形象争议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/1/n13060356.md#1" target="_blank">《花路米3》暑假登场 首发兰屿体验责任旅行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jkufre301/djy/blob/master/gb/21/7/1/n13059534.md#1" target="_blank">防疫期推料理剧 王传一戏外最爱岳母家常菜</a></h4></td></tr>
