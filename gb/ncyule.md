@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066479.md#1" target="_blank">肤色黑遭批评 阿爆正向回应：接受自己最重要</a><br></h3><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066479.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13066502-2009122249211487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066078.md#1" target="_blank">金宇彬健康回归 考虑接演Netflix新剧</a><br></h3><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066078.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13066100-2107032323011487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/5/n13068328.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13068382-2107050326161487-320x200.jpg"></a>
 <a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/5/n13068111.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13068157-2107050154331487-320x200.jpg"></a>
 <a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066389.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13066422-2107040401261487-320x200.jpg"></a>
 <a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13062975.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13063795-1712290910341487-320x200.jpg"></a>
 <a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13062393.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062863-201210234009100707-320x200.jpg"></a>
 <a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13062916.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062954-2107020440371487-320x200.jpg"></a>
-<a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13062598.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13062624-2105082153281487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/6/29/n13056887.md#1" target="_blank">黄晓明晒厨艺引围观 独自推6大件行李录节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/5/n13068328.md#1" target="_blank">《逃出摩加迪休》 赵寅成哀号英文台词太多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/5/n13067539.md#1" target="_blank">世正与仁诚检疫获阴性判定 仁诚今缺席SF9活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066114.md#1" target="_blank">车智妍染疫多行程受影响 世正与仁诚接受检疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066078.md#1" target="_blank">金宇彬健康回归 考虑接演Netflix新剧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/3/n13065098.md#1" target="_blank">XIUMIN与朴素贤今昔对比照 粉丝：只有我老了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13067325.md#1" target="_blank">吴尊受伤晒大腿针灸照 被粉丝调侃太不见外</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066389.md#1" target="_blank">不再演苦情 楚宣为戏剪短发 羞认“有点帅”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066251.md#1" target="_blank">《俗女2》再释预告 开启“少女嘉玲”的烦恼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13064189.md#1" target="_blank">鬼才导演再谈《好莱坞往事》李小龙形象争议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/5/n13068391.md#1" target="_blank">鼓鼓高雄演唱会延期 居家防疫创作音乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/5/n13068111.md#1" target="_blank">绮拉奈特莉分享封城期抗忧 笑谈自家棕色苹果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13067100.md#1" target="_blank">昔日TVB当家花旦 陈慧珊转行当老师引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066479.md#1" target="_blank">肤色黑遭批评 阿爆正向回应：接受自己最重要</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066389.md#1" target="_blank">不再演苦情 楚宣为戏剪短发 羞认“有点帅”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
