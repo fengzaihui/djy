@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/6/29/n13056887.md#1" target="_blank">黄晓明晒厨艺引围观 独自推6大件行李录节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/5/n13067539.md#1" target="_blank">世正与仁诚检疫获阴性判定 仁诚今缺席SF9活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066114.md#1" target="_blank">车智妍染疫多行程受影响 世正与仁诚接受检疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066078.md#1" target="_blank">金宇彬健康回归 考虑接演Netflix新剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/3/n13065098.md#1" target="_blank">XIUMIN与朴素贤今昔对比照 粉丝：只有我老了</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13062975.md#1" target="_blank">SEVENTEEN迷你八辑已获四座冠军 屡创新话题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066389.md#1" target="_blank">不再演苦情 楚宣为戏剪短发 羞认“有点帅”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066251.md#1" target="_blank">《俗女2》再释预告 开启“少女嘉玲”的烦恼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/2/n13064189.md#1" target="_blank">鬼才导演再谈《好莱坞往事》李小龙形象争议</a></h4></td></tr>
