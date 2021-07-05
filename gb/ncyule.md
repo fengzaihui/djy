@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/6/29/n13056887.md#1" target="_blank">黄晓明晒厨艺引围观 独自推6大件行李录节目</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/6/29/n13056630.md#1" target="_blank">汤唯4岁女儿嫌天热 自己剪发获赞率性如妈妈</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13069142.md#1" target="_blank">李洪基在美景中唱新歌 日文Solo专辑9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13068535.md#1" target="_blank">子瑜盼以《ME!》展现多种面貌 一眨眼众人惊呼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13069014.md#1" target="_blank">苏志燮婚后复出 睽违4年主演新剧《Dr. Lawyer》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13067823.md#1" target="_blank">申世景签约IU所属公司 IU贺“是新家人呢”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13068328.md#1" target="_blank">《逃出摩加迪休》 赵寅成哀号英文台词太多</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/4/n13067325.md#1" target="_blank">吴尊受伤晒大腿针灸照 被粉丝调侃太不见外</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/4/n13066389.md#1" target="_blank">不再演苦情 楚宣为戏剪短发 羞认“有点帅”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/4/n13066251.md#1" target="_blank">《俗女2》再释预告 开启“少女嘉玲”的烦恼</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13068391.md#1" target="_blank">鼓鼓高雄演唱会延期 居家防疫创作音乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13068111.md#1" target="_blank">绮拉奈特莉分享封城期抗忧 笑谈自家棕色苹果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/4/n13067100.md#1" target="_blank">昔日TVB当家花旦 陈慧珊转行当老师引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/5/n13069142.md#1" target="_blank">李洪基在美景中唱新歌 日文Solo专辑9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/6/30/n13057795.md#1" target="_blank">宫胁咲良离开舒适圈迎接挑战：不失就不得</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/6/28/n13052694.md#1" target="_blank">柏木由纪脊髓手术成功开始复健 已稍微能走路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/4/n13066479.md#1" target="_blank">肤色黑遭批评 阿爆正向回应：接受自己最重要</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/2/n13063059.md#1" target="_blank">睽违7年发片 林凡自曝过程与经纪人磨合多次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lydclp3254/djy/blob/master/gb/21/7/1/n13061305.md#1" target="_blank">梁咏琪女儿幼儿园毕业 与同学郊游显优越身高</a></h4></td></tr>
