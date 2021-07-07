@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071250.md#1" target="_blank">刘在锡与FNC娱乐六年合约告终 后续动向受关注</a><br></h3><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071250.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13071263-180219031215100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13070088.md#1" target="_blank">香港行山偶遇周润发 高海宁获赠金句鼓励</a><br></h3><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13070088.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13070329-gao-haining-zhou-runfa-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13073201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073260-2107070157301487-320x200.jpg"></a>
 <a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13072283.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/zhoujielun-320x200.jpg"></a>
 <a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13071169-2107060457431487-320x200.jpg"></a>
 <a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070909.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13070922-2107060238471487-320x200.jpg"></a>
 <a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13068328.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13068382-2107050326161487-320x200.jpg"></a>
 <a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13068111.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13068157-2107050154331487-320x200.jpg"></a>
-<a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13067539.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13067591-1901170511431487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/6/29/n13056887.md#1" target="_blank">黄晓明晒厨艺引围观 独自推6大件行李录节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13072953.md#1" target="_blank">金圣圭染疫痊愈解除隔离 恢复日常生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13072731.md#1" target="_blank">BTS《Butter》称冠告示牌六周 新歌预告片公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071267.md#1" target="_blank">DAY6小分队盼迷你二辑带来幸福 音源榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071250.md#1" target="_blank">刘在锡与FNC娱乐六年合约告终 后续动向受关注</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070822.md#1" target="_blank">白娥娟自主隔离两周 公演与新专辑发行都延期</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070909.md#1" target="_blank">黄少祺庆50岁 生日前夕接国际广告代言</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13069825.md#1" target="_blank">险遭漫威换角演不成雷神 克里斯?汉斯沃因一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/4/n13067325.md#1" target="_blank">吴尊受伤晒大腿针灸照 被粉丝调侃太不见外</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13073201.md#1" target="_blank">居家防疫没胖反瘦 郭雪芙为解闷勤做4件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13072283.md#1" target="_blank">周杰伦IG账号遭假冒 五月天阿信曾差点受骗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071350.md#1" target="_blank">F.I.R.乐团预告新专辑 视觉造型高规格打造</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071163.md#1" target="_blank">杨丞琳宣布演唱会延期 释出10分钟幕后短片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13069142.md#1" target="_blank">李洪基在美景中唱新歌 日文Solo专辑9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
