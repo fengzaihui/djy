@@ -8,9 +8,9 @@
 <a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/7/n13073320.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073868-210707062553100707-320x200.jpg"></a>
 <a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073494-2107070329081487-320x200.jpg"></a>
 <a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/7/n13073201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073260-2107070157301487-320x200.jpg"></a>
-<a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/7/n13072731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13072942-210511225751100707-320x200.jpg"></a>
 <a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/6/n13072283.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/zhoujielun-320x200.jpg"></a>
 <a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/6/n13071163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13071169-2107060457431487-320x200.jpg"></a>
+<a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/6/n13070909.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13070922-2107060238471487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/piwtjw3874/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
