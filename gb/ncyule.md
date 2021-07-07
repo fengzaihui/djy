@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070909.md#1" target="_blank">黄少祺庆50岁 生日前夕接国际广告代言</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13069825.md#1" target="_blank">险遭漫威换角演不成雷神 克里斯?汉斯沃因一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/4/n13067325.md#1" target="_blank">吴尊受伤晒大腿针灸照 被粉丝调侃太不见外</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank">为防疫延后开唱 苏慧伦曝居家活动多在厨房</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13073201.md#1" target="_blank">居家防疫没胖反瘦 郭雪芙为解闷勤做4件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13072283.md#1" target="_blank">周杰伦IG账号遭假冒 五月天阿信曾差点受骗</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071350.md#1" target="_blank">F.I.R.乐团预告新专辑 视觉造型高规格打造</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13069142.md#1" target="_blank">李洪基在美景中唱新歌 日文Solo专辑9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank">为防疫延后开唱 苏慧伦曝居家活动多在厨房</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071350.md#1" target="_blank">F.I.R.乐团预告新专辑 视觉造型高规格打造</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071163.md#1" target="_blank">杨丞琳宣布演唱会延期 释出10分钟幕后短片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/4/n13066479.md#1" target="_blank">肤色黑遭批评 阿爆正向回应：接受自己最重要</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/2/n13063059.md#1" target="_blank">睽违7年发片 林凡自曝过程与经纪人磨合多次</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/1/n13061793.md#1" target="_blank">古天乐大陆机场被搜身 安检人员表情引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
