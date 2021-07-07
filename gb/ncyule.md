@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/6/29/n13056887.md#1" target="_blank">黄晓明晒厨艺引围观 独自推6大件行李录节目</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/7/n13072731.md#1" target="_blank">BTS《Butter》称冠告示牌六周 新歌预告片公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071267.md#1" target="_blank">DAY6小分队盼迷你二辑带来幸福 音源榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13071250.md#1" target="_blank">刘在锡与FNC娱乐六年合约告终 后续动向受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070822.md#1" target="_blank">白娥娟自主隔离两周 公演与新专辑发行都延期</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/6/n13070909.md#1" target="_blank">黄少祺庆50岁 生日前夕接国际广告代言</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/saiqwn3714/djy/blob/master/gb/21/7/5/n13069825.md#1" target="_blank">险遭漫威换角演不成雷神 克里斯?汉斯沃因一件事</a></h4></td></tr>
