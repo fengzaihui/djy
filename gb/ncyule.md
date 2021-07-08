@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13076776.md#1" target="_blank">SEVENTEEN夺Gaon月榜双冠 新目标为Hot 100榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank">2PM透露俊昊记性好 《MUST》热销逾11万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075805.md#1" target="_blank">Stray Kids《Mixtape：OH》登告示牌数位榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank">Brave Girls检疫阴性仍结束宣传 回归摘三座冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075068.md#1" target="_blank">金希澈与Momo分手 恋情告终获双方公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075979.md#1" target="_blank">疫情下节目重新开工 《热吵店》改视讯录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
@@ -48,15 +48,15 @@
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/6/n13071163.md#1" target="_blank">杨丞琳宣布演唱会延期 释出10分钟幕后短片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/4/n13066479.md#1" target="_blank">肤色黑遭批评 阿爆正向回应：接受自己最重要</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/1/n13061793.md#1" target="_blank">古天乐大陆机场被搜身 安检人员表情引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/1/n13061793.md#1" target="_blank">古天乐大陆机场被搜身 安检人员表情引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/5/n13070088.md#1" target="_blank">香港行山偶遇周润发 高海宁获赠金句鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/2/n13064083.md#1" target="_blank">林青霞6个月减重12公斤 祈祷台湾家乡平安</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank">《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/3/n13065098.md#1" target="_blank">XIUMIN与朴素贤今昔对比照 粉丝：只有我老了</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/imgnli3098/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/imgnli3098/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/imgnli3098/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/imgnli3098/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
