@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank">Brave Girls检疫阴性仍结束宣传 回归摘三座冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/8/n13075068.md#1" target="_blank">金希澈与Momo分手 恋情告终获双方公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/7/n13073904.md#1" target="_blank">秀智帮助早产儿支出手术费 自去年捐款中拨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/7/n13073320.md#1" target="_blank">太妍分享周末行程 《Weekend》14区iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/7/n13072953.md#1" target="_blank">金圣圭染疫痊愈解除隔离 恢复日常生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank">蔡凡熙退伍后电影首作 与郭书瑶再扮银幕情侣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/abyzuj301/djy/blob/master/gb/21/7/7/n13074657.md#1" target="_blank">《天龙八部》男星夏玉麟肺癌病逝 享寿68岁</a></h4></td></tr>
