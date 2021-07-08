@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank">为防疫延后开唱 苏慧伦曝居家活动多在厨房</a><br></h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073494-2107070329081487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13072953.md#1" target="_blank">金圣圭染疫痊愈解除隔离 恢复日常生活</a><br></h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13072953.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073106-1710030531091487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075922-2107080455391487-320x200.jpg"></a>
+<a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075599-210618040806100707-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075335-2107072354371487-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075068.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075093-210707214230100707-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073320.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073868-210707062553100707-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073494-2107070329081487-320x200.jpg"></a>
-<a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073260-2107070157301487-320x200.jpg"></a>
-<a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/6/n13072283.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/12/zhoujielun-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank">蔡凡熙退伍后电影首作 与郭书瑶再扮银幕情侣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13074657.md#1" target="_blank">《天龙八部》男星夏玉麟肺癌病逝 享寿68岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank">蔡凡熙退伍后电影首作 与郭书瑶再扮银幕情侣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13074657.md#1" target="_blank">《天龙八部》男星夏玉麟肺癌病逝 享寿68岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/5/n13069142.md#1" target="_blank">李洪基在美景中唱新歌 日文Solo专辑9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
