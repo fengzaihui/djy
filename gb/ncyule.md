@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073904.md#1" target="_blank">秀智帮助早产儿支出手术费 自去年捐款中拨款</a><br></h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073904.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13074096-191011031118100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank">为防疫延后开唱 苏慧伦曝居家活动多在厨房</a><br></h3><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073494-2107070329081487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13076771-200506054518100707-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075922-2107080455391487-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075599-210618040806100707-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075335-2107072354371487-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073320.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073868-210707062553100707-320x200.jpg"></a>
 <a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073494-2107070329081487-320x200.jpg"></a>
-<a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13073260-2107070157301487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank">2PM透露俊昊记性好 《MUST》热销逾11万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075805.md#1" target="_blank">Stray Kids《Mixtape：OH》登告示牌数位榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank">Brave Girls检疫阴性仍结束宣传 回归摘三座冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075068.md#1" target="_blank">金希澈与Momo分手 恋情告终获双方公司证实</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/7/n13073904.md#1" target="_blank">秀智帮助早产儿支出手术费 自去年捐款中拨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075979.md#1" target="_blank">疫情下节目重新开工 《热吵店》改视讯录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imgnli3098/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
