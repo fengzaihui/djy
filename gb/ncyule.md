@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078244.md#1" target="_blank">贾永婕恍神出车祸 被撞车主不介意反送关心</a><br></h3><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078244.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id13028002-JEN4378-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank">林青霞遭羽毛球击伤右眼 结果让她因祸得福</a><br></h3><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13077221-lin-qingxia-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079209-200214022334100707-320x200.jpg"></a>
 <a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13079541.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079016-2107090946581487-320x200.jpg"></a>
 <a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078280-2001160920241487-320x200.jpg"></a>
 <a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078079.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078117-2107090248011487-320x200.jpg"></a>
 <a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13076771-200506054518100707-320x200.jpg"></a>
-<a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075922-2107080455391487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank">李英爱低调行善 捐2亿韩圜助弱势族群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13079045.md#1" target="_blank">ATEEZ崔伞无症状确诊染疫 所有成员暂停活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078529.md#1" target="_blank">TWICE迷你十辑连三周告示牌在榜 为韩剧唱OST</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078339.md#1" target="_blank">黄正音打消离婚 透过深度对话延续夫妻缘分</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/8/n13075979.md#1" target="_blank">疫情下节目重新开工 《热吵店》改视讯录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgrwgc317/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
