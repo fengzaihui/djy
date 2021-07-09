@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/9/n13077747.md#1" target="_blank">昔与粉丝交往退团 权光珍曝准备结婚晒照报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/8/n13076776.md#1" target="_blank">SEVENTEEN夺Gaon月榜双冠 新目标为Hot 100榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank">2PM透露俊昊记性好 《MUST》热销逾11万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/8/n13075805.md#1" target="_blank">Stray Kids《Mixtape：OH》登告示牌数位榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank">Brave Girls检疫阴性仍结束宣传 回归摘三座冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/8/n13075979.md#1" target="_blank">疫情下节目重新开工 《热吵店》改视讯录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/1/n13061793.md#1" target="_blank">古天乐大陆机场被搜身 安检人员表情引关注</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/5/n13070088.md#1" target="_blank">香港行山偶遇周润发 高海宁获赠金句鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhixzh3841/djy/blob/master/gb/21/7/2/n13064083.md#1" target="_blank">林青霞6个月减重12公斤 祈祷台湾家乡平安</a></h4></td></tr>
