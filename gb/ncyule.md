@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078339.md#1" target="_blank">黄正音打消离婚 透过深度对话延续夫妻缘分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13077862.md#1" target="_blank">BTS英文新歌空降音源榜冠军 MV藏手语等巧思</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078079.md#1" target="_blank">金秀贤线上直播受访 预告新作中的角色</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13077747.md#1" target="_blank">前N.Flying成员权光珍准备结婚 以背影照报喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075979.md#1" target="_blank">疫情下节目重新开工 《热吵店》改视讯录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
@@ -48,8 +48,8 @@
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13071350.md#1" target="_blank">F.I.R.乐团预告新专辑 视觉造型高规格打造</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13071163.md#1" target="_blank">杨丞琳宣布演唱会延期 释出10分钟幕后短片</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/5/n13070088.md#1" target="_blank">香港行山偶遇周润发 高海宁获赠金句鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
