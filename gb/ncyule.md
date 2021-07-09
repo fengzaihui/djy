@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank">林青霞遭羽毛球击伤右眼 结果让她因祸得福</a><br></h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13077221-lin-qingxia-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13076955.md#1" target="_blank">被指歌词含政治意味 港中学生参加比赛遭处分</a><br></h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13076955.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/09/200909093025100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079016-2107090946581487-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078280-2001160920241487-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078079.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078117-2107090248011487-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13076771-200506054518100707-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075922-2107080455391487-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075599-210618040806100707-320x200.jpg"></a>
-<a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075335-2107072354371487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank">蔡凡熙退伍后电影首作 与郭书瑶再扮银幕情侣</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078956.md#1" target="_blank">接棒新一代运动型男 范少勋为新代言勤练冲浪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078449.md#1" target="_blank">姚爱寗接代言晒透亮美肌 分享脸部保养</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank">蔡健雅公开新单曲 推微综艺节目化身“蔡PD”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078244.md#1" target="_blank">贾永婕恍神出车祸 被撞车主不介意反送关心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank">林青霞遭羽毛球击伤右眼 结果让她因祸得福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/5/n13069142.md#1" target="_blank">李洪基在美景中唱新歌 日文Solo专辑9月发行</a></h4></td></tr>
