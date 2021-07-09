@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075068.md#1" target="_blank">金希澈与Momo分手 恋情告终获双方公司证实</a><br></h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075068.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075093-210707214230100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a><br></h3><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/2101050453241487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13077862.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078293-190827023935100707-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078280-2001160920241487-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078079.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078117-2107090248011487-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13076771-200506054518100707-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075922-2107080455391487-320x200.jpg"></a>
 <a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075158.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075599-210618040806100707-320x200.jpg"></a>
-<a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075297.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13075335-2107072354371487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/4/n13067202.md#1" target="_blank">章子怡携两个女儿 冒雨捧场汪峰演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/2/n13064291.md#1" target="_blank">胡歌原名用方言念很怪 粉丝见到字喊改回来</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13077862.md#1" target="_blank">BTS英文新歌空降音源榜冠军 MV藏手语等巧思</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078079.md#1" target="_blank">金秀贤线上直播受访 预告新作中的角色</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13077747.md#1" target="_blank">前N.Flying成员权光珍准备结婚 以背影照报喜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13076776.md#1" target="_blank">SEVENTEEN夺Gaon月榜双冠 新目标为Hot 100榜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank">2PM透露俊昊记性好 《MUST》热销逾11万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075979.md#1" target="_blank">疫情下节目重新开工 《热吵店》改视讯录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075850.md#1" target="_blank">《宝贝老板》续集今夏上档 推出首支中文预告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13075610.md#1" target="_blank">每周为《综艺》献唱 浩子等待金曲奖开奖</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078244.md#1" target="_blank">贾永婕恍神出车祸 被撞车主不介意反送关心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank">林青霞遭羽毛球击伤右眼 结果让她因祸得福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/8/n13076955.md#1" target="_blank">被指歌词含政治意味 港中学生参加比赛遭处分</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/5/n13069142.md#1" target="_blank">李洪基在美景中唱新歌 日文Solo专辑9月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/2/n13062260.md#1" target="_blank">与新垣结衣的婚后生活 星野源谈感动时刻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/1/n13060111.md#1" target="_blank">高桥朱里康复归队 Rocket Punch六人齐聚直播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank">蔡健雅公开新单曲 推微综艺节目化身“蔡PD”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank">为防疫延后开唱 苏慧伦曝居家活动多在厨房</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/elibqk3256/djy/blob/master/gb/21/7/6/n13071350.md#1" target="_blank">F.I.R.乐团预告新专辑 视觉造型高规格打造</a></h4></td></tr>
