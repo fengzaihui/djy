@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a><br></h3><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1062739428-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank">“钢铁侠”小唐尼取消关注漫威同僚 粉丝哗然</a><br></h3><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13081832-GettyImages-1193135245-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083652-2105120357412122-320x200.jpg"></a>
+<a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083535-2107120513371487-320x200.jpg"></a>
+<a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13082841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083131-201109093359100707-320x200.jpg"></a>
 <a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083326.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083340-2107120328291487-320x200.jpg"></a>
 <a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083264-2107120249141487-320x200.jpg"></a>
 <a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083055-2107120028511487-320x200.jpg"></a>
-<a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13079541.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
-<a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079209-200214022334100707-320x200.jpg"></a>
-<a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13078956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079016-2107090946581487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank">“钢铁侠”小唐尼取消关注漫威同僚 粉丝哗然</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank">周兴哲飞沪隔离 直播解说创作受封“周高级”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank">《黑寡妇》全球首周全票房收入逾2亿美金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank">林俊杰线上开唱会粉丝 叹网路不稳“小遗憾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank">周兴哲飞沪隔离 直播解说创作受封“周高级”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank">林俊杰线上开唱会粉丝 叹网路不稳“小遗憾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank">蔡健雅公开新单曲 推微综艺节目化身“蔡PD”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/7/n13073429.md#1" target="_blank">为防疫延后开唱 苏慧伦曝居家活动多在厨房</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
