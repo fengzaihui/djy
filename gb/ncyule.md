@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a><br></h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1062739428-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank">“钢铁侠”小唐尼取消关注漫威同僚 粉丝哗然</a><br></h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13081832-GettyImages-1193135245-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13083326.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083340-2107120328291487-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083264-2107120249141487-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083055-2107120028511487-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079541.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079209-200214022334100707-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079016-2107090946581487-320x200.jpg"></a>
-<a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078280-2001160920241487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/7/n13074584.md#1" target="_blank">秦岚家中冰箱贴封条 自律留言笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13083326.md#1" target="_blank">李炳宪51岁生日捐1亿韩圜 助儿童青少年重症患者</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079541.md#1" target="_blank">古天乐公司推中韩女团 4人即将出道发歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank">李英爱低调行善 捐2亿韩圜助弱势族群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079045.md#1" target="_blank">ATEEZ崔伞无症状确诊染疫 所有成员暂停活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078529.md#1" target="_blank">TWICE迷你十辑连三周告示牌在榜 为韩剧唱OST</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank">《黑寡妇》全球首周全票房收入逾2亿美金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
