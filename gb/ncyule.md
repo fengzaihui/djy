@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/7/n13074584.md#1" target="_blank">秦岚家中冰箱贴封条 自律留言笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083511.md#1" target="_blank">BTS《Butter》销量登冠军 收录曲MV浏览破亿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13082841.md#1" target="_blank">金桐俊入伍公开平头照 李相烨等人送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083326.md#1" target="_blank">李炳宪51岁生日捐1亿韩圜 助儿童青少年重症患者</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13079541.md#1" target="_blank">古天乐公司推中韩女团 4人即将出道发歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank">李英爱低调行善 捐2亿韩圜助弱势族群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank">《黑寡妇》全球首周全票房收入逾2亿美金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
@@ -48,8 +48,8 @@
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank">林俊杰线上开唱会粉丝 叹网路不稳“小遗憾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank">蔡健雅公开新单曲 推微综艺节目化身“蔡PD”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/9/n13079478.md#1" target="_blank">打第2剂疫苗被副作用吓到 徐若瑄尝试解烧偏方</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/5/n13070088.md#1" target="_blank">香港行山偶遇周润发 高海宁获赠金句鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/epckcw3537/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
