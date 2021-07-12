@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank">“钢铁侠”小唐尼取消关注漫威同僚 粉丝哗然</a><br></h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13081832-GettyImages-1193135245-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank">林俊杰线上开唱会粉丝 叹网路不稳“小遗憾”</a><br></h3><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13081518-2107110239521487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083055-2107120028511487-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079541.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079209-200214022334100707-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078956.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13079016-2107090946581487-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078280-2001160920241487-320x200.jpg"></a>
 <a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078079.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13078117-2107090248011487-320x200.jpg"></a>
-<a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/8/n13076358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13076771-200506054518100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079114.md#1" target="_blank">李英爱低调行善 捐2亿韩圜助弱势族群</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13079045.md#1" target="_blank">ATEEZ崔伞无症状确诊染疫 所有成员暂停活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078529.md#1" target="_blank">TWICE迷你十辑连三周告示牌在榜 为韩剧唱OST</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank">“钢铁侠”小唐尼取消关注漫威同僚 粉丝哗然</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081429.md#1" target="_blank">疫情冲击生活 《大债》演员群向观众温情喊话</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081275.md#1" target="_blank">黄明志改造老家推纪录片 用镜头介绍成长轨迹</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank">林俊杰线上开唱会粉丝 叹网路不稳“小遗憾”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081429.md#1" target="_blank">疫情冲击生活 《大债》演员群向观众温情喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081338.md#1" target="_blank">李荣浩生日 杨丞琳隔空祝福甜喊“My boy”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/11/n13081275.md#1" target="_blank">黄明志改造老家推纪录片 用镜头介绍成长轨迹</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gnndfs368/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
