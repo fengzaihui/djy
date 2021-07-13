@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085545.md#1" target="_blank">韩星徐寅永确诊中共病毒 演艺活动全面取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085232.md#1" target="_blank">金世正改编日文名曲《Baby I Love U》 23日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13084976.md#1" target="_blank">BTS《Butter》于告示牌称冠七周 新歌下周入榜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank">《勇者动画系列》原声带 阿信担任音乐总监</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085661.md#1" target="_blank">巨石强森《丛林奇航》 人气游乐设施改拍成电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085297.md#1" target="_blank">“永远的绿叶”台资深演员高振鹏辞世 享寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank">《黑寡妇》全球首周全票房收入逾2亿美金</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank">《勇者动画系列》原声带 阿信担任音乐总监</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085297.md#1" target="_blank">“永远的绿叶”台资深演员高振鹏辞世 享寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13084541.md#1" target="_blank">刘德华主演《失孤》角色原型24年后找到儿子</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
@@ -51,8 +51,8 @@
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/6/n13072561.md#1" target="_blank">59岁刘德华从影40年 自曝最后悔拍一部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/9/n13079478.md#1" target="_blank">打第2剂疫苗被副作用吓到 徐若瑄尝试解烧偏方</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/9/n13078244.md#1" target="_blank">贾永婕恍神出车祸 被撞车主不介意反送关心</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/6/n13072394.md#1" target="_blank">江一燕两度拒拍一部戏 成就刘诗诗爆红及姻缘</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/8/n13076834.md#1" target="_blank">江宏杰福原爱协议离婚 共同监护一对儿女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/7/n13074584.md#1" target="_blank">秦岚家中冰箱贴封条 自律留言笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank">林青霞遭羽毛球击伤右眼 结果让她因祸得福</a></h4></td></tr>
