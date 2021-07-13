@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13083511.md#1" target="_blank">BTS《Butter》销量登冠军 收录曲MV浏览破亿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13082841.md#1" target="_blank">金桐俊入伍公开平头照 李相烨等人送祝福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13083326.md#1" target="_blank">李炳宪51岁生日捐1亿韩圜 助儿童青少年重症患者</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/13/n13085297.md#1" target="_blank">“永远的绿叶”台资深演员高振鹏辞世 享寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank">《黑寡妇》全球首周全票房收入逾2亿美金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank">温贞菱观片充电当旅行 坦承《斯卡罗》不好演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/11/n13081795.md#1" target="_blank">“钢铁侠”小唐尼取消关注漫威同僚 粉丝哗然</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/13/n13085297.md#1" target="_blank">“永远的绿叶”台资深演员高振鹏辞世 享寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13084541.md#1" target="_blank">刘德华主演《失孤》角色原型24年后找到儿子</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank">周兴哲飞沪隔离 直播解说创作受封“周高级”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zsrvea357/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
