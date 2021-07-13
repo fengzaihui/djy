@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085668.md#1" target="_blank">道荣确诊 TREASURE全员暂停活动自主隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085545.md#1" target="_blank">韩星徐寅永确诊中共病毒 演艺活动全面取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085232.md#1" target="_blank">金世正改编日文名曲《Baby I Love U》 23日发行</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13086172.md#1" target="_blank">导演程伟豪转战小萤幕 打造奇幻超迷你剧集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085916.md#1" target="_blank">亨利高汀拍摄《蛇眼之战》 称密集训练像地狱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank">《勇者动画系列》原声带 阿信担任音乐总监</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085661.md#1" target="_blank">巨石强森《丛林奇航》 人气游乐设施改拍成电影</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085297.md#1" target="_blank">“永远的绿叶”台资深演员高振鹏辞世 享寿91岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13086172.md#1" target="_blank">导演程伟豪转战小萤幕 打造奇幻超迷你剧集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085916.md#1" target="_blank">亨利高汀拍摄《蛇眼之战》 称密集训练像地狱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank">《勇者动画系列》原声带 阿信担任音乐总监</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085297.md#1" target="_blank">“永远的绿叶”台资深演员高振鹏辞世 享寿91岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
