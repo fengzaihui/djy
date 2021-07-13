@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a><br></h3><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083225-180827091100100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a><br></h3><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13082682-210711211255100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13085317-201001211616100707-320x200.jpg"></a>
 <a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083652-2105120357412122-320x200.jpg"></a>
 <a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083535-2107120513371487-320x200.jpg"></a>
 <a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083131-201109093359100707-320x200.jpg"></a>
 <a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083326.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083340-2107120328291487-320x200.jpg"></a>
 <a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083264-2107120249141487-320x200.jpg"></a>
+<a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082994.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083055-2107120028511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/11/n13082530.md#1" target="_blank">袁弘独自带2岁儿逛街 单手抱娃动作娴熟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/7/n13074584.md#1" target="_blank">秦岚家中冰箱贴封条 自律留言笑翻网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085668.md#1" target="_blank">道荣确诊 TREASURE全员暂停活动自主隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085545.md#1" target="_blank">韩星徐寅永确诊中共病毒 演艺活动全面取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085232.md#1" target="_blank">金世正改编日文名曲《Baby I Love U》 23日发行</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13084976.md#1" target="_blank">BTS《Butter》于告示牌称冠七周 新歌下周入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085916.md#1" target="_blank">亨利高汀拍摄《蛇眼之战》 称密集训练像地狱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank">《勇者动画系列》原声带 阿信担任音乐总监</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085661.md#1" target="_blank">巨石强森《丛林奇航》 人气游乐设施改拍成电影</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank">《勇者动画系列》原声带 阿信担任音乐总监</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085297.md#1" target="_blank">“永远的绿叶”台资深演员高振鹏辞世 享寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/9/n13078467.md#1" target="_blank">BTS日文精选辑再创佳绩 获日本百万专辑认证</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/6/n13070489.md#1" target="_blank">Rocket Punch日本出道在即 高桥朱里归队宣传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank">周兴哲飞沪隔离 直播解说创作受封“周高级”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yhwjay308/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank">林俊杰线上开唱会粉丝 叹网路不稳“小遗憾”</a></h4></td></tr>
