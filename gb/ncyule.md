@@ -10,6 +10,7 @@
 <a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13085705-1902010512181470-320x200.jpg"></a>
 <a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083652-2105120357412122-320x200.jpg"></a>
 <a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083535-2107120513371487-320x200.jpg"></a>
+<a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/12/n13082841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083131-201109093359100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
@@ -34,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/14/n13087698.md#1" target="_blank">经典台剧登网路平台 苏晏霈开心《幸福》重现</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/13/n13086172.md#1" target="_blank">导演程伟豪转战小萤幕 打造奇幻超迷你剧集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/13/n13085916.md#1" target="_blank">亨利高汀拍摄《蛇眼之战》 称密集训练像地狱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/14/n13088591.md#1" target="_blank">江宏杰邀偶像教唱 上传女儿奶音清唱萌翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/14/n13088374.md#1" target="_blank">尹馨打完疫苗2天 谈唯一症状：没法很快入睡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/14/n13087992.md#1" target="_blank">宝妈打疫苗前夕恐慌症发作 曾宝仪陪同施打</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/14/n13087698.md#1" target="_blank">经典台剧登网路平台 苏晏霈开心《幸福》重现</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/13/n13087161.md#1" target="_blank">安以轩晒2岁儿子庆生照 一家四口穿亲子装</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/14/n13088591.md#1" target="_blank">江宏杰邀偶像教唱 上传女儿奶音清唱萌翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/12/n13083462.md#1" target="_blank">周兴哲飞沪隔离 直播解说创作受封“周高级”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/11/n13081495.md#1" target="_blank">林俊杰线上开唱会粉丝 叹网路不稳“小遗憾”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/9/n13078263.md#1" target="_blank">蔡健雅公开新单曲 推微综艺节目化身“蔡PD”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/7/n13074748.md#1" target="_blank">黄秋生遭台湾节目撤换？制作单位详尽回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/boadjj333/djy/blob/master/gb/21/7/9/n13079478.md#1" target="_blank">打第2剂疫苗被副作用吓到 徐若瑄尝试解烧偏方</a></h4></td></tr>
