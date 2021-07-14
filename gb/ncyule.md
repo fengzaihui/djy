@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/11/n13082530.md#1" target="_blank">袁弘独自带2岁儿逛街 单手抱娃动作娴熟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/7/n13074584.md#1" target="_blank">秦岚家中冰箱贴封条 自律留言笑翻网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/14/n13087408.md#1" target="_blank">NCT泰一开设IG达成金氏世界纪录 本人也惊讶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/14/n13087350.md#1" target="_blank">歌唱老师确诊 BTOB李旼赫快筛阴性自主隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/13/n13085668.md#1" target="_blank">道荣确诊 TREASURE全员暂停活动自主隔离</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/13/n13085545.md#1" target="_blank">韩星徐寅永确诊中共病毒 演艺活动全面取消</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/13/n13085232.md#1" target="_blank">金世正改编日文名曲《Baby I Love U》 23日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/13/n13086172.md#1" target="_blank">导演程伟豪转战小萤幕 打造奇幻超迷你剧集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/13/n13085916.md#1" target="_blank">亨利高汀拍摄《蛇眼之战》 称密集训练像地狱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank">《勇者动画系列》原声带 阿信担任音乐总监</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/7/n13074584.md#1" target="_blank">秦岚家中冰箱贴封条 自律留言笑翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank">林青霞遭羽毛球击伤右眼 结果让她因祸得福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fshats3513/djy/blob/master/gb/21/7/7/n13074657.md#1" target="_blank">《天龙八部》男星夏玉麟肺癌病逝 享寿68岁</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/fshats3513/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/fshats3513/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fshats3513/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/fshats3513/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
