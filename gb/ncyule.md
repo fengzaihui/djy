@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087929.md#1" target="_blank">Somi全昭弥时隔一年回归 8月2日发行新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087408.md#1" target="_blank">NCT泰一开设IG达成金氏世界纪录 本人也惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087350.md#1" target="_blank">歌唱老师确诊 BTOB李旼赫快筛阴性自主隔离</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/15/n13090171.md#1" target="_blank">艾玛史东演《库伊拉》笑声恐怖“被自己吓坏”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank">萧煌奇献“云录制”首秀 松口认有交往对象</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087918.md#1" target="_blank">《王冠》、《曼达洛人》同时入围24项艾美奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087698.md#1" target="_blank">经典台剧登网路平台 苏晏霈开心《幸福》重现</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank">萧煌奇献“云录制”首秀 松口认有交往对象</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank">昆凌晒6岁女儿手写英文诗 拐弯抹角夸周杰伦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13089010.md#1" target="_blank">获悉《苹果》员工觅得好去处 杜汶泽大气回应</a></h4></td></tr>
@@ -50,9 +50,9 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/9/n13079478.md#1" target="_blank">打第2剂疫苗被副作用吓到 徐若瑄尝试解烧偏方</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/9/n13078244.md#1" target="_blank">贾永婕恍神出车祸 被撞车主不介意反送关心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/8/n13076834.md#1" target="_blank">江宏杰福原爱协议离婚 共同监护一对儿女</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/13/n13086946.md#1" target="_blank">让妻女坐经济舱 郭富城被网民说太抠门</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/8/n13076834.md#1" target="_blank">江宏杰福原爱协议离婚 共同监护一对儿女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/8/n13077128.md#1" target="_blank">林青霞遭羽毛球击伤右眼 结果让她因祸得福</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/12/n13084541.md#1" target="_blank">刘德华主演《失孤》角色原型24年后找到儿子</a></h4></td></tr>
