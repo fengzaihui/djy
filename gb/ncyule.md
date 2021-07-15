@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087305.md#1" target="_blank">刘在锡签约好友柳熙烈公司 双方理念相同</a><br></h3><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087305.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13087349-180219031215100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087918.md#1" target="_blank">《王冠》、《曼达洛人》同时入围24项艾美奖</a><br></h3><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087918.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13087927-HBO-Mare-of-Easttown-2-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13089824-180827091100100707-320x200.jpg"></a>
 <a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13088591.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13089585-ji9.53.50-320x200.jpg"></a>
 <a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13088374.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13088383-2005102316551487-320x200.jpg"></a>
 <a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087992.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13088020-1912270534531487-320x200.jpg"></a>
 <a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087350.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13087352-180831073000100707-320x200.jpg"></a>
 <a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/13/n13085636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13085705-1902010512181470-320x200.jpg"></a>
-<a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13083652-2105120357412122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13089010.md#1" target="_blank">获悉《苹果》员工觅得好去处 杜汶泽大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13088591.md#1" target="_blank">江宏杰邀偶像教唱 上传女儿奶音清唱萌翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13088374.md#1" target="_blank">尹馨打完疫苗2天 谈唯一症状：没法很快入睡</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/12/n13082652.md#1" target="_blank">森川葵发烧后确诊暂停录影 仲野太贺也染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank">昆凌晒6岁女儿手写英文诗 拐弯抹角夸周杰伦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/14/n13088591.md#1" target="_blank">江宏杰邀偶像教唱 上传女儿奶音清唱萌翻网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/brlczu364/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
