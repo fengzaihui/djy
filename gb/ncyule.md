@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/12/n13084648.md#1" target="_blank">周迅坦言买书等于读书 率真回答引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/11/n13082530.md#1" target="_blank">袁弘独自带2岁儿逛街 单手抱娃动作娴熟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13090659.md#1" target="_blank">TXT连五周Billboard 200在榜 还登四榜单Top 10</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13090639.md#1" target="_blank">婆婆确诊感染中共病毒 全智贤健康无恙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13089956.md#1" target="_blank">金永大退出《学校2021》改接新戏 未获KBS同意</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13090333.md#1" target="_blank">刘在锡捐5千万韩圜 帮助贫困儿童与弱势女性</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13090310.md#1" target="_blank">D.O.都敬秀为Solo专辑主打歌《Rose》作词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank">金曲歌王获封法国影帝 荒山亮：下巴收不回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13090171.md#1" target="_blank">艾玛史东演《库伊拉》笑声恐怖“被自己吓坏”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eekhrg303/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank">萧煌奇献“云录制”首秀 松口认有交往对象</a></h4></td></tr>
