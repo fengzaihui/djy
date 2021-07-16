@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090639.md#1" target="_blank">婆婆确诊感染中共病毒 全智贤健康无恙</a><br></h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090639.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090704-210715071338100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093917-2103311011261470-320x200.jpg"></a>
+<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092907-210716023326100707-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093350-2107160638371487-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093190-2107110239541487-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092943-2107160245361487-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13092163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/170313061621100311-320x200.jpg"></a>
-<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090916.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13091435-201123055906100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
