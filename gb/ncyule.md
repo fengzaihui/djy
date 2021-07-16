@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a><br></h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/09/GettyImages-1163372347-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090639.md#1" target="_blank">婆婆确诊感染中共病毒 全智贤健康无恙</a><br></h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090639.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090704-210715071338100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093350-2107160638371487-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093190-2107110239541487-320x200.jpg"></a>
+<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092943-2107160245361487-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13092163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/170313061621100311-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090916.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13091435-201123055906100707-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090598-2101070327502122-320x200.jpg"></a>
-<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090097.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090117-2107150227361487-320x200.jpg"></a>
-<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13089914-2107150004041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank">金曲歌王获封法国影帝 荒山亮：下巴收不回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090171.md#1" target="_blank">艾玛史东演《库伊拉》笑声恐怖“被自己吓坏”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank">萧煌奇献“云录制”首秀 松口认有交往对象</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank">疫情趋缓实体专辑露曙光 魏如萱赴印刷厂探班</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank">林俊杰返乡晒搭机照 确定“缺席金曲奖”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093036.md#1" target="_blank">疫情下迎31岁 郭书瑶：能有再一次难得可贵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13092163.md#1" target="_blank">古天乐加盟新片《梅艳芳》 主演设计师刘培基</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13091975.md#1" target="_blank">刘嘉玲梁朝伟同台走秀 两人反差状态超喜感</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank">疫情趋缓实体专辑露曙光 魏如萱赴印刷厂探班</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090097.md#1" target="_blank">蔡健雅首开直播紧张 网路卡卡差点语无伦次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank">昆凌晒6岁女儿手写英文诗 拐弯抹角夸周杰伦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/14/n13088591.md#1" target="_blank">江宏杰邀偶像教唱 上传女儿奶音清唱萌翻网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/9/n13079478.md#1" target="_blank">打第2剂疫苗被副作用吓到 徐若瑄尝试解烧偏方</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/13/n13086946.md#1" target="_blank">让妻女坐经济舱 郭富城被网民说太抠门</a></h4></td></tr>
