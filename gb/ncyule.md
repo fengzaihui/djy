@@ -27,7 +27,7 @@
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/12/n13084648.md#1" target="_blank">周迅坦言买书等于读书 率真回答引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/11/n13082530.md#1" target="_blank">袁弘独自带2岁儿逛街 单手抱娃动作娴熟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092980.md#1" target="_blank">TREASURE苏庭焕隔离期自行检疫 继道荣后确诊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092980.md#1" target="_blank">TREASURE苏庭焕自行检疫 继道荣后确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank">宋康昊新作坎城影展亮相 扮刑警追查航空灾难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092867.md#1" target="_blank">成宥利结婚四年怀上双胞胎 分享孩子胎名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092475.md#1" target="_blank">韩惠珍与金耀汉等多人确诊 韩国演艺圈陷紧张</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank">金曲歌王获封法国影帝 荒山亮：下巴收不回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090171.md#1" target="_blank">艾玛史东演《库伊拉》笑声恐怖“被自己吓坏”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank">萧煌奇献“云录制”首秀 松口认有交往对象</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13093036.md#1" target="_blank">疫情下迎31岁 郭书瑶：能有再一次难得可贵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13092163.md#1" target="_blank">古天乐加盟新片《梅艳芳》 主演设计师刘培基</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13091975.md#1" target="_blank">刘嘉玲梁朝伟同台走秀 两人反差状态超喜感</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank">金曲歌王获封法国影帝 荒山亮：下巴收不回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
