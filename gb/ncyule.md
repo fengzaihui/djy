@@ -3,7 +3,7 @@
 <tr><td><h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a><br></h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/09/GettyImages-1163372347-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090639.md#1" target="_blank">婆婆确诊感染中共病毒 全智贤健康无恙</a><br></h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090639.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090704-210715071338100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090333.md#1" target="_blank">刘在锡捐5千万韩圜 帮助贫困儿童与弱势女性</a><br></h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090333.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090348-2107150404011487-600x400.jpg"></a></td></tr>
-<tr><td><h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank">昆凌晒6岁女儿手写英文诗 拐弯抹角夸周杰伦</a><br></h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/06/1906252259561487-600x400.jpg"></a></td></tr>
+<tr><td><h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090127.md#1" target="_blank">法男心灵感应与预知能力 震撼《美国达人秀》</a><br></h3><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090127.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090132-shutterstock_669432034-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092867.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092887-2107160222301487-320x200.jpg"></a>
 <a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092475.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092478-210715224406100707-320x200.jpg"></a>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/12/n13084648.md#1" target="_blank">周迅坦言买书等于读书 率真回答引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/11/n13082530.md#1" target="_blank">袁弘独自带2岁儿逛街 单手抱娃动作娴熟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092980.md#1" target="_blank">TREASURE苏庭焕隔离期自行检疫 继道荣后确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank">宋康昊新作坎城影展亮相 扮刑警追查航空灾难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092867.md#1" target="_blank">成宥利结婚四年怀上双胞胎 分享孩子胎名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/16/n13092475.md#1" target="_blank">韩惠珍与金耀汉等多人确诊 韩国演艺圈陷紧张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090916.md#1" target="_blank">美国2021年中销量 BTS摘数位冠亚军 NCT也入榜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank">金曲歌王获封法国影帝 荒山亮：下巴收不回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bdysqw3406/djy/blob/master/gb/21/7/15/n13090171.md#1" target="_blank">艾玛史东演《库伊拉》笑声恐怖“被自己吓坏”</a></h4></td></tr>
