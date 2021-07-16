@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090333.md#1" target="_blank">刘在锡捐5千万韩圜 帮助贫困儿童与弱势女性</a><br></h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090333.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090348-2107150404011487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090127.md#1" target="_blank">法男心灵感应与预知能力 震撼《美国达人秀》</a><br></h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090127.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090132-shutterstock_669432034-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093190-2107110239541487-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13092867.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092887-2107160222301487-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13092475.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092478-210715224406100707-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13092163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/170313061621100311-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090598-2101070327502122-320x200.jpg"></a>
 <a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090097.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13090117-2107150227361487-320x200.jpg"></a>
-<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13089914-2107150004041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank">金曲歌王获封法国影帝 荒山亮：下巴收不回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13090171.md#1" target="_blank">艾玛史东演《库伊拉》笑声恐怖“被自己吓坏”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089905.md#1" target="_blank">萧煌奇献“云录制”首秀 松口认有交往对象</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank">林俊杰返乡晒搭机照 确定“缺席金曲奖”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/16/n13093036.md#1" target="_blank">疫情下迎31岁 郭书瑶：能有再一次难得可贵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13092163.md#1" target="_blank">古天乐加盟新片《梅艳芳》 主演设计师刘培基</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13091975.md#1" target="_blank">刘嘉玲梁朝伟同台走秀 两人反差状态超喜感</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
@@ -49,7 +49,6 @@
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/12/n13083604.md#1" target="_blank">“金曲32”线上+实体举办 颁奖日8月21日</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/9/n13079478.md#1" target="_blank">打第2剂疫苗被副作用吓到 徐若瑄尝试解烧偏方</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/9/n13078244.md#1" target="_blank">贾永婕恍神出车祸 被撞车主不介意反送关心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/13/n13086946.md#1" target="_blank">让妻女坐经济舱 郭富城被网民说太抠门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
@@ -58,5 +57,6 @@
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/12/n13084541.md#1" target="_blank">刘德华主演《失孤》角色原型24年后找到儿子</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/11/n13082471.md#1" target="_blank">已接种2剂疫苗 庞德女郎蕾雅·瑟杜仍确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/21/7/13/n13086767.md#1" target="_blank">接种科兴疫苗被打空针 港歌手谷娅溦不适送院</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vvzrfn3290/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/vvzrfn3290/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
