@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13092475.md#1" target="_blank">韩惠珍与金耀汉等多人确诊 韩国演艺圈陷紧张</a><br></h3><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13092475.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092478-210715224406100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/15/n13091975.md#1" target="_blank">刘嘉玲梁朝伟同台走秀 两人反差状态超喜感</a><br></h3><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/15/n13091975.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/12/161222084141100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13094680-GettyImages-459409070-320x200.jpg"></a>
 <a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093917-2103311011261470-320x200.jpg"></a>
 <a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092907-210716023326100707-320x200.jpg"></a>
 <a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093350-2107160638371487-320x200.jpg"></a>
 <a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093190-2107110239541487-320x200.jpg"></a>
 <a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092943-2107160245361487-320x200.jpg"></a>
-<a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/15/n13092163.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/170313061621100311-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -23,18 +23,18 @@
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/12/n13084648.md#1" target="_blank">周迅坦言买书等于读书 率真回答引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/11/n13082530.md#1" target="_blank">袁弘独自带2岁儿逛街 单手抱娃动作娴熟</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/11/n13082296.md#1" target="_blank">被邓超吐槽调高冷气温度 孙俪坚持的理由很养生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13093799.md#1" target="_blank">宋慧乔送咖啡车 力挺高贤廷新剧拍摄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank">“私生是犯罪” SM娱乐列举恶行搜集证据提告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13092980.md#1" target="_blank">TREASURE苏庭焕自行检疫 继道荣后确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank">宋康昊新作坎城影展亮相 扮刑警追查航空灾难</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank">台湾疫情微解封 许富凯戴面罩开心复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/15/n13090568.md#1" target="_blank">金曲歌王获封法国影帝 荒山亮：下巴收不回来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank">台湾疫情微解封 许富凯戴面罩开心复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ajbsgc392/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank">疫情趋缓实体专辑露曙光 魏如萱赴印刷厂探班</a></h4></td></tr>
