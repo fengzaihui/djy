@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a><br></h3><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/02/150921093416100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a><br></h3><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13094421-GettyImages-1267356655-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096616-2107180214581487-320x200.jpg"></a>
 <a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13094680-GettyImages-459409070-320x200.jpg"></a>
 <a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093917-2103311011261470-320x200.jpg"></a>
 <a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092907-210716023326100707-320x200.jpg"></a>
 <a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093350-2107160638371487-320x200.jpg"></a>
 <a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093190-2107110239541487-320x200.jpg"></a>
-<a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092943-2107160245361487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13093799.md#1" target="_blank">宋慧乔送咖啡车 力挺高贤廷新剧拍摄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank">“私生是犯罪” SM娱乐列举恶行搜集证据提告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13092980.md#1" target="_blank">TREASURE苏庭焕自行检疫 继道荣后确诊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank">配合“微解封” 赵传许富凯首录《黄金年代》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/18/n13096294.md#1" target="_blank">微解封后全新首播 台综《冲冲冲》防疫升级</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank">《斯卡罗》线上特映 曹瑞原导演选角全凭直觉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/17/n13095554.md#1" target="_blank">澳洲电影《内特拉姆》入选2021戛纳电影节</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank">配合“微解封” 赵传许富凯首录《黄金年代》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/18/n13096294.md#1" target="_blank">微解封后全新首播 台综《冲冲冲》防疫升级</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank">《斯卡罗》线上特映 曹瑞原导演选角全凭直觉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/17/n13095618.md#1" target="_blank">陈思安克服打针恐惧 打完疫苗后大啖美食</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vycbrm378/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
