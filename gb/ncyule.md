@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a><br></h3><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13097475-GettyImages-1234029447-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank">《斯卡罗》线上特映 曹瑞原导演选角全凭直觉</a><br></h3><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096282-2107172134121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099235-1912130049331487-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098637-2107190249171487-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098497.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098563-2107190202001487-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096616-2107180214581487-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093917-2103311011261470-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092907-210716023326100707-320x200.jpg"></a>
+<a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093350-2107160638371487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/17/n13095581.md#1" target="_blank">林柏宏自认没专业技能 会找事情做装忙</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank">夏宇童打疫苗残剂 以为无症状半夜突高烧呕吐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098772.md#1" target="_blank">不参选基隆市长 许效舜：留在艺能界制造欢乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098497.md#1" target="_blank">日本房产遭误拆 吴淡如睡醒接到电话傻眼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098076.md#1" target="_blank">乃木坂46招募新成员 队长秋元真夏喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/13/n13086946.md#1" target="_blank">让妻女坐经济舱 郭富城被网民说太抠门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/14/n13089010.md#1" target="_blank">获悉《苹果》员工觅得好去处 杜汶泽大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/huihjg380/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
