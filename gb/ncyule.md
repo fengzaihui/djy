@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/17/n13095581.md#1" target="_blank">林柏宏自认没专业技能 会找事情做装忙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank">《黄金年代》复工 赵传许富凯当开场来宾</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098076.md#1" target="_blank">乃木坂46招募新成员 队长秋元真夏喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/12/n13083223.md#1" target="_blank">柏木由纪手术后坦言松了口气 生日重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank">疫情趋缓实体专辑露曙光 魏如萱赴印刷厂探班</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/15/n13090097.md#1" target="_blank">蔡健雅首开直播紧张 网路卡卡差点语无伦次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank">昆凌晒6岁女儿手写英文诗 拐弯抹角夸周杰伦</a></h4></td></tr>
