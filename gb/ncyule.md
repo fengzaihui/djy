@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank">《斯卡罗》线上特映 曹瑞原导演选角全凭直觉</a><br></h3><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096282-2107172134121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/17/n13095554.md#1" target="_blank">澳洲电影《内特拉姆》入选2021戛纳电影节</a><br></h3><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/17/n13095554.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13095557-GettyImages-57634323-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098637-2107190249171487-320x200.jpg"></a>
+<a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098497.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098563-2107190202001487-320x200.jpg"></a>
 <a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098015.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098020-201123055853100707-320x200.jpg"></a>
 <a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096616-2107180214581487-320x200.jpg"></a>
 <a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093917-2103311011261470-320x200.jpg"></a>
 <a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092907-210716023326100707-320x200.jpg"></a>
-<a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093350-2107160638371487-320x200.jpg"></a>
-<a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093190-2107110239541487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098015.md#1" target="_blank">SEVENTEEN全员续约：One Team带来精彩演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/17/n13095164.md#1" target="_blank">BTOB李旼赫咳嗽发烧 “阴转阳”确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/16/n13093799.md#1" target="_blank">宋慧乔送咖啡车 力挺高贤廷新剧拍摄</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/17/n13095581.md#1" target="_blank">林柏宏自认没专业技能 会找事情做装忙</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank">《黄金年代》复工 赵传许富凯当开场来宾</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098497.md#1" target="_blank">日本房产遭误拆 吴淡如睡醒接到电话傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/17/n13095581.md#1" target="_blank">林柏宏自认没专业技能 会找事情做装忙</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank">《黄金年代》复工 赵传许富凯当开场来宾</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/19/n13098076.md#1" target="_blank">乃木坂46招募新成员 队长秋元真夏喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/axjmzj3414/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
