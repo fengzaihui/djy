@@ -27,22 +27,22 @@
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/12/n13084648.md#1" target="_blank">周迅坦言买书等于读书 率真回答引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098283.md#1" target="_blank">孝渊（DJ HYO）8月发行新单曲 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098190.md#1" target="_blank">ATEEZ迎出道1000天为粉丝唱歌 旼琦也归队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098015.md#1" target="_blank">SEVENTEEN全员续约：One Team带来精彩演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/17/n13095164.md#1" target="_blank">BTOB李旼赫咳嗽发烧 “阴转阳”确诊染疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13093799.md#1" target="_blank">宋慧乔送咖啡车 力挺高贤廷新剧拍摄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/17/n13095581.md#1" target="_blank">林柏宏自认没专业技能 会找事情做装忙</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098772.md#1" target="_blank">不参选基隆市长 许效舜：留在艺能界制造欢乐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098497.md#1" target="_blank">日本房产遭误拆 吴淡如睡醒接到电话傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098076.md#1" target="_blank">乃木坂46招募新成员 队长秋元真夏喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/14/n13087827.md#1" target="_blank">安室奈美惠引退后仍做公益 获政府颁发奖章</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/13/n13085277.md#1" target="_blank">JYP推出男版NiziU 曝选秀增作词作曲部门原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank">疫情趋缓实体专辑露曙光 魏如萱赴印刷厂探班</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/15/n13090097.md#1" target="_blank">蔡健雅首开直播紧张 网路卡卡差点语无伦次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank">昆凌晒6岁女儿手写英文诗 拐弯抹角夸周杰伦</a></h4></td></tr>
