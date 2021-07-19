@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank">《斯卡罗》线上特映 曹瑞原导演选角全凭直觉</a><br></h3><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096282-2107172134121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099235-1912130049331487-320x200.jpg"></a>
+<a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098772.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098861-DSC_8362-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098637-2107190249171487-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098497.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098563-2107190202001487-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096616-2107180214581487-320x200.jpg"></a>
 <a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093917-2103311011261470-320x200.jpg"></a>
-<a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092907-210716023326100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
