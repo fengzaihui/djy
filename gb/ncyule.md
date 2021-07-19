@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank">《斯卡罗》线上特映 曹瑞原导演选角全凭直觉</a><br></h3><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/18/n13096255.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096282-2107172134121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/17/n13095554.md#1" target="_blank">澳洲电影《内特拉姆》入选2021戛纳电影节</a><br></h3><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/17/n13095554.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13095557-GettyImages-57634323-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/19/n13098015.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098020-201123055853100707-320x200.jpg"></a>
 <a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/18/n13096609.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13096616-2107180214581487-320x200.jpg"></a>
 <a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13093910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093917-2103311011261470-320x200.jpg"></a>
 <a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092907-210716023326100707-320x200.jpg"></a>
 <a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093350-2107160638371487-320x200.jpg"></a>
 <a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13093177.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093190-2107110239541487-320x200.jpg"></a>
-<a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13092908.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13092943-2107160245361487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/12/n13084648.md#1" target="_blank">周迅坦言买书等于读书 率真回答引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/19/n13098015.md#1" target="_blank">SEVENTEEN全员续约：One Team带来精彩演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/17/n13095164.md#1" target="_blank">BTOB李旼赫咳嗽发烧 “阴转阳”确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13093799.md#1" target="_blank">宋慧乔送咖啡车 力挺高贤廷新剧拍摄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13092695.md#1" target="_blank">“私生是犯罪” SM娱乐列举恶行搜集证据提告</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13092980.md#1" target="_blank">TREASURE苏庭焕自行检疫 继道荣后确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/17/n13095581.md#1" target="_blank">林柏宏自认没专业技能 会找事情做装忙</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/14/n13089339.md#1" target="_blank">昆凌晒6岁女儿手写英文诗 拐弯抹角夸周杰伦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/12/n13084863.md#1" target="_blank">曾罹患大肠癌康复 54岁林利晒发呆自拍照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rbnxir3625/djy/blob/master/gb/21/7/15/n13091804.md#1" target="_blank">戛纳影展突宣布 加映香港纪录片《时代革命》</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/rbnxir3625/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
