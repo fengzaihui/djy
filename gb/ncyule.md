@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/12/n13084648.md#1" target="_blank">周迅坦言买书等于读书 率真回答引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13099060.md#1" target="_blank">CRAVITY新专辑筹备中 8月回归歌坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098283.md#1" target="_blank">孝渊（DJ HYO）8月发行新单曲 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098190.md#1" target="_blank">ATEEZ迎出道1000天为粉丝唱歌 旼琦也归队</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098015.md#1" target="_blank">SEVENTEEN全员续约：One Team带来精彩演出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/17/n13095164.md#1" target="_blank">BTOB李旼赫咳嗽发烧 “阴转阳”确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/huihjg380/djy/blob/master/gb/21/7/18/n13097378.md#1" target="_blank">港片《天下乌鸦》 夺戛纳电影节短片金棕榈奖</a></h4></td></tr>
