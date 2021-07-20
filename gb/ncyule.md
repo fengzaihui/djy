@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a><br></h3><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/02/PO_X2651-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100679.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100758-2004280432592122-320x200.jpg"></a>
-<a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540788-320x200.jpg"></a>
 <a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100620-1703290829542384-320x200.jpg"></a>
 <a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100550-190731010620100707-320x200.jpg"></a>
 <a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099235-1912130049331487-320x200.jpg"></a>
 <a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13098772.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098861-DSC_8362-320x200.jpg"></a>
+<a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098637-2107190249171487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
