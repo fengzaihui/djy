@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a><br></h3><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13097848-tang-qiyang-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a><br></h3><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/02/PO_X2651-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100679.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100758-2004280432592122-320x200.jpg"></a>
 <a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540788-320x200.jpg"></a>
 <a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100620-1703290829542384-320x200.jpg"></a>
 <a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100550-190731010620100707-320x200.jpg"></a>
 <a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099235-1912130049331487-320x200.jpg"></a>
 <a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098772.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098861-DSC_8362-320x200.jpg"></a>
-<a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13098637-2107190249171487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099703.md#1" target="_blank">《Mr. Trot》永卓继张民皓后确诊 身体无异常</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099060.md#1" target="_blank">CRAVITY新专辑筹备中 8月回归歌坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098283.md#1" target="_blank">孝渊（DJ HYO）8月发行新单曲 获SM娱乐证实</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100679.md#1" target="_blank">孟耿如迎30岁 黄子佼发图晒恩爱：只为你而活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank">夏宇童打疫苗残剂 以为无症状半夜突高烧呕吐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098772.md#1" target="_blank">不参选基隆市长 许效舜：留在艺能界制造欢乐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100599.md#1" target="_blank">EXID哈妮确诊染疫 新戏《IDOL》暂停拍摄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭新作公开在即确诊染疫 有发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
