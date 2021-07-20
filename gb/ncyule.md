@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13101060.md#1" target="_blank">SUGA透露肩膀状况 称复健是“跟自己打仗”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100769.md#1" target="_blank">BTS占Hot 100榜两席 新歌再度空降告示牌冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100599.md#1" target="_blank">EXID哈妮确诊染疫 新戏《IDOL》暂停拍摄</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13098921.md#1" target="_blank">GFRIEND严智分享近况：最近很多人生新经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13101335.md#1" target="_blank">《全明星》成员合唱《对世界点头》为台湾打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13101488.md#1" target="_blank">古曜威关注海外疫情 发文为印尼加油</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭发烧后确诊染疫 8月舞台剧照常开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13098076.md#1" target="_blank">乃木坂46招募新成员 队长秋元真夏喊话</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/15/n13089822.md#1" target="_blank">柏木由纪生日回归工作：我是首位30岁AKB成员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/16/n13093333.md#1" target="_blank">疫情趋缓实体专辑露曙光 魏如萱赴印刷厂探班</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/13/n13086946.md#1" target="_blank">让妻女坐经济舱 郭富城被网民说太抠门</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/14/n13089010.md#1" target="_blank">获悉《苹果》员工觅得好去处 杜汶泽大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/14/n13089010.md#1" target="_blank">获悉《苹果》员工觅得好去处 杜汶泽大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/smhdla347/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
