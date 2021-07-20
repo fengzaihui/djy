@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100769.md#1" target="_blank">BTS占Hot 100榜两席 新歌再度空降告示牌冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098921.md#1" target="_blank">GFRIEND严智分享近况：最近很多人生新经验</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099703.md#1" target="_blank">《Mr. Trot》永卓继张民皓后确诊 身体无异常</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099060.md#1" target="_blank">CRAVITY新专辑筹备中 8月回归歌坛</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098283.md#1" target="_blank">孝渊（DJ HYO）8月发行新单曲 获SM娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
@@ -40,7 +40,7 @@
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank">夏宇童打疫苗残剂 以为无症状半夜突高烧呕吐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100599.md#1" target="_blank">EXID哈妮确诊染疫 新戏《IDOL》暂停拍摄</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭新作公开在即确诊染疫 有发烧症状</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭发烧后确诊染疫 8月舞台剧照常开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13098076.md#1" target="_blank">乃木坂46招募新成员 队长秋元真夏喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fmdqgk359/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
