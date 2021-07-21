@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a><br></h3><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/08/07302d42c38567f61992d32f2c38a1da-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a><br></h3><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099896-GettyImages-1048412930-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/21/n13103856.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103866-2007010448571487-320x200.jpg"></a>
+<a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/21/n13103450.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103728-200813040114100707-320x200.jpg"></a>
 <a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13101060.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13101622-200813040025100707-320x200.jpg"></a>
 <a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13100769.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13101041-190501225455100707-320x200.jpg"></a>
 <a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13100679.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100758-2004280432592122-320x200.jpg"></a>
 <a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13100599.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100620-1703290829542384-320x200.jpg"></a>
-<a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13100550-190731010620100707-320x200.jpg"></a>
-<a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099235-1912130049331487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/21/n13103450.md#1" target="_blank">BTS担任韩国总统特别大使 将出席联合国大会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/21/n13103249.md#1" target="_blank">前Stray Kids成员金宇珍 公开Solo作发行日程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13101060.md#1" target="_blank">SUGA透露肩膀状况 称复健是“跟自己打仗”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13100769.md#1" target="_blank">BTS占Hot 100榜两席 新歌再度空降告示牌冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/21/n13103856.md#1" target="_blank">公开迷你屋意外成景点 宥胜盼保有隐私的距离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13102968.md#1" target="_blank">刘德华庆出道40年：我也是个会哭的普通人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13102588.md#1" target="_blank">不舍台湾遭疫情打击 杜汶泽宣布捐待用餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13101501.md#1" target="_blank">任贤齐麋先生再合作 推防疫歌曲替众人打气</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13101335.md#1" target="_blank">《全明星》成员合唱《对世界点头》为台湾打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭发烧后确诊染疫 8月舞台剧照常开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/14/n13089010.md#1" target="_blank">获悉《苹果》员工觅得好去处 杜汶泽大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/16/n13094483.md#1" target="_blank">蒋勤勤29年后再穿戏服 为陈建斌唱《牡丹亭》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrhwve3553/djy/blob/master/gb/21/7/14/n13089199.md#1" target="_blank">范冰冰独立开新公司 与旧爱李晨彻底割席</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/hrhwve3553/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/hrhwve3553/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hrhwve3553/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/hrhwve3553/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
