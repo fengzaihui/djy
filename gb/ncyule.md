@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/21/n13103450.md#1" target="_blank">BTS担任韩国总统特别大使 将出席联合国大会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/21/n13103249.md#1" target="_blank">前Stray Kids成员金宇珍 公开Solo作发行日程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/21/n13104203.md#1" target="_blank">李明璁首当电视节目制作人 与李霈瑜联手主持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/19/n13098622.md#1" target="_blank">惠英红新片动人哭戏 一个动作让阿Sa泪不止</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/21/n13104203.md#1" target="_blank">李明璁首当电视节目制作人 与李霈瑜联手主持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/21/n13104014.md#1" target="_blank">罗文裕女儿乱入直播间 手比“鱿鱼”融化万人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/21/n13103856.md#1" target="_blank">公开迷你屋意外成景点 宥胜盼保有隐私的距离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/20/n13102968.md#1" target="_blank">刘德华庆出道40年：我也是个会哭的普通人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/20/n13102588.md#1" target="_blank">不舍台湾遭疫情打击 杜汶泽宣布捐待用餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭发烧后确诊染疫 8月舞台剧照常开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mwxpgw3883/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
