@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/22/n13106765.md#1" target="_blank">BTS《Butter》两度遭疑抄袭 公司：版权没问题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/22/n13106180.md#1" target="_blank">Stray Kids《NOEASY》8月23日发行 预告片公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/21/n13104301.md#1" target="_blank">ASTRO发行新专辑向台湾粉丝喊话：好想你们</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/22/n13105999.md#1" target="_blank">Shownu入伍公开自拍照 MONSTA X成员为他送行</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/21/n13104119.md#1" target="_blank">郑恩地曝粉丝找上家门 吁侵犯隐私者自重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/21/n13105709.md#1" target="_blank">女儿2岁就用剪刀 吴凤从不阻止源于一理念</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/21/n13105251.md#1" target="_blank">吴尊用三年打造新家 依华人传统庆乔迁之喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/21/n13104203.md#1" target="_blank">李明璁首当电视节目制作人 与李霈瑜联手主持</a></h4></td></tr>
