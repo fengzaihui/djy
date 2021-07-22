@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/15/n13091975.md#1" target="_blank">刘嘉玲梁朝伟同台走秀 两人反差状态超喜感</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qzhzrz314/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
