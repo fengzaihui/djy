@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/21/n13104301.md#1" target="_blank">ASTRO发行新专辑向台湾粉丝喊话：好想你们</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/22/n13105999.md#1" target="_blank">Shownu本日入伍 以社会服务要员身份服兵役</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/21/n13104119.md#1" target="_blank">郑恩地曝粉丝找上家门 吁侵犯隐私者自重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/21/n13103854.md#1" target="_blank">金钟国盼赋予大众关爱意义 捐出YT频道收益</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/21/n13103450.md#1" target="_blank">BTS担任韩国总统特别大使 将出席联合国大会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/21/n13105251.md#1" target="_blank">吴尊用三年打造新家 依华人传统庆乔迁之喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/21/n13104203.md#1" target="_blank">李明璁首当电视节目制作人 与李霈瑜联手主持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ntzvvt379/djy/blob/master/gb/21/7/20/n13100901.md#1" target="_blank">《小明星大跟班》重启录影 吴姗儒预告出新书</a></h4></td></tr>
