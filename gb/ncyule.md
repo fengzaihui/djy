@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103854.md#1" target="_blank">金钟国盼赋予大众关爱意义 捐出YT频道收益</a><br></h3><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103854.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103917-200407063132100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/23/n13108671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13108672-210722213928100707-320x200.jpg"></a>
+<a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/22/n13107732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13107838-IMG-6930-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/22/n13105999.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13106002-200701020752100707-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/22/n13106080.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13106114-2107212308591487-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13104014.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13104064-2107210409411487-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103856.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103866-2007010448571487-320x200.jpg"></a>
-<a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103249.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103434-210720233819100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
