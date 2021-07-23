@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13108051.md#1" target="_blank">河南洪灾魔咒？成龙党庆高唱《怒吼吧黄河》</a><br></h3><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13108051.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/06/GettyImages-170309014-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/21/n13105460.md#1" target="_blank">57岁刘青云近照曝光 粉丝惊呼认不出</a><br></h3><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/21/n13105460.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2012/10/1210100013041470-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13110120-170824170337100694-320x200.jpg"></a>
+<a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109820-2107230550481487-320x200.jpg"></a>
 <a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109641-2103030311251487-320x200.jpg"></a>
 <a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13108671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13108672-210722213928100707-320x200.jpg"></a>
 <a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13108465.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13108630-GettyImages-1234108438-320x200.jpg"></a>
 <a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13107732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13107838-IMG-6930-320x200.jpg"></a>
-<a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13105999.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13106002-200701020752100707-320x200.jpg"></a>
-<a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13106080.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13106114-2107212308591487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -31,22 +31,22 @@
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109493.md#1" target="_blank">刘在锡与确诊者密切接触隔离中 节目暂停录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109260.md#1" target="_blank">aespa与美国经纪公司CAA签约 开展国际活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13107211.md#1" target="_blank">JYP娱乐新女团尚未公开 出道作预售5天卖4万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳登阎奕格播客 开启台粤语对话引爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109376.md#1" target="_blank">《高雄玩夯局》邀郭书瑶等名人体验港都风情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13107563.md#1" target="_blank">李翊君客串八点档 一看洪都拉斯就笑场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/21/n13105709.md#1" target="_blank">女儿2岁就用剪刀 吴凤从不阻止源于一理念</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/21/n13105251.md#1" target="_blank">吴尊用三年打造新家 依华人传统庆乔迁之喜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳登阎奕格播客 开启台粤语对话引爆笑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank">魏如萱接棒阿妹 主视觉跃上纽约时代广场巨幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank">孙燕姿43岁生日发庆生照 许愿“平安就好”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109376.md#1" target="_blank">《高雄玩夯局》邀郭书瑶等名人体验港都风情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13108292.md#1" target="_blank">刘德华拍片慰问河南灾民 竟遭网民逼问捐款没</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13108051.md#1" target="_blank">河南洪灾魔咒？成龙党庆高唱《怒吼吧黄河》</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank">永野芽郁一度被诊断为中暑 检疫后确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13108910.md#1" target="_blank">东京奥运今晚开幕 MISIA为开幕式领唱日本国歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13108671.md#1" target="_blank">高山一实宣布9月自乃木坂46毕业 秋元真夏落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭发烧后确诊染疫 8月舞台剧照常开演</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank">魏如萱接棒阿妹 主视觉跃上纽约时代广场巨幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank">孙燕姿43岁生日发庆生照 许愿“平安就好”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/21/n13104459.md#1" target="_blank">黄昺翔疫情期间热心行善 送爱心便当给医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
