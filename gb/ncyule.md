@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13110371.md#1" target="_blank">金永大退出《学校2021》遭误会 公司长文诉原由</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109717.md#1" target="_blank">韩国演艺圈频传确诊 《机智医生2》停播一周</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109493.md#1" target="_blank">刘在锡与确诊者密切接触隔离中 节目暂停录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109260.md#1" target="_blank">aespa与美国经纪公司CAA签约 开展国际活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13107211.md#1" target="_blank">JYP娱乐新女团尚未公开 出道作预售5天卖4万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳登阎奕格播客 开启台粤语对话引爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/23/n13109376.md#1" target="_blank">《高雄玩夯局》邀郭书瑶等名人体验港都风情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/reprsb3742/djy/blob/master/gb/21/7/22/n13107563.md#1" target="_blank">李翊君客串八点档 一看洪都拉斯就笑场</a></h4></td></tr>
