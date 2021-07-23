@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13105251.md#1" target="_blank">吴尊用三年打造新家 依华人传统庆乔迁之喜</a><br></h3><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13105251.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103854.md#1" target="_blank">金钟国盼赋予大众关爱意义 捐出YT频道收益</a><br></h3><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103854.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103917-200407063132100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/23/n13108671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13108672-210722213928100707-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/22/n13105999.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13106002-200701020752100707-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/22/n13106080.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13106114-2107212308591487-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13104014.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13104064-2107210409411487-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103856.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103866-2007010448571487-320x200.jpg"></a>
 <a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13103249.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13103434-210720233819100707-320x200.jpg"></a>
-<a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/20/n13100769.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13101041-190501225455100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/22/n13108051.md#1" target="_blank">河南洪灾魔咒？成龙党庆高唱《怒吼吧黄河》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/22/n13107732.md#1" target="_blank">星光二班女星喜诞女娃 为宝宝取苏格兰名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13105709.md#1" target="_blank">女儿2岁就用剪刀 吴凤从不阻止源于一理念</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/23/n13108671.md#1" target="_blank">高山一实宣布9月自乃木坂46毕业 秋元真夏落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/20/n13100544.md#1" target="_blank">田中圭发烧后确诊染疫 8月舞台剧照常开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/19/n13098838.md#1" target="_blank">三浦春马逝世1周年 台湾粉丝包场应援遗作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/19/n13098076.md#1" target="_blank">乃木坂46招募新成员 队长秋元真夏喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13104459.md#1" target="_blank">黄昺翔疫情期间热心行善 送爱心便当给医护</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
@@ -51,8 +51,8 @@
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/16/n13094169.md#1" target="_blank">郑欣宜IG晒视频 失控洒泪令人傻眼</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/21/n13105460.md#1" target="_blank">57岁刘青云近照曝光 粉丝惊呼认不出</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eucxjm3491/djy/blob/master/gb/21/7/16/n13094300.md#1" target="_blank">打完2剂疫苗仍染Delta病毒 美主持人直呼恐怖</a></h4></td></tr>
