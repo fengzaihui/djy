@@ -12,11 +12,11 @@
 <a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/22/n13108465.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13108630-GettyImages-1234108438-320x200.jpg"></a>
 <a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/22/n13107732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13107838-IMG-6930-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/3/n13064527.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13064532-505227-320x200.jpg"><br>《拨接世代》影评：偶然的约会 让埋藏多年的情愫开花结果</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/6/24/n13043350.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/06/id13043356-Good_on_Paper_00_10_12_00-320x200.jpeg"><br>《一婊人才》影评：趣味手段 反将爱情骗子一军</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13110984.md#1" target="_blank">吴宗宪接种第一剂疫苗 自曝隔天出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳登阎奕格播客 开启台粤语对话引爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank">魏如萱接棒阿妹 主视觉跃上纽约时代广场巨幕</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/24/n13111732.md#1" target="_blank">篠原凉子与市村正亲离婚 两儿监护权归父亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank">永野芽郁一度被诊断为中暑 检疫后确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13108910.md#1" target="_blank">东京奥运今晚开幕 MISIA为开幕式领唱日本国歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13108671.md#1" target="_blank">高山一实宣布9月自乃木坂46毕业 秋元真夏落泪</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/20/n13101632.md#1" target="_blank">2PM刚结束韩文作打歌期 9月推出日文新专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank">魏如萱接棒阿妹 主视觉跃上纽约时代广场巨幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank">孙燕姿43岁生日发庆生照 许愿“平安就好”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pussbx395/djy/blob/master/gb/21/7/21/n13104459.md#1" target="_blank">黄昺翔疫情期间热心行善 送爱心便当给医护</a></h4></td></tr>
