@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13110984.md#1" target="_blank">吴宗宪接种第一剂疫苗 自曝隔天出现副作用</a><br></h3><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13110984.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/03/2003250907341487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109493.md#1" target="_blank">刘在锡与确诊者密切接触隔离中 节目暂停录影</a><br></h3><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109493.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109601-180219031215100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/25/n13113230.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13113239-2107250018291487-320x200.jpg"></a>
 <a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/24/n13111732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13111740-210724020952100707-320x200.jpg"></a>
 <a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13110120-170824170337100694-320x200.jpg"></a>
 <a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109820-2107230550481487-320x200.jpg"></a>
 <a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109641-2103030311251487-320x200.jpg"></a>
 <a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13108671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13108672-210722213928100707-320x200.jpg"></a>
-<a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/22/n13108465.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13108630-GettyImages-1234108438-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/25/n13113230.md#1" target="_blank">李敏镐再推形象广告 3度蝉联品牌全球代言</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank">刘在锡与曹世镐PCR检疫皆阴性 曹世镐复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13110371.md#1" target="_blank">金永大退出《学校2021》遭误会 公司长文诉原由</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109717.md#1" target="_blank">韩国演艺圈频传确诊 《机智医生2》停播一周</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109493.md#1" target="_blank">刘在锡与确诊者密切接触隔离中 节目暂停录影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳登阎奕格播客 开启台粤语对话引爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/23/n13109376.md#1" target="_blank">《高雄玩夯局》邀郭书瑶等名人体验港都风情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ggqrqi315/djy/blob/master/gb/21/7/22/n13107563.md#1" target="_blank">李翊君客串八点档 一看洪都拉斯就笑场</a></h4></td></tr>
