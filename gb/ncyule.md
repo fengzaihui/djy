@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110829.md#1" target="_blank">《时代革命》团队宣布：影片版权已转到海外</a><br></h3><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110829.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13093511-e4a631c406eb8737fbe515b72c324ecb-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110984.md#1" target="_blank">吴宗宪接种第一剂疫苗 自曝隔天出现副作用</a><br></h3><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110984.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/03/2003250907341487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13114770-GettyImages-462625723-320x200.jpg"></a>
 <a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/25/n13114186.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13114245-2107251014071487-320x200.jpg"></a>
 <a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/25/n13113230.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13113239-2107250018291487-320x200.jpg"></a>
 <a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/24/n13111732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13111740-210724020952100707-320x200.jpg"></a>
 <a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13110120-170824170337100694-320x200.jpg"></a>
 <a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109820-2107230550481487-320x200.jpg"></a>
-<a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109641-2103030311251487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -23,10 +23,10 @@
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/19/n13100208.md#1" target="_blank">频被拍肚凸传怀孕 范冰冰：是谁在诋毁我</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/25/n13113230.md#1" target="_blank">李敏镐再推形象广告 3度蝉联品牌全球代言</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank">刘在锡与曹世镐PCR检疫皆阴性 曹世镐复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110371.md#1" target="_blank">金永大退出《学校2021》遭误会 公司长文诉原由</a></h4></td></tr>
