@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13113053.md#1" target="_blank">巴钰生日产女 喜迎客制化“奶香蛋糕”</a><br></h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13113053.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13113071-2102202136411487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank">刘在锡与曹世镐PCR检疫皆阴性 曹世镐复工</a><br></h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13111824-180219031215100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115696.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13115732-2107260309481487-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115667.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13115676-210726023041100707-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13114770-GettyImages-462625723-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13114186.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13114245-2107251014071487-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13111740-210724020952100707-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13110120-170824170337100694-320x200.jpg"></a>
-<a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109820-2107230550481487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109376.md#1" target="_blank">《高雄玩夯局》邀郭书瑶等名人体验港都风情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/22/n13107563.md#1" target="_blank">李翊君客串八点档 一看洪都拉斯就笑场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/21/n13105709.md#1" target="_blank">女儿2岁就用剪刀 吴凤从不阻止源于一理念</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115696.md#1" target="_blank">简沛恩懒理IG经营 为家猫开设账号性情大变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115329.md#1" target="_blank">新辑预售开红盘 蔡健雅联手梦幻团队填词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13114186.md#1" target="_blank">女儿半夜趴着直盯 简廷芮见监视器画面吓到</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13113053.md#1" target="_blank">巴钰生日产女 喜迎客制化“奶香蛋糕”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13110829.md#1" target="_blank">《时代革命》团队宣布：影片版权已转到海外</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111732.md#1" target="_blank">篠原凉子与市村正亲离婚 两儿监护权归父亲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank">永野芽郁一度被诊断为中暑 检疫后确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13108910.md#1" target="_blank">东京奥运今晚开幕 MISIA为开幕式领唱日本国歌</a></h4></td></tr>
