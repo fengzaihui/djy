@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13113053.md#1" target="_blank">巴钰生日产女 喜迎客制化“奶香蛋糕”</a><br></h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13113053.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13113071-2102202136411487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank">刘在锡与曹世镐PCR检疫皆阴性 曹世镐复工</a><br></h3><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13111824-180219031215100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115667.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13115676-210726023041100707-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13114770-GettyImages-462625723-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13114186.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13114245-2107251014071487-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111732.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13111740-210724020952100707-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109633.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13110120-170824170337100694-320x200.jpg"></a>
 <a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109820-2107230550481487-320x200.jpg"></a>
-<a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109641-2103030311251487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115667.md#1" target="_blank">秀爱捐款1亿韩圜 帮助受疫情影响的弱势群体</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115286.md#1" target="_blank">池昌旭确诊染疫隔离治疗 新戏暂停拍摄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/26/n13115105.md#1" target="_blank">张基龙结束《现正分手中》拍摄 8月23日入伍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/25/n13113230.md#1" target="_blank">李敏镐再推形象广告 3度蝉联品牌全球代言</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank">刘在锡与曹世镐PCR检疫皆阴性 曹世镐复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳上阎奕格播客节目 台粤语对话引爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/23/n13109376.md#1" target="_blank">《高雄玩夯局》邀郭书瑶等名人体验港都风情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojaqxe3952/djy/blob/master/gb/21/7/22/n13107563.md#1" target="_blank">李翊君客串八点档 一看洪都拉斯就笑场</a></h4></td></tr>
