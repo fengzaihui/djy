@@ -31,7 +31,7 @@
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/24/n13111816.md#1" target="_blank">刘在锡与曹世镐PCR检疫皆阴性 曹世镐复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110371.md#1" target="_blank">金永大退出《学校2021》遭误会 公司长文诉原由</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13109717.md#1" target="_blank">韩国演艺圈频传确诊 《机智医生2》停播一周</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳登阎奕格播客 开启台粤语对话引爆笑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳上阎奕格播客节目 台粤语对话引爆笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13109376.md#1" target="_blank">《高雄玩夯局》邀郭书瑶等名人体验港都风情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/22/n13107563.md#1" target="_blank">李翊君客串八点档 一看洪都拉斯就笑场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/21/n13105709.md#1" target="_blank">女儿2岁就用剪刀 吴凤从不阻止源于一理念</a></h4></td></tr>
@@ -49,14 +49,14 @@
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/21/n13105460.md#1" target="_blank">57岁刘青云近照曝光 粉丝惊呼认不出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/18/n13097589.md#1" target="_blank">黄晓明发文晒外婆家内景 家中细节引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/19/n13100030.md#1" target="_blank">邓丽君别样“现身” 完美原声鼓励台湾防疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/18/n13097793.md#1" target="_blank">台占星师唐绮阳打疫苗 13小时后出现副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/22/n13108292.md#1" target="_blank">刘德华拍片慰问河南灾民 竟遭网民逼问捐款没</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/19/n13099664.md#1" target="_blank">吴亦凡陷桃色纠纷 反击大陆网红索讨巨款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/22/n13107732.md#1" target="_blank">星光二班女星喜诞女娃 为宝宝取苏格兰名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/22/n13108051.md#1" target="_blank">河南洪灾魔咒？成龙党庆高唱《怒吼吧黄河》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/23/n13110984.md#1" target="_blank">吴宗宪接种第一剂疫苗 自曝隔天出现副作用</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/19/n13099205.md#1" target="_blank">夏宇童打疫苗残剂 以为无症状半夜突高烧呕吐</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xijmdi3035/djy/blob/master/gb/21/7/21/n13105251.md#1" target="_blank">吴尊用三年打造新家 依华人传统庆乔迁之喜</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/xijmdi3035/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/xijmdi3035/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xijmdi3035/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/xijmdi3035/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
