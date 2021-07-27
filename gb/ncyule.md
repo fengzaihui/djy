@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/26/n13116251.md#1" target="_blank">钟孟宏《瀑布》入围威尼斯影展 贾静雯深感荣耀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/26/n13116030.md#1" target="_blank">相隔10年重返八点档 岳虹喜收上千件华服</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/23/n13110353.md#1" target="_blank">吴汶芳上阎奕格播客节目 台粤语对话引爆笑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/27/n13118252.md#1" target="_blank">台俄首度合作戏剧 郭雪芙、蔡凡熙赴冬宫拍戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/26/n13117437.md#1" target="_blank">因当记者入镜王祖贤昔日片场照 古巨基成明星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/27/n13117895.md#1" target="_blank">余苑绮癌症复发 经手术17小时煎熬后崩溃大哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/26/n13117280.md#1" target="_blank">被周润发带着行山兼按摩 卢海鹏称不再用拐杖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/26/n13117050.md#1" target="_blank">工作人员接触确诊者 古天乐打造女团推迟出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/26/n13115361.md#1" target="_blank">Snow Man单曲首周热销82万张 录影片介绍新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/26/n13116006.md#1" target="_blank">山下健二郎与朝比奈彩结婚 共同打造美好家庭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/24/n13111732.md#1" target="_blank">篠原凉子与市村正亲离婚 两儿监护权归父亲</a></h4></td></tr>
@@ -49,12 +49,12 @@
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/21/n13104459.md#1" target="_blank">黄昺翔疫情期间热心行善 送爱心便当给医护</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/21/n13105460.md#1" target="_blank">57岁刘青云近照曝光 粉丝惊呼认不出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/22/n13108292.md#1" target="_blank">刘德华拍片慰问河南灾民 竟遭网民逼问捐款没</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/22/n13108292.md#1" target="_blank">刘德华拍片慰问河南灾民 竟遭网民逼问捐款没</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/22/n13107732.md#1" target="_blank">星光二班女星喜诞女娃 为宝宝取苏格兰名</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/22/n13108051.md#1" target="_blank">河南洪灾魔咒？成龙党庆高唱《怒吼吧黄河》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/23/n13110984.md#1" target="_blank">吴宗宪接种第一剂疫苗 自曝隔天出现副作用</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/22/n13108051.md#1" target="_blank">河南洪灾魔咒？成龙党庆高唱《怒吼吧黄河》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/21/n13105251.md#1" target="_blank">吴尊用三年打造新家 依华人传统庆乔迁之喜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/23/n13110829.md#1" target="_blank">《时代革命》团队宣布：影片版权已转到海外</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/shygqw3096/djy/blob/master/gb/21/7/20/n13102588.md#1" target="_blank">不舍台湾遭疫情打击 杜汶泽宣布捐待用餐</a></h4></td></tr>
