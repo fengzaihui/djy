@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13116251.md#1" target="_blank">钟孟宏《瀑布》入围威尼斯影展 贾静雯深感荣耀</a><br></h3><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13116251.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13116292-2107260842321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13115286.md#1" target="_blank">池昌旭确诊染疫隔离治疗 新戏暂停拍摄</a><br></h3><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13115286.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13115291-2101092123271487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/27/n13118069.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13118070-2101250120131487-320x200.jpg"></a>
 <a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/27/n13117895.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13117935-1809251719512483-320x200.jpg"></a>
 <a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13117050.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13116176.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13116186-181005075832100707-320x200.jpg"></a>
 <a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13116030.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13116048-2107260601161487-320x200.jpg"></a>
 <a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13115696.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13115732-2107260309481487-320x200.jpg"></a>
-<a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13115667.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13115676-210726023041100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/20/n13101331.md#1" target="_blank">吴亦凡陷丑闻损失大 宝格丽等13品牌急切割</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/27/n13118069.md#1" target="_blank">赵炳圭遭抹黑霸凌案 网友承认造谣写道歉函</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/27/n13117899.md#1" target="_blank">BTS忧难回报粉丝喜爱 任UN特使“沉重又开心”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/27/n13117684.md#1" target="_blank">BTS《Butter》重回Hot 100榜冠军 告示牌首例</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13116176.md#1" target="_blank">D.O.发行首张专辑《共感》 盼带来正面能量</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13115981.md#1" target="_blank">CIX遭疑抄袭《网球王子》 相关周边商品停卖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13117280.md#1" target="_blank">被周润发带着行山兼按摩 卢海鹏称不再用拐杖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13116251.md#1" target="_blank">钟孟宏《瀑布》入围威尼斯影展 贾静雯深感荣耀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kgzahq3256/djy/blob/master/gb/21/7/26/n13116030.md#1" target="_blank">相隔10年重返八点档 岳虹喜收上千件华服</a></h4></td></tr>
