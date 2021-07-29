@@ -30,10 +30,10 @@
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank">GFRIEND所愿与IOK商议合约 或与赵寅成同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122657.md#1" target="_blank">全智贤分享瘦身秘笈 不用惯用的手进食成关键</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank">五熊宣布离开《型男》惹曾国城泪洒现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120383.md#1" target="_blank">台北电影奖改10月9日颁奖 规划3种举行方案</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120241.md#1" target="_blank">台剧《三只小猪》复拍 王传一停工期间享天伦</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/26/n13117280.md#1" target="_blank">被周润发带着行山兼按摩 卢海鹏称不再用拐杖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122499.md#1" target="_blank">黄秋生宣布舞台剧加演1场 日夜连轴共演15场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13121268.md#1" target="_blank">超犀利趴首度取消 阿信创作新歌宽广以对</a></h4></td></tr>
