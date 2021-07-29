@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank">GFRIEND所愿与IOK商议合约 或与赵寅成同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/28/n13122657.md#1" target="_blank">全智贤分享瘦身秘笈 不用惯用的手进食成关键</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/28/n13120528.md#1" target="_blank">赵寅成捐5亿韩圜建学校 帮助贫困儿童就学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/28/n13120714.md#1" target="_blank">朴修弘与圈外人结婚：负责地活出自己的人生</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/28/n13120659.md#1" target="_blank">韩胜宇入伍进军乐队 IG上传平头照诉感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/28/n13120383.md#1" target="_blank">台北电影奖改10月9日颁奖 规划3种举行方案</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ojpzis376/djy/blob/master/gb/21/7/28/n13120241.md#1" target="_blank">台剧《三只小猪》复拍 王传一停工期间享天伦</a></h4></td></tr>
