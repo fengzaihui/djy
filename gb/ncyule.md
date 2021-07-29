@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122499.md#1" target="_blank">黄秋生宣布舞台剧加演1场 日夜连轴共演15场</a><br></h3><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122499.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/huangqiusheng-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120976.md#1" target="_blank">感谢母亲拒绝堕胎 世界知名男高音献唱致敬</a><br></h3><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120976.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13121345-Andrea-Bocelli-1200x720-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124700-210303031204100707-320x200.jpg"></a>
 <a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120920.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908071-2104270246491487-320x200.jpg"></a>
 <a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/27/n13119245.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13119279-2107270953421487-320x200.jpg"></a>
 <a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/27/n13118069.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13118070-2101250120131487-320x200.jpg"></a>
 <a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/26/n13117050.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
-<a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/26/n13116176.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13116186-181005075832100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/20/n13102805.md#1" target="_blank">吴奇隆刘诗诗结婚6年 友人爆夫妻俩互动模式</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank">GFRIEND所愿与IOK商议合约 或与赵寅成同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122657.md#1" target="_blank">全智贤分享瘦身秘笈 不用惯用的手进食成关键</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120528.md#1" target="_blank">赵寅成捐5亿韩圜建学校 帮助贫困儿童就学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120383.md#1" target="_blank">台北电影奖改10月9日颁奖 规划3种举行方案</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120241.md#1" target="_blank">台剧《三只小猪》复拍 王传一停工期间享天伦</a></h4></td></tr>
@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13122499.md#1" target="_blank">黄秋生宣布舞台剧加演1场 日夜连轴共演15场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13121268.md#1" target="_blank">超犀利趴首度取消 阿信创作新歌宽广以对</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120920.md#1" target="_blank">撞脸郭婞淳 夏于乔标记宋芸桦：我们沾金了！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/28/n13120717.md#1" target="_blank">“南海甜心”山崎静代 今年第二度确诊染疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/26/n13115361.md#1" target="_blank">Snow Man单曲首周热销82万张 录影片介绍新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/26/n13117437.md#1" target="_blank">因当记者入镜王祖贤昔日片场照 古巨基成明星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank">魏如萱接棒阿妹 主视觉跃上纽约时代广场巨幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fcclau3723/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank">孙燕姿43岁生日发庆生照 许愿“平安就好”</a></h4></td></tr>
