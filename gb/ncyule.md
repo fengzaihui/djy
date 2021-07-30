@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a><br></h3><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124700-210303031204100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a><br></h3><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123148-liu-dehua-bai-bingbing-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13127191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13127346-2107300805371487-320x200.jpg"></a>
 <a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126674.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126690-190719052104100707-320x200.jpg"></a>
 <a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126519-2107300227341487-320x200.jpg"></a>
 <a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124944-DSC_6301-320x200.jpg"></a>
 <a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124263-201224234818100707-320x200.jpg"></a>
 <a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123851-210528073021100707-320x200.jpg"></a>
-<a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/28/n13120920.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908071-2104270246491487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124973.md#1" target="_blank">东奥银牌选手杨勇纬 国中上综艺画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank">五熊宣布离开《型男》惹曾国城泪洒现场</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13127191.md#1" target="_blank">LuLu爆新恋情首现身 闻魏如萱祝贺娇羞逃跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126897.md#1" target="_blank">鱼丁糸推新辑 青峰叹：不知会不会有下一张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126686.md#1" target="_blank">严正岚宅家孵专辑 观摩影作想向张曼玉看齐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13125245.md#1" target="_blank">陈意涵宣布怀第二胎 年底喜迎女儿凑好字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13127191.md#1" target="_blank">LuLu爆新恋情首现身 闻魏如萱祝贺娇羞逃跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126686.md#1" target="_blank">严正岚宅家孵专辑 观摩影作想向张曼玉看齐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13125428.md#1" target="_blank">陈零九染疫后遗症严重 自曝每天吃镇定剂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/26/n13117437.md#1" target="_blank">因当记者入镜王祖贤昔日片场照 古巨基成明星</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank">魏如萱接棒阿妹 主视觉跃上纽约时代广场巨幕</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/27/n13119925.md#1" target="_blank">传胡歌饰《琅琊榜3》大配角 赵丽颖担女主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
