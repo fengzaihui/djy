@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a><br></h3><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123148-liu-dehua-bai-bingbing-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a><br></h3><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123155-210728212951100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126519-2107300227341487-320x200.jpg"></a>
 <a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124944-DSC_6301-320x200.jpg"></a>
 <a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124700-210303031204100707-320x200.jpg"></a>
 <a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124263-201224234818100707-320x200.jpg"></a>
 <a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123851-210528073021100707-320x200.jpg"></a>
 <a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13120920.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/04/id12908071-2104270246491487-320x200.jpg"></a>
-<a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13120241.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13120285-2107272112551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/27/n13119925.md#1" target="_blank">传胡歌饰《琅琊榜3》大配角 赵丽颖担女主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/30/n13126654.md#1" target="_blank">朴志训迷你四辑歌单公开 Lil Boi参与新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank">GFRIEND所愿与IOK商议合约 或与赵寅成同门</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13122657.md#1" target="_blank">全智贤分享瘦身秘笈 不用惯用的手进食成关键</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank">五熊宣布离开《型男》惹曾国城泪洒现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13120383.md#1" target="_blank">台北电影奖改10月9日颁奖 规划3种举行方案</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13125245.md#1" target="_blank">陈意涵宣布怀第二胎 年底喜迎女儿凑好字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13125428.md#1" target="_blank">陈零九染疫后遗症严重 自曝每天吃镇定剂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124973.md#1" target="_blank">奥运健儿杨勇纬国中画面曝光 轻松飞踢225公分</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
