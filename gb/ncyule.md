@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/28/n13120717.md#1" target="_blank">“南海甜心”山崎静代 今年第二度确诊染疫</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/29/n13125428.md#1" target="_blank">陈零九染疫后遗症严重 自曝每天吃镇定剂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/26/n13117437.md#1" target="_blank">因当记者入镜王祖贤昔日片场照 古巨基成明星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/23/n13109775.md#1" target="_blank">魏如萱接棒阿妹 主视觉跃上纽约时代广场巨幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/23/n13109627.md#1" target="_blank">孙燕姿43岁生日发庆生照 许愿“平安就好”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/21/n13104459.md#1" target="_blank">黄昺翔疫情期间热心行善 送爱心便当给医护</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/27/n13119925.md#1" target="_blank">传胡歌饰《琅琊榜3》大配角 赵丽颖担女主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bxtwgt347/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
