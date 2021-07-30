@@ -33,8 +33,8 @@
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124973.md#1" target="_blank">东奥银牌选手杨勇纬 国中上综艺画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank">五熊宣布离开《型男》惹曾国城泪洒现场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/28/n13122941.md#1" target="_blank">晒与刘德华往昔合照 白冰冰赞华仔是暖男</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126897.md#1" target="_blank">鱼丁糸推新辑 青峰叹：不知会不会有下一张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126686.md#1" target="_blank">严正岚宅家孵专辑 观摩影作想向张曼玉看齐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/plpwfo313/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
