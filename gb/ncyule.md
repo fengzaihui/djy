@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13127695.md#1" target="_blank">台湾疫情降级 黄明志抵台进行隔离拼复工</a><br></h3><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13127695.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13127704-2107301008451487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13126674.md#1" target="_blank">《惊奇队长2》公布演员阵容 朴叙俊在名单中</a><br></h3><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13126674.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126690-190719052104100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/31/n13129183.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13129190-180831073000100707-320x200.jpg"></a>
 <a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13127191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13127346-2107300805371487-320x200.jpg"></a>
 <a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13126897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126902-image1-320x200.jpeg"></a>
 <a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126519-2107300227341487-320x200.jpg"></a>
 <a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124944-DSC_6301-320x200.jpg"></a>
 <a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124263-201224234818100707-320x200.jpg"></a>
-<a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123851-210528073021100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/27/n13119925.md#1" target="_blank">传胡歌饰《琅琊榜3》大配角 赵丽颖担女主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/31/n13129183.md#1" target="_blank">BTOB旼赫出院瘦4公斤仍咳嗽 曝染疫痛苦三症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13126674.md#1" target="_blank">《惊奇队长2》公布演员阵容 朴叙俊在名单中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13126654.md#1" target="_blank">朴志训迷你四辑歌单公开 Lil Boi参与新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank">BTS与TWICE作品创佳绩 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13124973.md#1" target="_blank">东奥银牌选手杨勇纬 国中上综艺画面曝光</a></h4></td></tr>
@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/27/n13119925.md#1" target="_blank">传胡歌饰《琅琊榜3》大配角 赵丽颖担女主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/27/n13117895.md#1" target="_blank">余苑绮癌症复发 经手术17小时煎熬后崩溃大哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/27/n13117895.md#1" target="_blank">余苑绮癌症复发 经手术17小时煎熬后崩溃大哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/27/n13119690.md#1" target="_blank">黄子佼接种疫苗 10小时后陆续出现4副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypxych317/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
