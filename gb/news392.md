@@ -34,17 +34,7 @@
 
 假如没有习近平的任命，秦刚自行接任驻美大使，好像不大可能，但目前的情形的确本末倒置了。按照中共的规矩，只有习近平.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年07月29日 11:16 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/abqplk3258/djy/blob/master/gb/21/7/28/n13122746.md#1" target="_blank">周晓辉：南京疫情与辉瑞疫苗进中国 打脸北京</a><br></h3><a href="https://github.com/abqplk3258/djy/blob/master/gb/21/7/28/n13122746.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/07/id13089775-150758-150x120.jpeg" align ="left"></a>7月22日，中共外交部发言人赵立坚在主持例行记者会时，援引两天前斯里兰卡斯里贾亚瓦德纳普拉大学发布的关于中国国药疫苗有效性研究报告称，95%人群在接种两剂国药疫苗后可产生抗体，81.25%的人群中可诱导产生中和抗体。此外，研究还发现，国药疫苗对新冠变异毒株德尔塔（Delta）非常有效。因此，赵立坚颇为自豪地说，这充分说.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年07月29日 11:06 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/abqplk3258/djy/blob/master/gb/21/7/31/n13128964.md#1" target="_blank">慧真：那一刻……</a><br></h3>那一刻 地动山摇 雷鸣电闪
-那一刻 倾盆大雨 水漫金山
-那一刻 泄洪不知 汪洋一片
-那一刻 地铁惊魂 隧道车翻
-那一刻 夺命狂喊 害人网断
-那一刻 不闻预警 不见官员
-那一刻 生死一线 无人救援
-那一刻 正邪是非 一目了然
-那一刻 红魔祸害 天怒人怨
-那一刻 民间自救 泪飞感天
-那一刻 痛斥邪党 三.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年07月31日 2:47 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/abqplk3258/djy/blob/master/gb/21/7/29/n13122975.md#1" target="_blank">川人：何为邪党？中共又给美国人上了一课</a><br></h3><a href="https://github.com/abqplk3258/djy/blob/master/gb/21/7/29/n13122975.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123031-2021-07-28_193640-150x120.jpg" align ="left"></a>7月26日，美国常务副国务卿谢尔曼在天津与中共外交官员举行了“坦率的”讨论。谢尔曼在会后呼吁中共超越美中分歧，作为一个负责任的全球大国，与美国在气候变化和新冠大流行病等困难的全球问题上合作。针对美国干涉中共内政的指责，谢尔曼在接受美联社的采访时表示：“我们确实希望它们明白，人权不仅仅是一个内部事务，而是它们在签署联合国.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年07月29日 9:50 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/abqplk3258/djy/blob/master/gb/21/7/31/n13128616.md#1" target="_blank">清荷：政法官员说了实话</a><br></h3>一位记者朋友和我聊起他去云南采访的一件往事。那时他去云南采访某派出所的副所长，谈起警察这个职业时，副所长说，你看所里一会儿进来一个收破铜烂铁的，一会儿出去一个骑三轮车的，其实他们是警察，看起来就像小贩，要看起来像流氓，就达到最高境界了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年07月31日 11:22 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/abqplk3258/djy/blob/master/gb/21/7/29/n13125442.md#1" target="_blank">理悟：长江为何水倒流</a><br></h3>
 
