@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13128114.md#1" target="_blank">古天乐赞张家朗奥运夺冠 拒评同场《声梦》学员</a><br></h3><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13128114.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/11/171128075858100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13127695.md#1" target="_blank">台湾疫情降级 黄明志抵台进行隔离拼复工</a><br></h3><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13127695.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/07/id13127704-2107301008451487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13130326-2107312210101487-320x200.jpg"></a>
 <a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13127191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13127346-2107300805371487-320x200.jpg"></a>
 <a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13126897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126902-image1-320x200.jpeg"></a>
 <a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13126519-2107300227341487-320x200.jpg"></a>
 <a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124944-DSC_6301-320x200.jpg"></a>
 <a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13123889.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13124263-201224234818100707-320x200.jpg"></a>
-<a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13123848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13123851-210528073021100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13126674.md#1" target="_blank">《惊奇队长2》公布演员阵容 朴叙俊在名单中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13126654.md#1" target="_blank">朴志训迷你四辑歌单公开 Lil Boi参与新歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/8/1/n13130378.md#1" target="_blank">《当男人》票房近4.1亿 近日释出漏网片段</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13124973.md#1" target="_blank">东奥银牌选手杨勇纬 国中上综艺画面曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13124870.md#1" target="_blank">五熊宣布离开《型男》惹曾国城泪洒现场</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/8/1/n13130378.md#1" target="_blank">《当男人》票房近4.1亿 近日释出漏网片段</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13128360.md#1" target="_blank">戴资颖进东奥羽球女单4强 林志玲送神秘礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13127962.md#1" target="_blank">台湾资深艺人洪麟骤逝 享寿78岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13128114.md#1" target="_blank">古天乐赞张家朗奥运夺冠 拒评同场《声梦》学员</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13127695.md#1" target="_blank">台湾疫情降级 黄明志抵台进行隔离拼复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/30/n13128360.md#1" target="_blank">戴资颖进东奥羽球女单4强 林志玲送神秘礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/27/n13119690.md#1" target="_blank">黄子佼接种疫苗 10小时后陆续出现4副作用</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/28/n13120976.md#1" target="_blank">感谢母亲拒绝堕胎 世界知名男高音献唱致敬</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vfszcl3215/djy/blob/master/gb/21/7/27/n13120128.md#1" target="_blank">古天乐贺张家朗奥运夺冠 港民促拍运动员电影</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/vfszcl3215/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/vfszcl3215/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vfszcl3215/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/vfszcl3215/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
