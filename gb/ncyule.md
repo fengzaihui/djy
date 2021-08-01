@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/27/n13119925.md#1" target="_blank">传胡歌饰《琅琊榜3》大配角 赵丽颖担女主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/25/n13114539.md#1" target="_blank">50岁吴奇隆体能惊人 节目竞技完胜24岁男星</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/8/1/n13130420.md#1" target="_blank">宋承宪《VOICE 4》收尾 剧末伏笔铺梗第5季</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/31/n13129183.md#1" target="_blank">BTOB旼赫出院瘦4公斤仍咳嗽 曝染疫痛苦三症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/30/n13126674.md#1" target="_blank">《惊奇队长2》公布演员阵容 朴叙俊在名单中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/30/n13126654.md#1" target="_blank">朴志训迷你四辑歌单公开 Lil Boi参与新歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/8/1/n13130378.md#1" target="_blank">《当男人》票房近4.1亿 近日释出漏网片段</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
@@ -54,9 +54,9 @@
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/27/n13117895.md#1" target="_blank">余苑绮癌症复发 经手术17小时煎熬后崩溃大哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/30/n13128360.md#1" target="_blank">戴资颖进东奥羽球女单4强 林志玲送神秘礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/27/n13119690.md#1" target="_blank">黄子佼接种疫苗 10小时后陆续出现4副作用</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/28/n13120976.md#1" target="_blank">感谢母亲拒绝堕胎 世界知名男高音献唱致敬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/25/n13114673.md#1" target="_blank">陆毅12岁大女儿弹吉他 换牙后撞脸爸爸</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exlidm3194/djy/blob/master/gb/21/7/27/n13120128.md#1" target="_blank">古天乐贺张家朗奥运夺冠 港民促拍运动员电影</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/exlidm3194/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/exlidm3194/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/exlidm3194/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/exlidm3194/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
