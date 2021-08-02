@@ -2,6 +2,7 @@
 <tr><td width="742"><h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/21/7/31/n13128426.md#1" target="_blank">中俄军力对比 更现实的近邻威胁（二）</a><br></h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/21/7/31/n13128426.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/07/id13128435-GettyImages-1232737195-320x200.jpg" align ="left"></a>中共一直称俄罗斯是战略伙伴，俄罗斯仅称中俄关系达到历史最好水平，外界关注中俄是否可能结成军事联盟，似乎中俄之间应该没有多大威胁。但翻开历史就会发现，俄罗斯可能是中国最大的威胁，至少是其中之一。
 
 中共不自量力地在太平洋挑战美国，一旦失利或被削弱，俄罗斯可能就会趁火打劫。从军事角度看，中俄军力对比有相当现实的意义。.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月01日 7:26 AM	</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/21/8/2/n13132265.md#1" target="_blank">李方：逼迫李悔之自杀的国保监控人员，真的无辜吗？</a><br></h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/21/8/2/n13132265.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/07/id13109892-Screen-Shot-2021-07-23-at-8.32.26-pm-150x120.png" align ="left"></a>7月22日，伴随着郑州大水，传出了一个令人震惊的消息：著名公知李悔之，于当日8:19分留下遗书，之后喝农药自杀，于次日去世。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月02日 12:26 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/21/7/30/n13128346.md#1" target="_blank">沈舟：中共陆军训练继续露馅（上）</a><br></h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/21/7/30/n13128346.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/07/id13128347-GettyImages-486269106-150x120.jpg" align ="left"></a>近期中共陆军的训练继续露馅，有些确实超出了人们的想像，不过却都来自中共军队自己的公开报导。
 坦克为何“罢工”
 6月24日，中共军网报导，《某团探索破解高海拔地域训练技术战术难题》。
@@ -77,16 +78,5 @@
 见光党即死，死死死掩饰。
 云集花圈祭，围墙随即蔽。
 忍已无可忍，拆墙现仗义。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年07月31日 3:42 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/21/7/31/n13128964.md#1" target="_blank">慧真：那一刻……</a><br></h3>那一刻 地动山摇 雷鸣电闪
-那一刻 倾盆大雨 水漫金山
-那一刻 泄洪不知 汪洋一片
-那一刻 地铁惊魂 隧道车翻
-那一刻 夺命狂喊 害人网断
-那一刻 不闻预警 不见官员
-那一刻 生死一线 无人救援
-那一刻 正邪是非 一目了然
-那一刻 红魔祸害 天怒人怨
-那一刻 民间自救 泪飞感天
-那一刻 痛斥邪党 三.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年07月31日 2:47 PM			</td></tr>
 <tr><td><h3><a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/eirdkz3742/djy/blob/master/gb/news392.md#1<br><a href="https://github.com/eirdkz3742/djy/blob/master/gb/news392.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eirdkz3742/djy/blob/master/gb/news392.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/news392.htm">https://www.epochtimes.com/gb/news392.htm</a>    （国内需<a href="https://github.com/eirdkz3742/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
