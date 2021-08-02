@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13132040.md#1" target="_blank">GFRIEND所愿走演员路 以本名金韶情为名活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/1/n13130420.md#1" target="_blank">宋承宪《VOICE 4》收尾 剧末伏笔铺梗第5季</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/7/31/n13129183.md#1" target="_blank">BTOB旼赫出院瘦4公斤仍咳嗽 曝染疫痛苦三症状</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank">事业从零开始打拼 连静雯与简沛恩惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/1/n13130720.md#1" target="_blank">《三只小猪》复播 李天柱诠释失智症催泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/1/n13130378.md#1" target="_blank">《当男人》票房近4.1亿 近日释出漏网片段</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/7/30/n13126488.md#1" target="_blank">与相马茜分隔两地1年 李玖哲计划返日见太太</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank">事业从零开始打拼 连静雯与简沛恩惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13132948.md#1" target="_blank">林心如华服登场 与杨谨华感情世界互别苗头</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13132819.md#1" target="_blank">阿信为幸运女声制作EP 许富凯献声自称“五迷”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13132606.md#1" target="_blank">小蛮上月底产子 产程38小时“边睡边生”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13132312.md#1" target="_blank">王思佳产女报喜 晒母女合照气色极佳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/8/2/n13132087.md#1" target="_blank">AKB48七成员接连染疫 演唱会等活动停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdsozj366/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
