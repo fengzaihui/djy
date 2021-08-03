@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13133585.md#1" target="_blank">D.O.《Empathy》首周热销31万张 夺周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13132924.md#1" target="_blank">EXID哈妮染疫后康复 IG公开照片向粉丝报近况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13132040.md#1" target="_blank">GFRIEND所愿走演员路 以本名金韶情为名活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">遭AI换脸吴亦凡播《青簪行》？陈飞宇回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank">事业从零开始打拼 连静雯与简沛恩惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13130720.md#1" target="_blank">《三只小猪》复播 李天柱诠释失智症催泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13130378.md#1" target="_blank">《当男人》票房近4.1亿 近日释出漏网片段</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13134051.md#1" target="_blank">王齐麟开箱林志玲所赠礼物 暖心伴手礼首曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank">事业从零开始打拼 连静雯与简沛恩惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13132948.md#1" target="_blank">林心如华服登场 与杨谨华感情世界互别苗头</a></h4></td></tr>
