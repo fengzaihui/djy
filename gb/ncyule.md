@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13135272.md#1" target="_blank">新家成狗的便溺场所 宥胜太太气炸拉封锁线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13134051.md#1" target="_blank">王齐麟开箱林志玲所赠礼物 暖心伴手礼首曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13132087.md#1" target="_blank">AKB48七成员接连染疫 演唱会等活动停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/29/n13124378.md#1" target="_blank">TWICE日文三辑登榜单冠军 盼尽快与粉丝相见</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13132819.md#1" target="_blank">阿信为幸运女声制作EP 许富凯献声自称“五迷”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/30/n13127695.md#1" target="_blank">台湾疫情降级 黄明志抵台进行隔离拼复工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/30/n13127191.md#1" target="_blank">LuLu爆新恋情首现身 闻魏如萱祝贺娇羞逃跑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/30/n13126686.md#1" target="_blank">严正岚宅家孵专辑 观摩影作想向张曼玉看齐</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/27/n13119925.md#1" target="_blank">传胡歌饰《琅琊榜3》大配角 赵丽颖担女主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
