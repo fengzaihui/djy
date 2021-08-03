@@ -24,7 +24,7 @@
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">遭AI换脸吴亦凡播放《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演的《青簪行》？陈飞宇回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank">拍戏偶遇邓超广告牌 孙俪搞笑秀夫妻恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/7/31/n13129840.md#1" target="_blank">吴亦凡遭北京警方刑拘 被韩媒称前EXO成员惹议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134583.md#1" target="_blank">TREASURE道荣与苏庭焕染疫痊愈 解除隔离</a></h4></td></tr>
@@ -33,7 +33,7 @@
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13132040.md#1" target="_blank">GFRIEND所愿走演员路 以本名金韶情为名活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">遭AI换脸吴亦凡播放《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演的《青簪行》？陈飞宇回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank">事业从零开始打拼 连静雯与简沛恩惺惺相惜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134051.md#1" target="_blank">王齐麟开箱林志玲所赠礼物 暖心伴手礼首曝光</a></h4></td></tr>
