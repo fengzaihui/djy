@@ -24,7 +24,7 @@
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">遭AI换脸吴亦凡主演的《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank">拍戏偶遇邓超广告牌 孙俪搞笑秀夫妻恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/7/31/n13129840.md#1" target="_blank">吴亦凡遭北京警方刑拘 被韩媒称前EXO成员惹议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134628.md#1" target="_blank">BTS《Butter》九度夺Hot 100榜冠军 2021年新纪录</a></h4></td></tr>
@@ -34,7 +34,7 @@
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">遭AI换脸吴亦凡主演的《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13135272.md#1" target="_blank">新家成狗的便溺场所 宥胜太太气炸拉封锁线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
