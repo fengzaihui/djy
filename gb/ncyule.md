@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank">拍戏偶遇邓超广告牌 孙俪搞笑秀夫妻恩爱</a><br></h3><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/12/GettyImages-1062739428-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099896-GettyImages-1048412930-320x200.jpg"></a>
-<a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13134525-2108022108331487-320x200.jpg"></a>
 <a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13132606.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13132639-2002130308421487-320x200.jpg"></a>
 <a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/2/n13132312.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13132334-1605140938351487-320x200.jpg"></a>
 <a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13130720.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13130772-2108010402291487-320x200.jpg"></a>
 <a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13130420.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13130441-2107312317471487-320x200.jpg"></a>
+<a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13130326-2107312210101487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rhhfmo347/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
