@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134583.md#1" target="_blank">TREASURE道荣与苏庭焕染疫痊愈 解除隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13133585.md#1" target="_blank">D.O.《Empathy》首周热销31万张 夺周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13132924.md#1" target="_blank">EXID哈妮染疫后康复 IG公开照片向粉丝报近况</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">遭AI换脸吴亦凡主演的《青簪行》？陈飞宇回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank">事业从零开始打拼 连静雯与简沛恩惺惺相惜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13134051.md#1" target="_blank">王齐麟开箱林志玲所赠礼物 暖心伴手礼首曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank">事业从零开始打拼 连静雯与简沛恩惺惺相惜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13132948.md#1" target="_blank">林心如华服登场 与杨谨华感情世界互别苗头</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/2/n13132087.md#1" target="_blank">AKB48七成员接连染疫 演唱会等活动停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/1/n13131811.md#1" target="_blank">郭富城新片剧组撤离泰国 改香港搭景损失千万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/7/28/n13120976.md#1" target="_blank">感谢母亲拒绝堕胎 世界知名男高音献唱致敬</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank">拍戏偶遇邓超广告牌 孙俪搞笑秀夫妻恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/7/29/n13123079.md#1" target="_blank">林遣都与大岛优子宣布结婚：彼此的珍贵存在</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/21/7/30/n13128114.md#1" target="_blank">古天乐赞张家朗奥运夺冠 拒评同场《声梦》学员</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/gmqtdp3059/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/gmqtdp3059/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
