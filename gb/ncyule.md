@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13132040.md#1" target="_blank">GFRIEND所愿走演员路 以本名金韶情为名活动</a><br></h3><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13132040.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13132041-210528073021100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/1/n13131811.md#1" target="_blank">郭富城新片剧组撤离泰国 改香港搭景损失千万</a><br></h3><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/1/n13131811.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-498135728-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13133064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13133533-210802091742100707-320x200.jpg"></a>
 <a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13135272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135292-2108030311241487-320x200.jpg"></a>
 <a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13134741-2108022308451487-320x200.jpg"></a>
 <a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099896-GettyImages-1048412930-320x200.jpg"></a>
 <a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13133023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13134525-2108022108331487-320x200.jpg"></a>
 <a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13132606.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13132639-2002130308421487-320x200.jpg"></a>
-<a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13132312.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13132334-1605140938351487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank">拍戏偶遇邓超广告牌 孙俪搞笑秀夫妻恩爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13133064.md#1" target="_blank">ASTRO于夏季展现清爽感 创作迷你八辑获佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13134936.md#1" target="_blank">张贤胜离开CUBE娱乐 11年合约告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13134628.md#1" target="_blank">BTS《Butter》九度夺Hot 100榜冠军 2021年新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13134583.md#1" target="_blank">TREASURE道荣与苏庭焕染疫痊愈 解除隔离</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13133585.md#1" target="_blank">D.O.《Empathy》首周热销31万张 夺周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jbpbzz3513/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
