@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134628.md#1" target="_blank">BTS《Butter》九度夺Hot 100榜冠军 2021年新纪录</a><br></h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134628.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13134928-181010031707100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a><br></h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137779-2108040321221487-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137602-2108040205101487-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/01/oudi-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13133064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13133533-210802091742100707-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134936.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135332-180711234937100707-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135292-2108030311241487-320x200.jpg"></a>
-<a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13134741-2108022308451487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135431.md#1" target="_blank">李在真退伍直播诉近况 洪基先调皮妨碍再支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13133064.md#1" target="_blank">ASTRO于夏季展现清爽感 创作迷你八辑获佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134936.md#1" target="_blank">张贤胜离开CUBE娱乐 11年合约告终</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank">韩瑜打AZ疫苗出现症状 反复高烧“站不起来”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank">韩瑜打AZ疫苗出现症状 反复高烧“站不起来”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137721.md#1" target="_blank">打疫苗后仍确诊 46岁大马歌后住院1天就过世</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136549.md#1" target="_blank">“麟洋配”夺金有如神助 齐麟凯旋后感念黄历吉日</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137255.md#1" target="_blank">铃木奈奈健康状况不佳 暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13132087.md#1" target="_blank">AKB48七成员接连染疫 演唱会等活动停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
