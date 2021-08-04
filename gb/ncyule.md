@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137721.md#1" target="_blank">打疫苗后仍确诊 46岁大马歌后住院1天就过世</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136549.md#1" target="_blank">“麟洋配”夺金有如神助 齐麟凯旋后感念黄历吉日</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137255.md#1" target="_blank">铃木奈奈健康状况不佳 暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13132087.md#1" target="_blank">AKB48七成员接连染疫 演唱会等活动停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
