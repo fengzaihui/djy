@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134628.md#1" target="_blank">BTS《Butter》九度夺Hot 100榜冠军 2021年新纪录</a><br></h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134628.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13134928-181010031707100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a><br></h3><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540754-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137602-2108040205101487-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/01/oudi-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13133064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13133533-210802091742100707-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134936.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135332-180711234937100707-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135292-2108030311241487-320x200.jpg"></a>
 <a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13134741-2108022308451487-320x200.jpg"></a>
-<a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/07/id13099896-GettyImages-1048412930-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134587.md#1" target="_blank">小S为台湾选手加油遭批台独 朝野立委声援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137301.md#1" target="_blank">ASTRO《After Midnight》MV 刷新自身最佳成绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135431.md#1" target="_blank">李在真退伍直播诉近况 洪基先调皮妨碍再支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13133064.md#1" target="_blank">ASTRO于夏季展现清爽感 创作迷你八辑获佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134936.md#1" target="_blank">张贤胜离开CUBE娱乐 11年合约告终</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134628.md#1" target="_blank">BTS《Butter》九度夺Hot 100榜冠军 2021年新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13136549.md#1" target="_blank">“麟洋配”夺金有如神助 齐麟凯旋后感念黄历吉日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135272.md#1" target="_blank">新家成狗的便溺场所 宥胜太太气炸拉封锁线</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137255.md#1" target="_blank">铃木奈奈健康状况不佳 暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13132087.md#1" target="_blank">AKB48七成员接连染疫 演唱会等活动停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/8/2/n13132819.md#1" target="_blank">阿信为幸运女声制作EP 许富凯献声自称“五迷”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/30/n13127695.md#1" target="_blank">台湾疫情降级 黄明志抵台进行隔离拼复工</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/30/n13127191.md#1" target="_blank">LuLu爆新恋情首现身 闻魏如萱祝贺娇羞逃跑</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/29/n13125683.md#1" target="_blank">运动员出身的大陆女星 周冬雨的表现最亮眼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/luvafs343/djy/blob/master/gb/21/7/30/n13128360.md#1" target="_blank">戴资颖进东奥羽球女单4强 林志玲送神秘礼物</a></h4></td></tr>
