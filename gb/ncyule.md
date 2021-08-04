@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/3/n13134587.md#1" target="_blank">小S为台湾选手加油遭批台独 朝野立委声援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137731.md#1" target="_blank">MAMAMOO日文专辑9月发行 收录日文原创曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137932.md#1" target="_blank">李光洙演灾难动作喜剧 与车胜元掉入超级天坑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137301.md#1" target="_blank">ASTRO《After Midnight》MV 刷新自身最佳成绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/3/n13135431.md#1" target="_blank">李在真退伍直播诉近况 洪基先调皮妨碍再支持</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/2/n13133064.md#1" target="_blank">ASTRO于夏季展现清爽感 创作迷你八辑获佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank">韩瑜打AZ疫苗出现症状 反复高烧“站不起来”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/3/n13135122.md#1" target="_blank">《台湾那么旺》全新改版 黄大炜加入评审阵容</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/3/n13134677.md#1" target="_blank">天心惊喜加盟《俗女2》 与谢盈萱双后飙戏</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137721.md#1" target="_blank">打疫苗后仍确诊 46岁大马歌后住院1天就过世</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137731.md#1" target="_blank">MAMAMOO日文专辑9月发行 收录日文原创曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137255.md#1" target="_blank">铃木奈奈健康状况不佳 暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/2/n13132087.md#1" target="_blank">AKB48七成员接连染疫 演唱会等活动停办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/7/30/n13126068.md#1" target="_blank">市川猿之助与工作人员染疫 缺席歌舞伎演出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/7/30/n13126101.md#1" target="_blank">阵内智则确诊染疫 出现发烧症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ffngue315/djy/blob/master/gb/21/8/2/n13132819.md#1" target="_blank">阿信为幸运女声制作EP 许富凯献声自称“五迷”</a></h4></td></tr>
