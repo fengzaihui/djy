@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/4/n13137301.md#1" target="_blank">ASTRO《After Midnight》MV 刷新自身最佳成绩</a><br></h3><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/4/n13137301.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137605-210802091742100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140411-2108050250331487-320x200.jpg"></a>
+<a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138726-200621230153100707-320x200.jpg"></a>
 <a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/4/n13138449.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138477-2107021008221470-320x200.jpg"></a>
 <a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/4/n13137932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138021-2108040513121487-320x200.jpg"></a>
 <a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137602-2108040205101487-320x200.jpg"></a>
 <a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/3/n13134936.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135332-180711234937100707-320x200.jpg"></a>
-<a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/3/n13135272.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135292-2108030311241487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/7/31/n13129840.md#1" target="_blank">吴亦凡遭北京警方刑拘 被韩媒称前EXO成员惹议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/2/n13134051.md#1" target="_blank">王齐麟开箱林志玲所赠礼物 暖心伴手礼首曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/1/n13131811.md#1" target="_blank">郭富城新片剧组撤离泰国 改香港搭景损失千万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/1/n13131811.md#1" target="_blank">郭富城新片剧组撤离泰国 改香港搭景损失千万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank">拍戏偶遇邓超广告牌 孙俪搞笑秀夫妻恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mczpij310/djy/blob/master/gb/21/8/2/n13132040.md#1" target="_blank">GFRIEND所愿走演员路 以本名金韶情为名活动</a></h4></td></tr>
