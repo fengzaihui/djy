@@ -35,7 +35,7 @@
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140279.md#1" target="_blank">蕾哈娜资产17亿美元 登全球最富有女音乐家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140153.md#1" target="_blank">从爸爸刘亮佐的演出 刘子铨学到剧本外的发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank">韩瑜打AZ疫苗出现症状 反复高烧“站不起来”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140821.md#1" target="_blank">与虚拟邓丽君对谈 陈月卿忆本人：可爱睿智</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140821.md#1" target="_blank">虚拟邓丽君七夕将“视讯现身”慈善讲唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank">《综艺大集合》邀柔道银牌得主杨勇纬视讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140479.md#1" target="_blank">新女声巫咏欢首发单曲 父巫启贤当和声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank">赴美探病父 艾力克斯谈父亲从严厉到人生导师</a></h4></td></tr>
