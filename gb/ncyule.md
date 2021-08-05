@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank">韩瑜打AZ疫苗出现症状 反复高烧“站不起来”</a><br></h3><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137779-2108040321221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137301.md#1" target="_blank">ASTRO《After Midnight》MV 刷新自身最佳成绩</a><br></h3><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137301.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137605-210802091742100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140749-1711160223221487-320x200.jpg"></a>
 <a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140411-2108050250331487-320x200.jpg"></a>
 <a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138726-200621230153100707-320x200.jpg"></a>
 <a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13138449.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138477-2107021008221470-320x200.jpg"></a>
 <a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137932.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138021-2108040513121487-320x200.jpg"></a>
 <a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13137602-2108040205101487-320x200.jpg"></a>
-<a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/3/n13134936.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13135332-180711234937100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/3/n13134587.md#1" target="_blank">小S为台湾选手加油遭批台独 朝野立委声援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140340.md#1" target="_blank">XIUMIN染疫中断所有工作 EXO成员隔离中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13139783.md#1" target="_blank">权恩妃准备8月底发行个人专辑 获公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank">张根硕迎生日儿时照曝光 日文曲登榜单冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137731.md#1" target="_blank">MAMAMOO日文专辑9月发行 收录日文原创曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140279.md#1" target="_blank">蕾哈娜资产17亿美元 登全球最富有女音乐家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140153.md#1" target="_blank">从爸爸刘亮佐的演出 刘子铨学到剧本外的发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137752.md#1" target="_blank">韩瑜打AZ疫苗出现症状 反复高烧“站不起来”</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank">赴美探病父 艾力克斯谈父亲从严厉到人生导师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140153.md#1" target="_blank">从爸爸刘亮佐的演出 刘子铨学到剧本外的发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13139417.md#1" target="_blank">周润发将获香港浸会大学颁授荣誉人文博士</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140201.md#1" target="_blank">NiziU将出席音乐节活动 首度以Live演出会粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank">张根硕迎生日儿时照曝光 日文曲登榜单冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137731.md#1" target="_blank">MAMAMOO日文专辑9月发行 收录日文原创曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137255.md#1" target="_blank">铃木奈奈健康状况不佳 暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140479.md#1" target="_blank">新女声巫咏欢首发单曲 父巫启贤当和声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
