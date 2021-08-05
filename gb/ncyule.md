@@ -27,7 +27,7 @@
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/3/n13134587.md#1" target="_blank">小S为台湾选手加油遭批台独 朝野立委声援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/2/n13134230.md#1" target="_blank">以AI换脸吴亦凡主演《青簪行》？陈飞宇回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼于日本举行 网友忧当地疫情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140340.md#1" target="_blank">XIUMIN染疫中断所有工作 EXO成员隔离中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13139783.md#1" target="_blank">权恩妃准备8月底发行个人专辑 获公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank">张根硕迎生日儿时照曝光 日文曲登榜单冠军</a></h4></td></tr>
@@ -39,7 +39,7 @@
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank">赴美探病父 艾力克斯谈父亲从严厉到人生导师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140153.md#1" target="_blank">从爸爸刘亮佐的演出 刘子铨学到剧本外的发展</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13139417.md#1" target="_blank">周润发将获香港浸会大学颁授荣誉人文博士</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼于日本举行 网友忧当地疫情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/5/n13140201.md#1" target="_blank">NiziU将出席音乐节活动 首度以Live演出会粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank">张根硕迎生日儿时照曝光 日文曲登榜单冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liyrqe362/djy/blob/master/gb/21/8/4/n13137731.md#1" target="_blank">MAMAMOO日文专辑9月发行 收录日文原创曲</a></h4></td></tr>
