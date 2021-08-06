@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/3/n13136694.md#1" target="_blank">涉逃税被关422天旧事被重提 刘晓庆霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/3/n13134587.md#1" target="_blank">小S为台湾选手加油遭批台独 朝野立委声援</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank">TWICE公开预告照 首支英文单曲为《The Feels》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142614.md#1" target="_blank">JYP娱乐新女团三成员首度亮相 影片受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142364.md#1" target="_blank">疫情中朴宝英捐10万枚口罩 帮助消防员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140340.md#1" target="_blank">XIUMIN染疫中断所有工作 EXO成员隔离中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank">《综艺大集合》邀柔道银牌得主杨勇纬视讯</a></h4></td></tr>
