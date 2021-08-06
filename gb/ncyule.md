@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a><br></h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140749-1711160223221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140340.md#1" target="_blank">XIUMIN染疫中断所有工作 EXO成员隔离中</a><br></h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140340.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140608-201123031100100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143064-2108060232331487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142364.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13142518-1911130802561487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140777-170824170337100694-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140786-2108050548491487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140411-2108050250331487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138726-200621230153100707-320x200.jpg"></a>
-<a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/4/n13138449.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138477-2107021008221470-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank">《综艺大集合》邀柔道银牌得主杨勇纬视讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140279.md#1" target="_blank">蕾哈娜资产17亿美元 登全球最富有女音乐家</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持  “今年任务风格全变”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13142179.md#1" target="_blank">接种疫苗出现三大症状 港星潘迎紫被急送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140821.md#1" target="_blank">虚拟邓丽君七夕将“视讯现身”慈善讲唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank">《综艺大集合》邀柔道银牌得主杨勇纬视讯</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140479.md#1" target="_blank">新女声巫咏欢首发单曲 父巫启贤当和声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank">永野芽郁染疫康复 IG报近况感谢各界关心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140201.md#1" target="_blank">NiziU将出席音乐节活动 首度以Live演出会粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank">张根硕迎生日儿时照曝光 日文曲登榜单冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持  “今年任务风格全变”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140479.md#1" target="_blank">新女声巫咏欢首发单曲 父巫启贤当和声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/2/n13132819.md#1" target="_blank">阿信为幸运女声制作EP 许富凯献声自称“五迷”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/7/30/n13128360.md#1" target="_blank">戴资颖进东奥羽球女单4强 林志玲送神秘礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/7/31/n13129840.md#1" target="_blank">吴亦凡遭北京警方刑拘 被韩媒称前EXO成员惹议</a></h4></td></tr>
