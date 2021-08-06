@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a><br></h3><a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140749-1711160223221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143606-210608080012100707-320x200.jpg"></a>
+<a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143594-2108060556571487-320x200.jpg"></a>
 <a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143276-1707120634041487-320x200.jpg"></a>
 <a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143170-190129092355100707-320x200.jpg"></a>
 <a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/6/n13142364.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13142518-1911130802561487-320x200.jpg"></a>
 <a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140777-170824170337100694-320x200.jpg"></a>
-<a href="https://github.com/wzvuar344/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140786-2108050548491487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wzvuar344/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzvuar344/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
