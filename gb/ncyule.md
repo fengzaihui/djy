@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a><br></h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140749-1711160223221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140340.md#1" target="_blank">XIUMIN染疫中断所有工作 EXO成员隔离中</a><br></h3><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140340.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140608-201123031100100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143276-1707120634041487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143064-2108060232331487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142364.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13142518-1911130802561487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140777-170824170337100694-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140786-2108050548491487-320x200.jpg"></a>
 <a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140411-2108050250331487-320x200.jpg"></a>
-<a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/4/n13138440.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138726-200621230153100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/3/n13136694.md#1" target="_blank">涉逃税被关422天旧事被重提 刘晓庆霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/3/n13134587.md#1" target="_blank">小S为台湾选手加油遭批台独 朝野立委声援</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank">池昌旭染疫治疗结束 解除隔离重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank">TWICE公开预告照 首支英文单曲为《The Feels》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142614.md#1" target="_blank">JYP娱乐新女团三成员首度亮相 影片受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13142364.md#1" target="_blank">疫情中朴宝英捐10万枚口罩 帮助消防员</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank">《综艺大集合》邀柔道银牌得主杨勇纬视讯</a></h4></td></tr>
