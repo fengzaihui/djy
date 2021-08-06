@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank">《综艺大集合》邀柔道银牌得主杨勇纬视讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140279.md#1" target="_blank">蕾哈娜资产17亿美元 登全球最富有女音乐家</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143189.md#1" target="_blank">吴慷仁任公益代言人 助弱势家庭三餐不断炊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持  “今年任务风格全变”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13142179.md#1" target="_blank">接种疫苗出现三大症状 港星潘迎紫被急送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140821.md#1" target="_blank">虚拟邓丽君七夕将“视讯现身”慈善讲唱会</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank">《综艺大集合》邀柔道银牌得主杨勇纬视讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank">永野芽郁染疫康复 IG报近况感谢各界关心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/usdikj3066/djy/blob/master/gb/21/8/5/n13140201.md#1" target="_blank">NiziU将出席音乐节活动 首度以Live演出会粉丝</a></h4></td></tr>
