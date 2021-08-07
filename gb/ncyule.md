@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank">XIUMIN以外EXO成员检疫结果为阴性 隔离两周</a><br></h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143606-210608080012100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持 “今年任务风格全变”</a><br></h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143064-2108060232331487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13146029.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13146055-2108070546121487-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13145868.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13145869-210727090833100707-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13145879.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13145931-2108070408431487-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143594-2108060556571487-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143276-1707120634041487-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143170-190129092355100707-320x200.jpg"></a>
-<a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13142364.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13142518-1911130802561487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank">南方影展“1分钟” 介绍台湾当红演员不同作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13146029.md#1" target="_blank">于子育3个月没回家 想还原父亲手路菜孝敬妈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13145879.md#1" target="_blank">孙协志新节目复工 “好朋友”夏宇童加入班底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13144888.md#1" target="_blank">藉何诗蓓东奥获奖 梁咏琪鼓励6岁爱女学游泳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13144723.md#1" target="_blank">台湾疫情降级 杜汶泽分享餐厅内用第一餐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13144089.md#1" target="_blank">“爱它就是一辈子” 多位明星吁关怀流浪动物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank">永野芽郁染疫康复 IG报近况感谢各界关心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13140201.md#1" target="_blank">NiziU将出席音乐节活动 首度以Live演出会粉丝</a></h4></td></tr>
@@ -53,9 +53,9 @@
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/1/n13131811.md#1" target="_blank">郭富城新片剧组撤离泰国 改香港搭景损失千万</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/1/n13131758.md#1" target="_blank">拍戏偶遇邓超广告牌 孙俪搞笑秀夫妻恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/1/n13130307.md#1" target="_blank">康康身体又出状况 “结石卡输尿管”痛爆就医</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/3/n13136694.md#1" target="_blank">涉逃税被关422天旧事被重提 刘晓庆霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13142179.md#1" target="_blank">接种疫苗出现三大症状 港星潘迎紫被急送医</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/xsaszf3931/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
