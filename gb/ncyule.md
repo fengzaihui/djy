@@ -12,11 +12,11 @@
 <a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140777-170824170337100694-320x200.jpg"></a>
 <a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/8/5/n13140760.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140786-2108050548491487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/7/24/n13111390.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13111392-508313-320x200.jpg"><br>《恋人的最后情书》影评：相隔几十年的恋情 也能同时开花结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/7/15/n13089373.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13089378-506927-320x200.jpg"><br>《黑寡妇》影评：英雄的家庭 也能延伸出精彩冒险</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/7/10/n13079410.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13079412-506288-320x200.jpg"><br>《寻找奇迹水人》影评：传说故事 有时也成为希望寄托</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/7/3/n13065123.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13065125-505259-320x200.png"><br>《明日战争》影评：战争的威胁 也可能来自遥远未来</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/sfsqpj3579/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
