@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank">XIUMIN以外EXO成员检疫结果为阴性 隔离两周</a><br></h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143606-210608080012100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持 “今年任务风格全变”</a><br></h3><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143064-2108060232331487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13145868.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13145869-210727090833100707-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13145879.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13145931-2108070408431487-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143594-2108060556571487-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143276-1707120634041487-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143170-190129092355100707-320x200.jpg"></a>
 <a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13142364.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13142518-1911130802561487-320x200.jpg"></a>
-<a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13140777-170824170337100694-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/3/n13136694.md#1" target="_blank">涉逃税被关422天旧事被重提 刘晓庆霸气回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13145868.md#1" target="_blank">D.O.以《Rose》摘Solo出道首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank">XIUMIN以外EXO成员检疫结果为阴性 隔离两周</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank">池昌旭染疫治疗结束 解除隔离重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank">TWICE公开预告照 首支英文单曲为《The Feels》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13142614.md#1" target="_blank">JYP娱乐新女团三成员首度亮相 影片受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/7/n13145879.md#1" target="_blank">孙协志新节目复工 “好朋友”夏宇童加入班底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank">南方影展“1分钟” 介绍台湾当红演员不同作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xsaszf3931/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
