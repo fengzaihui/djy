@@ -30,12 +30,12 @@
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank">DAY6小分队线上开唱 闻粉丝合唱感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149132.md#1" target="_blank">Brave Girls将发行改版专辑 为《We Ride》续作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13148870.md#1" target="_blank">BTOB旼赫再谈染疫症状 祝愿感染者健康痊愈</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱曝初恋像琼瑶剧 41岁仍单身萌念想冻卵</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱接受陈雅琳专访 曝初恋像琼瑶剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149577.md#1" target="_blank">《不可能的任务7》将杀青 女星晒与阿汤哥合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149542.md#1" target="_blank">看完剧本心碎 “庞德”接班人不演007宁演清洁工</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13148661.md#1" target="_blank">剧团险因疫情解散 赵自强申请纾困盼挺过难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13150072.md#1" target="_blank">叶家妤拍摄登台大秀 演出获赞羞认有大家的爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱曝初恋像琼瑶剧 41岁仍单身萌念想冻卵</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱接受陈雅琳专访 曝初恋像琼瑶剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank">写30首歌全被退 林隆璇靠研究2位音乐大师翻身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13148661.md#1" target="_blank">剧团险因疫情解散 赵自强申请纾困盼挺过难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
