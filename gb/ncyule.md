@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13144541.md#1" target="_blank">刘诗诗一年没拍戏 遭心急粉丝撂重话催逼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13149132.md#1" target="_blank">Brave Girls将发行改版专辑 为《We Ride》续作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13148870.md#1" target="_blank">BTOB旼赫再谈染疫症状 祝愿感染者健康痊愈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13145868.md#1" target="_blank">D.O.以《Rose》摘Solo出道首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank">XIUMIN以外EXO成员检疫结果为阴性 隔离两周</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank">池昌旭染疫治疗结束 解除隔离重启活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13148661.md#1" target="_blank">剧团险因疫情解散 赵自强申请纾困盼挺过难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13145879.md#1" target="_blank">孙协志新节目复工 “好朋友”夏宇童加入班底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank">南方影展“1分钟” 介绍台湾当红演员不同作品</a></h4></td></tr>
