@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13145868.md#1" target="_blank">D.O.以《Rose》摘Solo出道首座音乐节目冠军</a><br></h3><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13145868.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13145869-210727090833100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13144888.md#1" target="_blank">藉何诗蓓东奥获奖 梁咏琪鼓励6岁爱女学游泳</a><br></h3><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13144888.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/07/1-14-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13149303-2108090214131487-320x200.jpg"></a>
 <a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/8/n13147670.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13147673-191023233941100707-320x200.jpg"></a>
 <a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13146029.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13146055-2108070546121487-320x200.jpg"></a>
 <a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13145879.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13145931-2108070408431487-320x200.jpg"></a>
 <a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143594-2108060556571487-320x200.jpg"></a>
 <a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13143259.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143276-1707120634041487-320x200.jpg"></a>
-<a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13143170-190129092355100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13145879.md#1" target="_blank">孙协志新节目复工 “好朋友”夏宇童加入班底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13143551.md#1" target="_blank">南方影展“1分钟” 介绍台湾当红演员不同作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank">写30首歌全被退 林隆璇靠研究2位音乐大师翻身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13148661.md#1" target="_blank">剧团险因疫情解散 赵自强申请纾困盼挺过难关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13146718.md#1" target="_blank">林书豪接种疫苗后仍染疫 好友萧敬腾关心致意</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank">因不愿下跪遭中共撤三部戏 柯宇纶霸气回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/7/n13146029.md#1" target="_blank">于子育3个月没回家 想还原父亲手路菜孝敬妈</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/8/n13147670.md#1" target="_blank">泽村一树出现发烧倦怠症状 隔天确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank">永野芽郁染疫康复 IG报近况感谢各界关心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13140201.md#1" target="_blank">NiziU将出席音乐节活动 首度以Live演出会粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank">写30首歌全被退 林隆璇靠研究2位音乐大师翻身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持 “今年任务风格全变”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13140479.md#1" target="_blank">新女声巫咏欢首发单曲 父巫启贤当和声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/4/n13137579.md#1" target="_blank">邱胜翊郭雪芙合作 用4种语言翻唱影视歌曲</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/3/n13135651.md#1" target="_blank">韩睿阿沁首度合唱情歌 邀“钻石婚”夫妻入镜</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/grvkwy343/djy/blob/master/gb/21/8/2/n13134051.md#1" target="_blank">王齐麟开箱林志玲所赠礼物 暖心伴手礼首曝光</a></h4></td></tr>
