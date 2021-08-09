@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/7/n13146718.md#1" target="_blank">林书豪接种疫苗后仍染疫 好友萧敬腾关心致意</a><br></h3><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/7/n13146718.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13146780-lin-shuhao-xiao-jingteng-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank">因不愿下跪遭中共撤三部戏 柯宇纶霸气回应</a><br></h3><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13146702-KE-YULUN-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150351-1809012257581487-320x200.jpg"></a>
 <a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13150072.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150173-2108090855431487-320x200.jpg"></a>
 <a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13149682-2108090449171487-320x200.jpg"></a>
 <a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13149303-2108090214131487-320x200.jpg"></a>
 <a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/8/n13147670.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13147673-191023233941100707-320x200.jpg"></a>
-<a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/7/n13146029.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13146055-2108070546121487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/6/n13144541.md#1" target="_blank">刘诗诗一年没拍戏 遭心急粉丝撂重话催逼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/5/n13141759.md#1" target="_blank">巩俐领衔评审的电影节延期 折射北京疫情严重</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank">DAY6小分队线上开唱 闻粉丝合唱感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149132.md#1" target="_blank">Brave Girls将发行改版专辑 为《We Ride》续作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13148870.md#1" target="_blank">BTOB旼赫再谈染疫症状 祝愿感染者健康痊愈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/7/n13145868.md#1" target="_blank">D.O.以《Rose》摘Solo出道首座音乐节目冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/6/n13143386.md#1" target="_blank">XIUMIN以外EXO成员检疫结果为阴性 隔离两周</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱曝初恋像琼瑶剧 41岁仍单身萌念想冻卵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149577.md#1" target="_blank">《不可能的任务7》将杀青 女星晒与阿汤哥合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/loxbdj350/djy/blob/master/gb/21/8/9/n13149542.md#1" target="_blank">看完剧本心碎 “庞德”接班人不演007宁演清洁工</a></h4></td></tr>
