@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank">《南方公园》作者未来6年将出14部新影片</a><br></h3><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150023-GettyImages-452077022-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149684.md#1" target="_blank">车祸后仅2星期就复工 李光洙下月再度动手术</a><br></h3><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149684.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138024-2108040513221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13151540-2106170211321487-320x200.jpg"></a>
 <a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13150418.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150442-210809112836100707-320x200.jpg"></a>
 <a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150351-1809012257581487-320x200.jpg"></a>
 <a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13150072.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150173-2108090855431487-320x200.jpg"></a>
 <a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13149682-2108090449171487-320x200.jpg"></a>
-<a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13149303-2108090214131487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13150418.md#1" target="_blank">SEVENTEEN开4小时粉丝会 盼艰难时期疗愈粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank">DAY6小分队线上开唱 闻粉丝合唱感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149132.md#1" target="_blank">Brave Girls将发行改版专辑 为《We Ride》续作</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank">《南方公园》作者未来6年将出14部新影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱接受陈雅琳专访 曝初恋像琼瑶剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149577.md#1" target="_blank">《不可能的任务7》将杀青 女星晒与阿汤哥合照</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149542.md#1" target="_blank">看完剧本心碎 “庞德”接班人不演007宁演清洁工</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13150854.md#1" target="_blank">Ella分享爸妈结婚照 惊觉4岁儿隔代遗传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13150583.md#1" target="_blank">舒淇为冯德伦庆生 晒搞怪照别样秀恩爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13150072.md#1" target="_blank">叶家妤拍摄登台大秀 演出获赞羞认有大家的爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱接受陈雅琳专访 曝初恋像琼瑶剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/8/n13147670.md#1" target="_blank">泽村一树出现发烧倦怠症状 隔天确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank">永野芽郁染疫康复 IG报近况感谢各界关心</a></h4></td></tr>
