@@ -42,10 +42,10 @@
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/8/n13147670.md#1" target="_blank">泽村一树出现发烧倦怠症状 隔天确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/5/n13140762.md#1" target="_blank">永野芽郁染疫康复 IG报近况感谢各界关心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/5/n13140631.md#1" target="_blank">2021 AAA颁奖典礼办在日本 网友忧当地疫情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/9/n13150854.md#1" target="_blank">Ella分享爸妈结婚照 惊觉4岁儿隔代遗传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/9/n13150072.md#1" target="_blank">叶家妤拍摄登台大秀 演出获赞羞认有大家的爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank">写30首歌全被退 林隆璇靠研究2位音乐大师翻身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持 “今年任务风格全变”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/5/n13140479.md#1" target="_blank">新女声巫咏欢首发单曲 父巫启贤当和声</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufjkbb3241/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
