@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/8/n13148300.md#1" target="_blank">为减肥只吃“一根面条” 黄晓明遭宁静吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/6/n13144541.md#1" target="_blank">刘诗诗一年没拍戏 遭心急粉丝撂重话催逼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/10/n13151260.md#1" target="_blank">BTS《Butter》连11周居告示牌Hot 100榜上位圈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13150418.md#1" target="_blank">SEVENTEEN开4小时粉丝会 盼艰难时期疗愈粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank">DAY6小分队线上开唱 闻粉丝合唱感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149132.md#1" target="_blank">Brave Girls将发行改版专辑 为《We Ride》续作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13148870.md#1" target="_blank">BTOB旼赫再谈染疫症状 祝愿感染者健康痊愈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank">《南方公园》作者未来6年将出14部新影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149619.md#1" target="_blank">谢盈萱接受陈雅琳专访 曝初恋像琼瑶剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/9/n13149577.md#1" target="_blank">《不可能的任务7》将杀青 女星晒与阿汤哥合照</a></h4></td></tr>
@@ -50,12 +50,12 @@
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank">因不愿下跪遭中共撤三部戏 柯宇纶霸气回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/2/n13134387.md#1" target="_blank">范冰冰专注经营个人品牌 赴工厂为生产把关</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/5/n13142179.md#1" target="_blank">接种疫苗出现三大症状 港星潘迎紫被急送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank">TWICE公开预告照 首支英文单曲为《The Feels》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/3/n13136694.md#1" target="_blank">涉逃税被关422天旧事被重提 刘晓庆霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/3/n13134587.md#1" target="_blank">小S为台湾选手加油遭批台独 朝野立委声援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/5/n13140821.md#1" target="_blank">虚拟邓丽君七夕将“视讯现身”慈善讲唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/5/n13140378.md#1" target="_blank">赴美探病父 艾力克斯谈父亲从严厉到人生导师</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zklwcm3277/djy/blob/master/gb/21/8/6/n13144723.md#1" target="_blank">台湾疫情降级 杜汶泽分享餐厅内用第一餐</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/zklwcm3277/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/zklwcm3277/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zklwcm3277/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/zklwcm3277/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
