@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank">《南方公园》作者未来6年将出14部新影片</a><br></h3><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150023-GettyImages-452077022-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149684.md#1" target="_blank">车祸后仅2星期就复工 李光洙下月再度动手术</a><br></h3><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149684.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13138024-2108040513221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151785.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13151886-1607050653342384-320x200.jpg"></a>
 <a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13151988-2108100326011487-320x200.jpg"></a>
 <a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151876.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13151918-2108100252261487-320x200.jpg"></a>
 <a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13151540-2106170211321487-320x200.jpg"></a>
 <a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13150418.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150442-210809112836100707-320x200.jpg"></a>
 <a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150351-1809012257581487-320x200.jpg"></a>
-<a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13150072.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13150173-2108090855431487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/8/n13148300.md#1" target="_blank">为减肥只吃“一根面条” 黄晓明遭宁静吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/6/n13144541.md#1" target="_blank">刘诗诗一年没拍戏 遭心急粉丝撂重话催逼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151785.md#1" target="_blank">孝渊跳舞李秀满装忙无视的宣传短片 成话题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151876.md#1" target="_blank">《警察课程》开播 车太铉Krystal立约盼收视破10</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151260.md#1" target="_blank">BTS《Butter》连11周居告示牌Hot 100榜上位圈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13150418.md#1" target="_blank">SEVENTEEN开4小时粉丝会 盼艰难时期疗愈粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149575.md#1" target="_blank">DAY6小分队线上开唱 闻粉丝合唱感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank">《南方公园》作者未来6年将出14部新影片</a></h4></td></tr>
