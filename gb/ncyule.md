@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/8/n13148300.md#1" target="_blank">为减肥只吃“一根面条” 黄晓明遭宁静吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/6/n13144541.md#1" target="_blank">刘诗诗一年没拍戏 遭心急粉丝撂重话催逼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151781.md#1" target="_blank">ASTRO夏天带来清凉感 获《THE SHOW》冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151785.md#1" target="_blank">孝渊跳舞李秀满装忙无视的宣传短片 成话题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151876.md#1" target="_blank">《警察课程》开播 车太铉Krystal立约盼收视破10</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151260.md#1" target="_blank">BTS《Butter》连11周居告示牌Hot 100榜上位圈</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13150418.md#1" target="_blank">SEVENTEEN开4小时粉丝会 盼艰难时期疗愈粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank">《南方公园》作者未来6年将出14部新影片</a></h4></td></tr>
@@ -49,10 +49,10 @@
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持 “今年任务风格全变”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank">因不愿下跪遭中共撤三部戏 柯宇纶霸气回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/5/n13142179.md#1" target="_blank">接种疫苗出现三大症状 港星潘迎紫被急送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank">因不愿下跪遭中共撤三部戏 柯宇纶霸气回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/3/n13136914.md#1" target="_blank">欧汉声与郑云灿协议离婚 结束近七年婚姻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/5/n13142179.md#1" target="_blank">接种疫苗出现三大症状 港星潘迎紫被急送医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/6/n13142705.md#1" target="_blank">TWICE公开预告照 首支英文单曲为《The Feels》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/3/n13136694.md#1" target="_blank">涉逃税被关422天旧事被重提 刘晓庆霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/liezrg346/djy/blob/master/gb/21/8/5/n13140821.md#1" target="_blank">虚拟邓丽君七夕将“视讯现身”慈善讲唱会</a></h4></td></tr>
