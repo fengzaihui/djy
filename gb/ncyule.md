@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/9/n13149374.md#1" target="_blank">《南方公园》作者未来6年将出14部新影片</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank">本是小虎队第4成员 周传雄仍秉持传统创作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13153447.md#1" target="_blank">接种后确诊嫌康复慢 林书豪盼像超人一下痊愈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13152196.md#1" target="_blank">张钧甯演母胎单身收发员 再次与王柏杰合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/8/n13147670.md#1" target="_blank">泽村一树出现发烧倦怠症状 隔天确诊染疫</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/9/n13150854.md#1" target="_blank">Ella分享爸妈结婚照 惊觉4岁儿隔代遗传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/9/n13150072.md#1" target="_blank">叶家妤拍摄登台大秀 演出获赞羞认有大家的爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/9/n13149254.md#1" target="_blank">写30首歌全被退 林隆璇靠研究2位音乐大师翻身</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/6/n13143025.md#1" target="_blank">Lulu再任金曲奖主持 “今年任务风格全变”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
