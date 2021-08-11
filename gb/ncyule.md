@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/8/n13148300.md#1" target="_blank">为减肥只吃“一根面条” 黄晓明遭宁静吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/6/n13144541.md#1" target="_blank">刘诗诗一年没拍戏 遭心急粉丝撂重话催逼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154685.md#1" target="_blank">传裕株有望签约姜丹尼尔公司 尚未定案</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154308.md#1" target="_blank">Weeekly迷你四辑首周销量创自身最佳成绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13153931.md#1" target="_blank">尹启相本月登记结婚 对象是小他五岁的企业家</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13151781.md#1" target="_blank">ASTRO夏天带来清凉感 获《THE SHOW》冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank">本是小虎队第4成员 周传雄仍秉持传统创作</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/8/n13147670.md#1" target="_blank">泽村一树出现发烧倦怠症状 隔天确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154980.md#1" target="_blank">曾静玟帮母外送水蜜桃 苦恼疫情间“不方便”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilqkgo3395/djy/blob/master/gb/21/8/9/n13150854.md#1" target="_blank">Ella分享爸妈结婚照 惊觉4岁儿隔代遗传</a></h4></td></tr>
