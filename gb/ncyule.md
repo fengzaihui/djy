@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154995.md#1" target="_blank">泰勒丝新专辑11月发行 推特发帖邀粉丝猜谜</a><br></h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154995.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13155100-GettyImages-1170383972-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a><br></h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2007/05/705162252451487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157660-210505012125100707-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157562-200831003848100707-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157412-2108120620411487-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157083-190319234245100707-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157145.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157216-2108120432101487-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154980.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13155275-IMG_4623-320x200.jpg"></a>
-<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154637.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13154651-2108110515061487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫大陆录节目跌落舞台 摄影师目睹过程吓傻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13153249.md#1" target="_blank">邓超晒照炫耀儿女手写信 童言童语乐翻网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank">Somi以《DUMB DUMB》夺冠 又哭又笑谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank">BTS入围MTV VMA五奖 首度入围年度歌曲奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157586.md#1" target="_blank">TXT连9周入Billboard 200榜 新专辑预售56万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank">胜利涉及九项罪行 被判三年徒刑当庭拘留</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157145.md#1" target="_blank">《天坑》登韩票房冠军 车胜元因演员阵容参演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
