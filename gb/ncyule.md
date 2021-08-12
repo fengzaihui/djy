@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a><br></h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2007/05/705162252451487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank">本是小虎队第4成员 周传雄仍秉持传统创作</a><br></h3><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13153847-1506022215171487-533x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157412-2108120620411487-320x200.jpg"></a>
+<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157083-190319234245100707-320x200.jpg"></a>
+<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157145.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157216-2108120432101487-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13156921-2108120218541487-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-320x200.jpg"></a>
 <a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154980.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13155275-IMG_4623-320x200.jpg"></a>
-<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154637.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13154651-2108110515061487-320x200.jpg"></a>
-<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13154357-2108110227311487-320x200.jpg"></a>
-<a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13153008-201224234818100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157145.md#1" target="_blank">《天坑》登韩票房冠军 车胜元因演员阵容参演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156373.md#1" target="_blank">BTOB时隔9个月推出新作 特别专辑30日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154637.md#1" target="_blank">凤小岳规划浪漫七夕 提前送太太甜蜜大礼</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
