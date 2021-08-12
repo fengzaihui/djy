@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫大陆录节目跌落舞台 传摄影师目睹过程吓傻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13153249.md#1" target="_blank">邓超晒照炫耀儿女手写信 童言童语乐翻网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157586.md#1" target="_blank">TXT连9周入Billboard 200榜 新专辑预售56万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank">胜利涉及九项罪行 被判三年徒刑当庭拘留</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157145.md#1" target="_blank">《天坑》登韩票房冠军 车胜元因演员阵容参演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13156373.md#1" target="_blank">BTOB时隔9个月推出新作 特别专辑30日发行</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/9/n13149577.md#1" target="_blank">《不可能的任务7》将杀青 女星晒与阿汤哥合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/8/n13148300.md#1" target="_blank">为减肥只吃“一根面条” 黄晓明遭宁静吐槽</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/5/n13140821.md#1" target="_blank">虚拟邓丽君七夕将“视讯现身”慈善讲唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/9/n13150583.md#1" target="_blank">舒淇为冯德伦庆生 晒搞怪照别样秀恩爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhljve303/djy/blob/master/gb/21/8/6/n13144723.md#1" target="_blank">台湾疫情降级 杜汶泽分享餐厅内用第一餐</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/vhljve303/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/vhljve303/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vhljve303/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/vhljve303/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
