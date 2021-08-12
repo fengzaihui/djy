@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a><br></h3><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2007/05/705162252451487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank">本是小虎队第4成员 周传雄仍秉持传统创作</a><br></h3><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13153847-1506022215171487-533x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13156921-2108120218541487-320x200.jpg"></a>
 <a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-320x200.jpg"></a>
 <a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154980.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13155275-IMG_4623-320x200.jpg"></a>
 <a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154637.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13154651-2108110515061487-320x200.jpg"></a>
 <a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13154357-2108110227311487-320x200.jpg"></a>
 <a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13153008-201224234818100707-320x200.jpg"></a>
-<a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13151781.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13152373-210802091742100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154637.md#1" target="_blank">凤小岳规划浪漫七夕 提前送太太甜蜜大礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154995.md#1" target="_blank">泰勒丝新专辑11月发行 推特发帖邀粉丝猜谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154980.md#1" target="_blank">曾静玟帮母外送水蜜桃 苦恼疫情间“不方便”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
