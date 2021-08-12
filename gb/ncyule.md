@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫大陆录节目跌落舞台 传摄影师目睹过程吓傻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13153249.md#1" target="_blank">邓超晒照炫耀儿女手写信 童言童语乐翻网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156373.md#1" target="_blank">BTOB时隔9个月推出新作 特别专辑30日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154685.md#1" target="_blank">传裕株有望签约姜丹尼尔公司 尚未定案</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154308.md#1" target="_blank">Weeekly迷你四辑首周销量创自身最佳成绩</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13153931.md#1" target="_blank">尹启相本月登记结婚 对象是小他五岁的企业家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154637.md#1" target="_blank">凤小岳规划浪漫七夕 提前送太太甜蜜大礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank">本是小虎队第4成员 周传雄仍秉持传统创作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154995.md#1" target="_blank">泰勒丝新专辑11月发行 推特发帖邀粉丝猜谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154980.md#1" target="_blank">曾静玟帮母外送水蜜桃 苦恼疫情间“不方便”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/11/n13154319.md#1" target="_blank">鱼丁糸与导演程伟豪联手 推出专辑试听影集</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/9/n13150854.md#1" target="_blank">Ella分享爸妈结婚照 惊觉4岁儿隔代遗传</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xxixyw351/djy/blob/master/gb/21/8/5/n13141966.md#1" target="_blank">65岁刘晓庆扮老获好评 笑称全世界都惊讶</a></h4></td></tr>
