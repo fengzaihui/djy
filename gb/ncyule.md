@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫录陆综跌落舞台 摄影师目睹过程吓傻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13159172.md#1" target="_blank">ITZY推出首张正规专辑 9月24日发行六种版本</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank">Somi以《DUMB DUMB》夺冠 又哭又笑谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank">BTS入围MTV VMA五奖 首度入围年度歌曲奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157586.md#1" target="_blank">TXT连9周入Billboard 200榜 新专辑预售56万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank">胜利涉及九项罪行 被判三年徒刑当庭拘留</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13158976.md#1" target="_blank">8天内HKT48有9位成员确诊 剧场休馆13天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/9/n13149362.md#1" target="_blank">HKT48再增五人染疫 五天内六位成员确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154995.md#1" target="_blank">泰勒丝新专辑11月发行 推特发帖邀粉丝猜谜</a></h4></td></tr>
