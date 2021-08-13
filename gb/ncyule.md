@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a><br></h3><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13158201-fan-bingbing-zhang-junning-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫录陆综跌落舞台 摄影师目睹过程吓傻</a><br></h3><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/10/1610150933321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159732-2108130338571487-320x200.jpg"></a>
 <a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/05/DSC_0415_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157660-210505012125100707-320x200.jpg"></a>
 <a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157562-200831003848100707-320x200.jpg"></a>
 <a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157412-2108120620411487-320x200.jpg"></a>
 <a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157083-190319234245100707-320x200.jpg"></a>
-<a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157145.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157216-2108120432101487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank">蔡健雅太想家 听歌会上聊创作突感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13159441.md#1" target="_blank">邱锋泽走出情伤 七夕前发表 《微笑分手》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13158700.md#1" target="_blank">IG上发文称“中国” 胡杏儿遭小粉红轰港独</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13158976.md#1" target="_blank">8天内HKT48有9位成员确诊 剧场休馆13天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank">蔡健雅太想家 听歌会上聊创作突感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154995.md#1" target="_blank">泰勒丝新专辑11月发行 推特发帖邀粉丝猜谜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154980.md#1" target="_blank">曾静玟帮母外送水蜜桃 苦恼疫情间“不方便”</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank">因不愿下跪遭中共撤三部戏 柯宇纶霸气回应</a></h4></td></tr>
