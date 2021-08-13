@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154539.md#1" target="_blank">夏和熙主持美妆节目 点名2女艺人在家邋遢样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13152785.md#1" target="_blank">《斯卡罗》全球首映 曹瑞原导演率群演出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/10/n13151971.md#1" target="_blank">许玮甯代言“金片子” 与庄绚维合作拍广告</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13159441.md#1" target="_blank">邱锋泽走出情伤 七夕前发表 《微笑分手》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13158700.md#1" target="_blank">IG上发文称“中国” 胡杏儿遭小粉红轰港独</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/13/n13158976.md#1" target="_blank">8天内HKT48有9位成员确诊 剧场休馆13天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xejgby3625/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
