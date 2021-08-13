@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a><br></h3><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13158201-fan-bingbing-zhang-junning-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫录陆综跌落舞台 摄影师目睹过程吓傻</a><br></h3><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/10/1610150933321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160207-180813012350100707-320x200.jpg"></a>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159732-2108130338571487-320x200.jpg"></a>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157660-210505012125100707-320x200.jpg"></a>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157562-200831003848100707-320x200.jpg"></a>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157412-2108120620411487-320x200.jpg"></a>
-<a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157083-190319234245100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫录陆综跌落舞台 摄影师目睹过程吓傻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank">Apink为普美庆生 粉丝因“六缺一”心情复杂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13159330.md#1" target="_blank">AOA惠晶捐两千万韩圜消毒霜 助病童抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13159172.md#1" target="_blank">ITZY推出首张正规专辑 9月24日发行六种版本</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank">Somi以《DUMB DUMB》夺冠 又哭又笑谢粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank">BTS入围MTV VMA五奖 首度入围年度歌曲奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13160011.md#1" target="_blank">跆拳道铜牌罗嘉翎与父、兄上节目 谈心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13159869.md#1" target="_blank">郭婞淳田馥甄《谁来晚餐》分享妈妈牌美食</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
