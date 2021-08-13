@@ -6,10 +6,10 @@
 <tr><td><h3><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫录陆综跌落舞台 摄影师目睹过程吓傻</a><br></h3><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/10/1610150933321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159732-2108130338571487-320x200.jpg"></a>
-<a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/05/DSC_0415_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157660-210505012125100707-320x200.jpg"></a>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157562-200831003848100707-320x200.jpg"></a>
 <a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157412-2108120620411487-320x200.jpg"></a>
+<a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/12/n13156600.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157083-190319234245100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vbtdby377/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
