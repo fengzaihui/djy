@@ -5,7 +5,7 @@
 <tr><td width="742"><h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13161827.md#1" target="_blank">张菁：河南洪灾绝收农田的50元补助金</a><br></h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13161827.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13161847-GettyImages-577916906-600x400-150x120.jpg" align ="left"></a>近日，大陆多家媒体报道，七月下旬的洪涝灾害已造成河南150个县（市、区）1664个乡镇、1481.4万人受灾；农作物受灾面积1620万亩，成灾面积1001万亩，绝收面积513.7万亩；损毁房屋29.8万户92.86万间；直接经济损失1337.15亿元。
 
 对此，河南省农业农村厅、财政厅联合下发通知，对受灾农田追肥每.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月14日 1:53 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13161711.md#1" target="_blank">王友群：只因毛泽东一句话 部长张霖之文革被打死</a><br></h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13161711.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13161713-GettyImages-491970510-800x450-600x400-150x120.jpeg" align ="left"></a>十年文化大革命中，中共搞的对毛泽东的个人崇拜，达到登峰造极的地步。毛的话是“最高指示”。毛的一句话，可以使人生，也可以叫人死。
+<tr><td width="742"><h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13161711.md#1" target="_blank">王友群：因毛泽东一句话 部长张霖之文革被打死</a><br></h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13161711.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13161713-GettyImages-491970510-800x450-600x400-150x120.jpeg" align ="left"></a>十年文化大革命中，中共搞的对毛泽东的个人崇拜，达到登峰造极的地步。毛的话是“最高指示”。毛的一句话，可以使人生，也可以叫人死。
 毛泽东点名张霖之
 文革是1966年5月16日爆发的。
 
