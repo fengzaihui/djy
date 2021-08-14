@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank">Apink为普美庆生 粉丝因“六缺一”心情复杂</a><br></h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160207-180813012350100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159771.md#1" target="_blank">阿爆、彭佳慧、李玖哲等人 金曲奖上将献唱</a><br></h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159771.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159772-14dc1074bd511fb4e67527ecb35f2e7e-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13162074.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13162077-210802091742100707-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13160648.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160673-1811270449421487-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159732-2108130338571487-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159441.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159487-2108130149001487-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157660-210505012125100707-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157562-200831003848100707-320x200.jpg"></a>
-<a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157412-2108120620411487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13162074.md#1" target="_blank">ASTRO出道2000天拿冠军 车银优等人感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank">Apink为普美庆生 粉丝因“六缺一”心情复杂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159330.md#1" target="_blank">AOA惠晶捐两千万韩圜消毒霜 助病童抗疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159172.md#1" target="_blank">ITZY推出首张正规专辑 9月24日发行六种版本</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank">Somi以《DUMB DUMB》夺冠 又哭又笑谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank">48岁好莱坞女星迪亚茨 自曝7年前隐退原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13160011.md#1" target="_blank">跆拳道铜牌罗嘉翎与父、兄上节目 谈心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159869.md#1" target="_blank">郭婞淳田馥甄《谁来晚餐》分享妈妈牌美食</a></h4></td></tr>
@@ -51,8 +51,8 @@
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/7/n13146528.md#1" target="_blank">因不愿下跪遭中共撤三部戏 柯宇纶霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/10/n13151499.md#1" target="_blank">出车祸 夫又急诊动刀 陈仙梅为突发状况爆哭</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/9/n13149577.md#1" target="_blank">《不可能的任务7》将杀青 女星晒与阿汤哥合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/9/n13150583.md#1" target="_blank">舒淇为冯德伦庆生 晒搞怪照别样秀恩爱</a></h4></td></tr>
