@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank">Apink为普美庆生 粉丝因“六缺一”心情复杂</a><br></h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160207-180813012350100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159771.md#1" target="_blank">阿爆、彭佳慧、李玖哲等人 金曲奖上将献唱</a><br></h3><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159771.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159772-14dc1074bd511fb4e67527ecb35f2e7e-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13162409.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13162423-200112015148100707-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13162074.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13162077-210802091742100707-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13160648.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160673-1811270449421487-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159732-2108130338571487-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159441.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159487-2108130149001487-320x200.jpg"></a>
 <a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157660-210505012125100707-320x200.jpg"></a>
-<a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13157255.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157562-200831003848100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13162409.md#1" target="_blank">穗珍受争议影响退出团体 (G)I-DLE成五人体制</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/14/n13162074.md#1" target="_blank">ASTRO出道2000天拿冠军 车银优等人感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159989.md#1" target="_blank">Apink为普美庆生 粉丝因“六缺一”心情复杂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159330.md#1" target="_blank">AOA惠晶捐两千万韩圜消毒霜 助病童抗疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159172.md#1" target="_blank">ITZY推出首张正规专辑 9月24日发行六种版本</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank">48岁好莱坞女星迪亚茨 自曝7年前隐退原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13160011.md#1" target="_blank">跆拳道铜牌罗嘉翎与父、兄上节目 谈心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ycpube385/djy/blob/master/gb/21/8/13/n13159869.md#1" target="_blank">郭婞淳田馥甄《谁来晚餐》分享妈妈牌美食</a></h4></td></tr>
