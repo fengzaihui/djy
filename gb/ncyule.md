@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank">48岁好莱坞女星迪亚茨 自曝7年前隐退原因</a><br></h3><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13161392-GettyImages-482064107-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a><br></h3><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/01/zhaoyouting-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/15/n13163362.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13163376-2108150301241487-320x200.jpg"></a>
 <a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/15/n13163037.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13163080-2108142157281487-320x200.jpg"></a>
 <a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13160648.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160673-1811270449421487-320x200.jpg"></a>
 <a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13160011.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160260-2108130549391487-320x200.jpg"></a>
 <a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159732-2108130338571487-320x200.jpg"></a>
 <a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13159441.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159487-2108130149001487-320x200.jpg"></a>
-<a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/12/n13157656.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157660-210505012125100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank">48岁好莱坞女星迪亚茨 自曝7年前隐退原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13160011.md#1" target="_blank">跆拳道铜牌罗嘉翎与父、兄上节目 谈心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13159869.md#1" target="_blank">郭婞淳田馥甄《谁来晚餐》分享妈妈牌美食</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/15/n13163362.md#1" target="_blank">邱胜翊邱宇辰隔5年再合作 联手翻唱悲伤情歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/15/n13163129.md#1" target="_blank">《斯卡罗》选角太巧合  周厚安与角色同日生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/15/n13163037.md#1" target="_blank">文慧如七夕甜曝喜讯 接受制作人男友求婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13161140.md#1" target="_blank">“卧床5个月打300针”徐若瑄忆怀孕艰辛</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13160648.md#1" target="_blank">蔡昌宪升格当爸 听儿哭声与太太感动掉泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13158976.md#1" target="_blank">8天内HKT48有9位成员确诊 剧场休馆13天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/11/n13154048.md#1" target="_blank">森山直太朗染疫暂停活动 症状为体温升高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/10/n13153004.md#1" target="_blank">BTS、TWICE等韩团作品 获日本唱片协会认证</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/15/n13163362.md#1" target="_blank">邱胜翊邱宇辰隔5年再合作 联手翻唱悲伤情歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/15/n13163037.md#1" target="_blank">文慧如七夕甜曝喜讯 接受制作人男友求婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank">蔡健雅太想家 听歌会上聊创作突感性落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/12/n13156862.md#1" target="_blank">hito流行音乐奖今揭晓 田馥甄揽5奖成大赢家</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/12/n13156476.md#1" target="_blank">鱼丁糸回忆刚出道 只能唱邓丽君的歌唱到结束</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/10/n13151042.md#1" target="_blank">曾受周星驰邀请演男孩 24岁女星徐娇近况曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nzndlk332/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
