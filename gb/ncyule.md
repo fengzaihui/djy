@@ -4,12 +4,12 @@
 <tr><td><h3><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/14/n13162409.md#1" target="_blank">穗珍受争议影响退出团体 (G)I-DLE成五人体制</a><br></h3><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/14/n13162409.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13162423-200112015148100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/14/n13162074.md#1" target="_blank">ASTRO出道2000天拿冠军 车银优等人感慨落泪</a><br></h3><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/14/n13162074.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13162077-210802091742100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13165093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13165110-2005270814431487-320x200.jpg"></a>
 <a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13164402.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/2011120746341487-320x200.jpg"></a>
 <a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13163362.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13163376-2108150301241487-320x200.jpg"></a>
 <a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13163037.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13163080-2108142157281487-320x200.jpg"></a>
 <a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/13/n13160648.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160673-1811270449421487-320x200.jpg"></a>
 <a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/13/n13160011.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13160260-2108130549391487-320x200.jpg"></a>
-<a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/13/n13159707.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13159732-2108130338571487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -34,9 +34,9 @@
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13163414.md#1" target="_blank">吴申梅七夕带蛋糕探班 封Gino为“第一好男人”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13163129.md#1" target="_blank">《斯卡罗》选角太巧合  周厚安与角色同日生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank">48岁好莱坞女星迪亚茨 自曝7年前隐退原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13165093.md#1" target="_blank">父亲88节前夕猝逝 李维维心痛：接爸爸回家了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13164402.md#1" target="_blank">凤小岳痛失二宝 曝妻9月胎一颗肾没成形</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13163414.md#1" target="_blank">吴申梅七夕带蛋糕探班 封Gino为“第一好男人”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13163362.md#1" target="_blank">邱胜翊邱宇辰隔5年再合作 联手翻唱悲伤情歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13164597.md#1" target="_blank">AKB48再增4人确诊 上月底至今已19人染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13164554.md#1" target="_blank">井本绚子宣布怀上第一胎 孩子预计年末出生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/13/n13158976.md#1" target="_blank">8天内HKT48有9位成员确诊 剧场休馆13天</a></h4></td></tr>
