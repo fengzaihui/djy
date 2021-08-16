@@ -24,10 +24,10 @@
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13165228.md#1" target="_blank">宋智孝将蛋糕堆满屋迎生日 心怀感恩谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13165986.md#1" target="_blank">THE BOYZ《THRILL-ING》首周销量逾52万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13165324.md#1" target="_blank">DAY6 Young K宣布10月入伍 9月发行Solo专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13164721.md#1" target="_blank">泫雅拍MV期间昏倒 9月与男友DAWN推出新歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13164652.md#1" target="_blank">fromis_9原公司整合 经纪业务转由PLEDIS负责</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13165506.md#1" target="_blank">《斯卡罗》首播称冠 登Google台湾热搜排行第2名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/16/n13165262.md#1" target="_blank">王少伟上节目鉴宝 女主持是20年前广告拍档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lhbbsd3124/djy/blob/master/gb/21/8/15/n13164204.md#1" target="_blank">不满《尚气》被当实验品 主演呛迪士尼CEO</a></h4></td></tr>
