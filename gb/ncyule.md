@@ -10,7 +10,7 @@
 <a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167726.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167729-190208083747100707-320x200.jpg"></a>
 <a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167470.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167684-210524084138100707-320x200.jpg"></a>
 <a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167675-2108170219291487-320x200.jpg"></a>
-<a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167067-GettyImages-451618823-320x200.jpg"></a>
+<a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167435-2108162352551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank">居家防疫练就好手艺 蔡健雅端手工雕花上电台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 演员儿子谭俊彦回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13168071.md#1" target="_blank">杰尼斯名誉董事长玛丽喜多川离世 享寿93岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167912.md#1" target="_blank">志尊淳发烧后确诊染疫 3月曾因心肌炎住院</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank">北村匠海确诊染疫 DISH//其余三成员PCR阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/16/n13164597.md#1" target="_blank">AKB48再增4人确诊 上月底至今已19人染疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/16/n13164554.md#1" target="_blank">井本绚子宣布怀上第一胎 孩子预计年末出生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank">居家防疫练就好手艺 蔡健雅端手工雕花上电台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/16/n13165998.md#1" target="_blank">巫启贤有女传衣钵 巫咏欢感恩父母皆人生明师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/16/n13165799.md#1" target="_blank">AKB48 Team TP八月份公演 首以线上形式演出</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/10/n13153641.md#1" target="_blank">本是小虎队第4成员 周传雄仍秉持传统创作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫录陆综跌落舞台 摄影师目睹过程吓傻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank">48岁好莱坞女星迪亚茨 自曝7年前隐退原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/10/n13153447.md#1" target="_blank">接种后确诊嫌康复慢 林书豪盼像超人一下痊愈</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/zpfgng326/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/zpfgng326/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zpfgng326/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/zpfgng326/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
