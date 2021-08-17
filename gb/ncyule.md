@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167470.md#1" target="_blank">fromis_9换东家后首推新作 准备9月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167204.md#1" target="_blank">BTS《Butter》连续12周居告示牌Hot 100榜Top10</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165228.md#1" target="_blank">宋智孝将蛋糕堆满屋迎生日 心怀感恩谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165986.md#1" target="_blank">THE BOYZ《THRILL-ING》首周销量逾52万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165324.md#1" target="_blank">DAY6 Young K宣布10月入伍 9月发行Solo专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165506.md#1" target="_blank">《斯卡罗》首播称冠 登Google台湾热搜排行第2名</a></h4></td></tr>
