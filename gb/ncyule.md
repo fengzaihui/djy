@@ -5,6 +5,7 @@
 <tr><td><h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165308.md#1" target="_blank">与黄明志捐助大马医护 贾永婕谈曲折过程</a><br></h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165308.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13165978-1409240943142384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164652.md#1" target="_blank">fromis_9原公司整合 经纪业务转由PLEDIS负责</a><br></h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164652.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13164685-180629071914100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167675-2108170219291487-320x200.jpg"></a>
 <a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167067-GettyImages-451618823-320x200.jpg"></a>
 <a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167435-2108162352551487-320x200.jpg"></a>
 <a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167156-210816214924100707-320x200.jpg"></a>
@@ -34,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165506.md#1" target="_blank">《斯卡罗》首播称冠 登Google台湾热搜排行第2名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165262.md#1" target="_blank">王少伟上节目鉴宝 女主持是20年前广告拍档</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank">居家防疫练就好手艺 蔡健雅端手工雕花上电台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 演员儿子谭俊彦回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165998.md#1" target="_blank">巫启贤有女传衣钵 巫咏欢感恩父母皆人生明师</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165799.md#1" target="_blank">AKB48 Team TP八月份公演 首以线上形式演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank">北村匠海确诊染疫 DISH//其余三成员PCR阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164597.md#1" target="_blank">AKB48再增4人确诊 上月底至今已19人染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164554.md#1" target="_blank">井本绚子宣布怀上第一胎 孩子预计年末出生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/13/n13158976.md#1" target="_blank">8天内HKT48有9位成员确诊 剧场休馆13天</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank">居家防疫练就好手艺 蔡健雅端手工雕花上电台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165998.md#1" target="_blank">巫启贤有女传衣钵 巫咏欢感恩父母皆人生明师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165799.md#1" target="_blank">AKB48 Team TP八月份公演 首以线上形式演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/15/n13163362.md#1" target="_blank">邱胜翊邱宇辰隔5年再合作 联手翻唱悲伤情歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/15/n13163037.md#1" target="_blank">文慧如七夕甜曝喜讯 接受制作人男友求婚</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
