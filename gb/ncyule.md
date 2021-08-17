@@ -4,10 +4,11 @@
 <tr><td><h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165308.md#1" target="_blank">与黄明志捐助大马医护 贾永婕谈曲折过程</a><br></h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165308.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13165978-1409240943142384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164652.md#1" target="_blank">fromis_9原公司整合 经纪业务转由PLEDIS负责</a><br></h3><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164652.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13164685-180629071914100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167435-2108162352551487-320x200.jpg"></a>
+<a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167156-210816214924100707-320x200.jpg"></a>
 <a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165998.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13166022-2108160931481487-320x200.jpg"></a>
 <a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13165706-210527080747100707-320x200.jpg"></a>
 <a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165262.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13165322-2108160335301487-320x200.jpg"></a>
-<a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13165110-2005270814431487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -24,22 +25,22 @@
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167204.md#1" target="_blank">BTS《Butter》连续12周居告示牌Hot 100榜Top10</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165228.md#1" target="_blank">宋智孝将蛋糕堆满屋迎生日 心怀感恩谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165986.md#1" target="_blank">THE BOYZ《THRILL-ING》首周销量逾52万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165324.md#1" target="_blank">DAY6 Young K宣布10月入伍 9月发行Solo专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164721.md#1" target="_blank">泫雅拍MV期间昏倒 9月与男友DAWN推出新歌</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165506.md#1" target="_blank">《斯卡罗》首播称冠 登Google台湾热搜排行第2名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165262.md#1" target="_blank">王少伟上节目鉴宝 女主持是20年前广告拍档</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/15/n13164204.md#1" target="_blank">不满《尚气》被当实验品 主演呛迪士尼CEO</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165998.md#1" target="_blank">巫启贤有女传衣钵 巫咏欢感恩父母皆人生明师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165799.md#1" target="_blank">AKB48 Team TP八月份公演 首以线上形式演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165506.md#1" target="_blank">《斯卡罗》首播称冠 登Google台湾热搜排行第2名</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165397.md#1" target="_blank">林宥嘉认真筹备新辑 透露 “身体一度失衡”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank">北村匠海确诊染疫 DISH//其余三成员PCR阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164597.md#1" target="_blank">AKB48再增4人确诊 上月底至今已19人染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13164554.md#1" target="_blank">井本绚子宣布怀上第一胎 孩子预计年末出生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/13/n13158976.md#1" target="_blank">8天内HKT48有9位成员确诊 剧场休馆13天</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/11/n13155250.md#1" target="_blank">KARA迎日本出道11周年 昇延以日文问候粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165998.md#1" target="_blank">巫启贤有女传衣钵 巫咏欢感恩父母皆人生明师</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/16/n13165799.md#1" target="_blank">AKB48 Team TP八月份公演 首以线上形式演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dppmhb306/djy/blob/master/gb/21/8/15/n13163362.md#1" target="_blank">邱胜翊邱宇辰隔5年再合作 联手翻唱悲伤情歌</a></h4></td></tr>
