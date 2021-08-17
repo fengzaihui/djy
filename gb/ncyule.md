@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13168681.md#1" target="_blank">THE BOYZ摘《THRILL RIDE》首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13168141.md#1" target="_blank">Red Velvet久违回归好紧张 新作50区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167976.md#1" target="_blank">Stray Kids《NOEASY》预售达83万张 自身新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167726.md#1" target="_blank">传金采源加入HYBE旗下新女团 公司含糊回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167470.md#1" target="_blank">fromis_9换东家后首推新作 准备9月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167968.md#1" target="_blank">《斯卡罗》“卓杞笃”传罹癌 曹导：为他祈祷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zpfgng326/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
