@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a><br></h3><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13168597-2108170943471487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 其演员儿子谭俊彦回应</a><br></h3><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167067-GettyImages-451618823-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170051-2108180147151487-320x200.jpg"></a>
 <a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1062739428-1-1-320x200.jpg"></a>
+<a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168141.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13168160-210817070448100707-320x200.jpg"></a>
 <a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167968.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167984-2108170512531487-320x200.jpg"></a>
 <a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167912.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167954-210817045508100707-320x200.jpg"></a>
 <a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167726.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167729-190208083747100707-320x200.jpg"></a>
-<a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167470.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167684-210524084138100707-320x200.jpg"></a>
-<a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167675-2108170219291487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167968.md#1" target="_blank">《斯卡罗》“卓杞笃”传罹癌 曹导：为他祈祷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank">黄韵玲率音乐人金曲奖上表演 向罗大佑致敬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13169426.md#1" target="_blank">李若彤庆55岁生日 感恩被叫“姑姑”26年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168987.md#1" target="_blank">否认追17岁落选港姐 周星驰曾自曝未婚原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167416.md#1" target="_blank">黄秋生门下台湾10星曝光 谢佳见等名列表演班</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168071.md#1" target="_blank">杰尼斯名誉董事长玛丽喜多川离世 享寿93岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167912.md#1" target="_blank">志尊淳发烧后确诊染疫 3月曾因心肌炎住院</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank">北村匠海确诊染疫 DISH//其余三成员PCR阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13164597.md#1" target="_blank">AKB48再增4人确诊 上月底至今已19人染疫</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank">黄韵玲率音乐人金曲奖上表演 向罗大佑致敬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank">居家防疫练就好手艺 蔡健雅端手工雕花上电台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13165998.md#1" target="_blank">巫启贤有女传衣钵 巫咏欢感恩父母皆人生明师</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13165799.md#1" target="_blank">AKB48 Team TP八月份公演 首以线上形式演出</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 其演员儿子谭俊彦回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
