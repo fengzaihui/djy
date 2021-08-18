@@ -31,11 +31,11 @@
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13169514.md#1" target="_blank">文钟业为首张专辑《US》创作 台湾有专属活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168681.md#1" target="_blank">THE BOYZ摘《THRILL RIDE》首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168141.md#1" target="_blank">Red Velvet久违回归好紧张 新作50区iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》曝预告及海报 聚焦男女主角感人恋情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》公开预告及海报 聚焦男女主角恋情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170289.md#1" target="_blank">“黑寡妇”史嘉蕾将临盆 丈夫证实：令人兴奋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167968.md#1" target="_blank">《斯卡罗》“卓杞笃”传罹癌 曹导：为他祈祷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》曝预告及海报 聚焦男女主角感人恋情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》公开预告及海报 聚焦男女主角恋情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank">黄韵玲率音乐人金曲奖上表演 向罗大佑致敬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13169426.md#1" target="_blank">李若彤庆55岁生日 感恩被叫“姑姑”26年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168987.md#1" target="_blank">否认追17岁落选港姐 周星驰曾自曝未婚原因</a></h4></td></tr>
