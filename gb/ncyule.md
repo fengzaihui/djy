@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a><br></h3><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13168597-2108170943471487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 其演员儿子谭俊彦回应</a><br></h3><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167067-GettyImages-451618823-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13170447.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170550-181214094613100707-320x200.jpg"></a>
 <a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13170533.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170573-2012070934091470-320x200.jpg"></a>
 <a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170274-2108180329021487-320x200.jpg"></a>
 <a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170051-2108180147151487-320x200.jpg"></a>
 <a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1062739428-1-1-320x200.jpg"></a>
 <a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13168141.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13168160-210817070448100707-320x200.jpg"></a>
-<a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13167968.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167984-2108170512531487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13170447.md#1" target="_blank">TWICE定延仍为恐慌所苦 将缺席活动专注康复</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13169879.md#1" target="_blank">WINNER迎接出道七周年 全员与公司续约五年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13169514.md#1" target="_blank">文钟业为首张专辑《US》创作 台湾有专属活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13168681.md#1" target="_blank">THE BOYZ摘《THRILL RIDE》首座音乐节目冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13168141.md#1" target="_blank">Red Velvet久违回归好紧张 新作50区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》公开预告及海报 聚焦男女主角恋情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/18/n13170289.md#1" target="_blank">“黑寡妇”史嘉蕾将临盆 丈夫证实：令人兴奋</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
