@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 其演员儿子谭俊彦回应</a><br></h3><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167067-GettyImages-451618823-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a><br></h3><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-598116592-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1062739428-1-1-320x200.jpg"></a>
 <a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13167968.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167984-2108170512531487-320x200.jpg"></a>
 <a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13167912.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167954-210817045508100707-320x200.jpg"></a>
 <a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13167726.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167729-190208083747100707-320x200.jpg"></a>
 <a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13167470.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167684-210524084138100707-320x200.jpg"></a>
 <a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13167636.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167675-2108170219291487-320x200.jpg"></a>
-<a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13167435-2108162352551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -23,10 +23,10 @@
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13168681.md#1" target="_blank">THE BOYZ摘《THRILL RIDE》首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13168141.md#1" target="_blank">Red Velvet久违回归好紧张 新作50区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vyguhl331/djy/blob/master/gb/21/8/17/n13167976.md#1" target="_blank">Stray Kids《NOEASY》预售达83万张 自身新纪录</a></h4></td></tr>
