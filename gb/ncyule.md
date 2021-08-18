@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/12/n13158515.md#1" target="_blank">挺孙俪挨网酸蹭老婆热度 邓超三字回应超宠妻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13169879.md#1" target="_blank">WINNER迎接出道七周年 全员与公司续约五年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/18/n13169514.md#1" target="_blank">文钟业为首张专辑《US》创作 台湾有专属活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168681.md#1" target="_blank">THE BOYZ摘《THRILL RIDE》首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168141.md#1" target="_blank">Red Velvet久违回归好紧张 新作50区iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167976.md#1" target="_blank">Stray Kids《NOEASY》预售达83万张 自身新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167968.md#1" target="_blank">《斯卡罗》“卓杞笃”传罹癌 曹导：为他祈祷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/eaxlwu3579/djy/blob/master/gb/21/8/17/n13167296.md#1" target="_blank">疫情时代 李维维感触“要好好活着”爱自己</a></h4></td></tr>
