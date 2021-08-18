@@ -51,9 +51,9 @@
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 其演员儿子谭俊彦回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/12/n13158404.md#1" target="_blank">张智霖打算退出演艺圈？袁咏仪霸气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/11/n13156150.md#1" target="_blank">范冰冰晒与张钧甯合照 网友感佩闺密好交情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/11/n13155663.md#1" target="_blank">孙俪意外重看自己演的戏 吓到差点跌下跑步机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/12/n13158700.md#1" target="_blank">IG上发文称“中国” 胡杏儿遭小粉红轰港独</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fyhrto300/djy/blob/master/gb/21/8/11/n13155878.md#1" target="_blank">林志炫录陆综跌落舞台 摄影师目睹过程吓傻</a></h4></td></tr>
