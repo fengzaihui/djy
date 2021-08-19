@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172134.md#1" target="_blank">晟敏9月推出新专辑 时隔1年8个月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170637.md#1" target="_blank">TXT盼以新作展现成长 改版专辑15区iTunes夺冠</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173056.md#1" target="_blank">动力火车2度参与《晚餐》 期待与邦乔飞共餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13171969.md#1" target="_blank">从悉尼飞抵香港拍新戏 妮可·基嫚获豁免检疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170943.md#1" target="_blank">亚洲首届剧本征集优胜出炉 蔡淑臻任专业评审</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》公开预告及海报 聚焦男女主角恋情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173056.md#1" target="_blank">动力火车2度参与《晚餐》 期待与邦乔飞共餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172943.md#1" target="_blank">歌后蔡健雅、A-Lin 继阿妹登上纽约时代广场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172928.md#1" target="_blank">考量隔离期 今年金曲歌王入围者估仅半数出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13168071.md#1" target="_blank">杰尼斯名誉董事长玛丽喜多川离世 享寿93岁</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/12/n13157360.md#1" target="_blank">黄秋生出演台剧 超强气场令谢盈萱全身僵硬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/12/n13158700.md#1" target="_blank">IG上发文称“中国” 胡杏儿遭小粉红轰港独</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13169426.md#1" target="_blank">李若彤庆55岁生日 感恩被叫“姑姑”26年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13168987.md#1" target="_blank">否认追17岁落选港姐 周星驰曾自曝未婚原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13169426.md#1" target="_blank">李若彤庆55岁生日 感恩被叫“姑姑”26年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/13/n13161326.md#1" target="_blank">48岁好莱坞女星迪亚茨 自曝7年前隐退原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13167416.md#1" target="_blank">黄秋生门下台湾10星曝光 谢佳见等名列表演班</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/mumidp3404/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
