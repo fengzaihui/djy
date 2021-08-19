@@ -27,22 +27,22 @@
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172134.md#1" target="_blank">晟敏9月推出新专辑 时隔1年8个月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170637.md#1" target="_blank">TXT盼以新作展现成长 改版专辑15区iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170447.md#1" target="_blank">TWICE定延仍为恐慌所苦 将缺席活动专注康复</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173056.md#1" target="_blank">动力火车2度参与《晚餐》 期待与邦乔飞共餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13171969.md#1" target="_blank">从悉尼飞抵香港拍新戏 妮可·基嫚获豁免检疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170943.md#1" target="_blank">亚洲首届剧本征集优胜出炉 蔡淑臻任专业评审</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》公开预告及海报 聚焦男女主角恋情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173056.md#1" target="_blank">动力火车2度参与《晚餐》 期待与邦乔飞共餐</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172943.md#1" target="_blank">歌后蔡健雅、A-Lin 继阿妹登上纽约时代广场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172928.md#1" target="_blank">考量隔离期 今年金曲歌王入围者估仅半数出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13171388.md#1" target="_blank">户头一度只剩26港元 郑欣宜明年可领母亲遗产</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13168071.md#1" target="_blank">杰尼斯名誉董事长玛丽喜多川离世 享寿93岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13167912.md#1" target="_blank">志尊淳发烧后确诊染疫 3月曾因心肌炎住院</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank">北村匠海确诊染疫 DISH//其余三成员PCR阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank">黄韵玲率音乐人金曲奖上表演 向罗大佑致敬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
