@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173676.md#1" target="_blank">AOA金雪炫开设个人YouTube频道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173111.md#1" target="_blank">SJ东海与银赫同日接种疫苗 透露副作用症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172134.md#1" target="_blank">晟敏9月推出新专辑 时隔1年8个月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173286.md#1" target="_blank">张钧甯老灵魂自觉迟钝 购物最爱“泡脚桶”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173056.md#1" target="_blank">动力火车2度参与《晚餐》 期待与邦乔飞共餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
