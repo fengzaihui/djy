@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172134.md#1" target="_blank">晟敏9月推出新专辑 时隔1年8个月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170637.md#1" target="_blank">TXT盼以新作展现成长 改版专辑15区iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173056.md#1" target="_blank">动力火车2度参与《晚餐》 期待与邦乔飞共餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13171969.md#1" target="_blank">从悉尼飞抵香港拍新戏 妮可·基嫚获豁免检疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170943.md#1" target="_blank">亚洲首届剧本征集优胜出炉 蔡淑臻任专业评审</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13173056.md#1" target="_blank">动力火车2度参与《晚餐》 期待与邦乔飞共餐</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》公开预告及海报 聚焦男女主角恋情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172943.md#1" target="_blank">歌后蔡健雅、A-Lin 继阿妹登上纽约时代广场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172928.md#1" target="_blank">考量隔离期 今年金曲歌王入围者估仅半数出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mumidp3404/djy/blob/master/gb/21/8/17/n13168071.md#1" target="_blank">杰尼斯名誉董事长玛丽喜多川离世 享寿93岁</a></h4></td></tr>
