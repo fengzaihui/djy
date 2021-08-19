@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170447.md#1" target="_blank">TWICE定延仍为恐慌所苦 将缺席活动专注康复</a><br></h3><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170447.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170550-181214094613100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13169426.md#1" target="_blank">李若彤庆55岁生日 感恩被叫“姑姑”26年</a><br></h3><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13169426.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/181017080859100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172847-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172916-2010300334501487-320x200.jpg"></a>
 <a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172535-2108190038371487-320x200.jpg"></a>
 <a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170943.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170979-2108180907591487-320x200.jpg"></a>
 <a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170533.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170879-2108180824441487-320x200.jpg"></a>
 <a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13170274-2108180329021487-320x200.jpg"></a>
-<a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170289.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/09/5f692ccc280de3a0080702cc91f53b19-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
@@ -27,22 +27,22 @@
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172134.md#1" target="_blank">晟敏9月推出新专辑 时隔1年8个月回归乐坛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170637.md#1" target="_blank">TXT盼以新作展现成长 改版专辑15区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170447.md#1" target="_blank">TWICE定延仍为恐慌所苦 将缺席活动专注康复</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13169879.md#1" target="_blank">WINNER迎接出道七周年 全员与公司续约五年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13171969.md#1" target="_blank">从悉尼飞抵香港拍新戏 妮可·基嫚获豁免检疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170943.md#1" target="_blank">亚洲首届剧本征集优胜出炉 蔡淑臻任专业评审</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170244.md#1" target="_blank">《茶金》公开预告及海报 聚焦男女主角恋情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172928.md#1" target="_blank">考量隔离期 今年金曲歌王入围者估仅半数出席</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank">史嘉蕾?乔韩森产下男娃 丈夫IG分享喜悦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13171388.md#1" target="_blank">户头一度只剩26港元 郑欣宜明年可领母亲遗产</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170943.md#1" target="_blank">亚洲首届剧本征集优胜出炉 蔡淑臻任专业评审</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/17/n13168071.md#1" target="_blank">杰尼斯名誉董事长玛丽喜多川离世 享寿93岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/17/n13167912.md#1" target="_blank">志尊淳发烧后确诊染疫 3月曾因心肌炎住院</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/17/n13167147.md#1" target="_blank">北村匠海确诊染疫 DISH//其余三成员PCR阴性</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/16/n13164597.md#1" target="_blank">AKB48再增4人确诊 上月底至今已19人染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank">黄韵玲率音乐人金曲奖上表演 向罗大佑致敬</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zuuxgd304/djy/blob/master/gb/21/8/17/n13168564.md#1" target="_blank">本周末主持金曲奖 Lulu：会留较多时间给得奖人</a></h4></td></tr>
