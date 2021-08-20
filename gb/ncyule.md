@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13174092.md#1" target="_blank">瑞莎宣布怀二胎喊话宝宝：很期待见到你</a><br></h3><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13174092.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/03/1903120533272384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13171969.md#1" target="_blank">从悉尼飞抵香港拍新戏 妮可·基嫚获豁免检疫</a><br></h3><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13171969.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172175-GettyImages-1200627617-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13176115-2108170512531487-320x200.jpg"></a>
 <a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157148-511318-320x200.jpg"></a>
 <a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13175674-2108200355421487-320x200.jpg"></a>
 <a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13173111.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13173654-200929072042100707-320x200.jpg"></a>
 <a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172847-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172916-2010300334501487-320x200.jpg"></a>
+<a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172451.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172535-2108190038371487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更也能解谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175030.md#1" target="_blank">Young K将推出首张个人专辑 9月6日Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13174814.md#1" target="_blank">BTS世界巡回演唱会全面取消 准备新演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13173676.md#1" target="_blank">AOA金雪炫开设个人YouTube频道</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank">《斯卡罗》公开查马克生前影片 谈出演心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank">视讯录影遭4岁儿乱入 Janet分享疫情下真实生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank">李行导演因心肺衰竭离世 享耆寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13174689.md#1" target="_blank">妮歌洁曼获准免检疫拍戏</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank">《斯卡罗》公开查马克生前影片 谈出演心路历程</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13174293.md#1" target="_blank">“不让孩子成3C产品奴隶”吴凤育儿经引共鸣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank">《斯卡罗》演员查马克病逝 长子获奖献亡父</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175649.md#1" target="_blank">法比欧拍对手戏被激怒 吴慷仁卑微求生陷两难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank">视讯录影遭4岁儿乱入 Janet分享疫情下真实生活</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank">李行导演因心肺衰竭离世 享耆寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175236.md#1" target="_blank">82岁千叶真一染疫 因病情恶化离世 儿女诉心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
