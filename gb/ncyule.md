@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13174523.md#1" target="_blank">开音乐会庆49岁生日 郑秀文忆亡父泪洒舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13174293.md#1" target="_blank">“不让孩子成3C产品奴隶”吴凤育儿经引共鸣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13174092.md#1" target="_blank">瑞莎宣布怀二胎喊话宝宝：很期待见到你</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/20/n13175236.md#1" target="_blank">82岁千叶真一染疫 因病情恶化离世 儿女诉心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/17/n13168071.md#1" target="_blank">杰尼斯名誉董事长玛丽喜多川离世 享寿93岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/17/n13167912.md#1" target="_blank">志尊淳发烧后确诊染疫 3月曾因心肌炎住院</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13174523.md#1" target="_blank">开音乐会庆49岁生日 郑秀文忆亡父泪洒舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank">黄韵玲率音乐人金曲奖上表演 向罗大佑致敬</a></h4></td></tr>
