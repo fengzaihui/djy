@@ -12,7 +12,7 @@
 <a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172847-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172916-2010300334501487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更也能解谜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更能解谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/7/n13144461.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13144466-510535-320x200.jpg"><br>《路卡的夏天》影评：海怪可变成人类 创意设定成趣味看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/7/31/n13129590.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/07/id13129592-509498-320x200.jpg"><br>《丛林奇航》影评：丛林寻宝题材 再度被发扬光大！</a></h4></td></tr>
