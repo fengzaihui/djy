@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/20/n13175030.md#1" target="_blank">Young K将推出首张个人专辑 9月6日Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/20/n13174814.md#1" target="_blank">BTS世界巡回演唱会全面取消 准备新演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13173676.md#1" target="_blank">AOA金雪炫开设个人YouTube频道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13173111.md#1" target="_blank">SJ东海与银赫同日接种疫苗 透露副作用症状</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank">李行导演因心肺衰竭离世 享耆寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/20/n13174689.md#1" target="_blank">妮歌洁曼获准免检疫拍戏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/jwcced345/djy/blob/master/gb/21/8/19/n13174293.md#1" target="_blank">“不让孩子成3C产品奴隶”吴凤育儿经引共鸣</a></h4></td></tr>
