@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13176063.md#1" target="_blank">iKON成员Bobby宣布婚讯 为造成粉丝混乱致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175030.md#1" target="_blank">Young K将推出首张个人专辑 9月6日Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13174814.md#1" target="_blank">BTS世界巡回演唱会全面取消 准备新演出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13173676.md#1" target="_blank">AOA金雪炫开设个人YouTube频道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank">《斯卡罗》公开查马克生前影片 谈出演心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank">视讯录影遭4岁儿乱入 Janet分享疫情下真实生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank">李行导演因心肺衰竭离世 享耆寿91岁</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank">《斯卡罗》演员查马克病逝 长子获奖献亡父</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175649.md#1" target="_blank">法比欧拍对手戏被激怒 吴慷仁卑微求生陷两难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank">视讯录影遭4岁儿乱入 Janet分享疫情下真实生活</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13175236.md#1" target="_blank">82岁千叶真一染疫 因病情恶化离世 儿女诉心声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank">传宫胁咲良本月飞韩国签约 HYBE：无法确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13174523.md#1" target="_blank">开音乐会庆49岁生日 郑秀文忆亡父泪洒舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ufisoc353/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
