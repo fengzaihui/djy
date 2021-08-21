@@ -709,7 +709,8 @@ CBE将9月底之前对该决定进行审查，同时会考虑省.........<br><im
 <tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/18/n13171512.md#1" target="_blank">消息：阿富汗前总统几分钟内做出逃亡决定</a><br></h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/18/n13171512.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13171552-GettyImages-849746856-150x120.jpg" align ="left"></a>阿联酋政府周三（8月18日）证实，阿富汗前总统阿什拉夫?加尼（Ashraf Ghani）已逃往该国寻求庇护。美媒福克斯新闻当天报导，知情人士称，在塔利班攻城之时，喀布尔总统府内的加尼在几分钟内便做出了逃亡的决定。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 4:36 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/13/n13161108.md#1" target="_blank">【古韵流芳】张九龄《望月怀远》诗人遇见的月光</a><br></h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/13/n13161108.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13171604-f63bbc64b1ea40ebe94c1c10b659f054-150x120.jpg" align ="left"></a>无论从政治还是文学方面，张九龄都可称得上是“岭南第一人”了。他去世后，安史之乱也很快爆发了，他成了盛唐最后一位名相，被人追忆；而他笔下的明月光，也定格成盛唐别具一格的壮美画面，被后人永远铭记。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 4:22 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/18/n13171303.md#1" target="_blank">笑傲红朝：从中共历年的反腐成绩单揭露“六四”以来中共惊人的腐败</a><br></h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/18/n13171303.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/05/id12947348-1206261248262343-600x400-150x120.jpeg" align ="left"></a>轰轰烈烈的“八九·六四”学生民主爱国运动，最大的导火线是当年中共前总书记胡耀邦的突然含冤逝世，引起许多知识分子、广大学生的同情和怀念，于是自发地走上街头，悼念这位中共开明的领导人，继后悼念活动演变成北京学潮，学生们向当局提出了七项诉求，主要内容是“争取民主、新闻自由、实行政治体制改革、反官倒、反腐败、官员财产公开”。但.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 4:08 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/21/n13177423.md#1" target="_blank">波士顿恢复室内口罩要求</a><br></h3>为应对德尔塔变种病毒，波士顿市从8月27日（周五）上午8点开始恢复室内口罩要求。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月21日 11:51 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/19/n13171500.md#1" target="_blank">专家：心理健康应纳入学生课程</a><br></h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/19/n13171500.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13171571-shutterstock_1707410947-1-150x120.jpg" align ="left"></a>加拿大经历过1年半的COVID-19大流行后，一些专家认为，心理健康应成为学校教程的一部分。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 4:00 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/19/n13171502.md#1" target="_blank">加拿大7月通胀率增至3.7% 10年来最高</a><br></h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/19/n13171502.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13171556-23144008-150x120.jpg" align ="left"></a>加拿大统计局周三（8月18日）公布的数据显示，与去年同期相比，今年7月全国通胀率增至3.7%，不计汽油价格攀升，增幅高达2.8%。7月通胀率为自2011年5月以来最高。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 3:48 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/21/n13177178.md#1" target="_blank">【翻墙必看】中共为何紧急叫停一草案表决</a><br></h3>大纪元每天为读者梳理翻墙必看的文章：
 
 1 .【秦鹏直播】叫停港澳反制裁法 中南海害怕了？
@@ -980,4 +981,15 @@ AECOM 是一家“财富500强”公司，去年营收达132亿美元，该公�
 
 根据truthcomestolight.com网站报导，2020年12月5日，金因.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 4:38 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/19/n13171621.md#1" target="_blank">安省近半市政设施待修缮 至少需520亿</a><br></h3>安省财政问责办公室周二（8月17日）发布报告称，在查看了截至去年的省内市政基础设施状况和修缮成本后，预估45%的市政基础设施需要维修，至少耗资520亿元。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 4:34 AM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/qrilxe3364/djy/blob/master/gb/21/8/18/n13171471.md#1" target="_blank">五言古风：中元节祭奠·华佗之死</a><br></h3>
+真言大慈悲
+舍身救人危
+乱世邪恶猖
+毁人命垂危
+天谴人不知
+谗言耳边吹
+善恶不分辨
+欺善天泪垂
+滔天洪水降
+几人还在睡......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月19日 3:53 AM			</td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/qrilxe3364/djy/blob/master/gb/n24hr.md#1<br><a href="https://github.com/qrilxe3364/djy/blob/master/gb/n24hr.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qrilxe3364/djy/blob/master/gb/n24hr.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/n24hr.htm">https://www.epochtimes.com/gb/n24hr.htm</a>    （国内需<a href="https://github.com/qrilxe3364/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
