@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/19/n13174293.md#1" target="_blank">“不让孩子成3C产品奴隶”吴凤育儿经引共鸣</a><br></h3><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/19/n13174293.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2003180400291487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13176911.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12982110-2008250645501487-320x200.jpg"></a>
-<a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13176794.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/05/180513073654100311-320x200.jpg"></a>
 <a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13176115-2108170512531487-320x200.jpg"></a>
 <a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157148-511318-320x200.jpg"></a>
 <a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13175674-2108200355421487-320x200.jpg"></a>
 <a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/19/n13173111.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13173654-200929072042100707-320x200.jpg"></a>
+<a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172847-210311000901100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更能解谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
@@ -35,8 +35,8 @@
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank">视讯录影遭4岁儿乱入 Janet分享疫情下真实生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank">李行导演因心肺衰竭离世 享耆寿91岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13174689.md#1" target="_blank">妮歌洁曼获准免检疫拍戏</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13176911.md#1" target="_blank">赴大陆工作突挂急诊 杨丞琳晒病房照自嘲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13176794.md#1" target="_blank">自曝践行断食法十多年 古天乐每日只吃一餐</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13176911.md#1" target="_blank">赴大陆工作突挂急诊 杨丞琳晒病房照自嘲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank">《斯卡罗》公开查马克生前影片 谈出演心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank">《斯卡罗》演员查马克病逝 长子获奖献亡父</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lbfmuj387/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
