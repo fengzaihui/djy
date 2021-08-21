@@ -46,7 +46,7 @@
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178498.md#1" target="_blank">打败JJ青峰 “蛋堡”生活化歌词获评审青睐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178482.md#1" target="_blank">“金曲最大彩蛋” 杨勇纬与郭婞淳惊喜登场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank">田馥甄获金曲歌后：做专辑就像享受爬山</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178284.md#1" target="_blank">许富凯获台语歌王落泪 曹雅雯：比我得奖还紧张</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 其演员儿子谭俊彦回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
