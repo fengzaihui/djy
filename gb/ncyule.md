@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178012.md#1" target="_blank">“金曲32”红毯 瘦子、苏慧伦造型各显风格</a><br></h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178012.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178107-2108210855241487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a><br></h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13177138-liu-simu-liang-chaowei-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178435-2108211230291487-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178284.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178290-2108210924461487-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13177925-210303031204100707-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176911.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12982110-2008250645501487-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13176115-2108170512531487-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157148-511318-320x200.jpg"></a>
-<a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13175674-2108200355421487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更能解谜</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank">《斯卡罗》公开查马克生前影片 谈出演心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank">视讯录影遭4岁儿乱入 Janet分享疫情下真实生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank">李行导演因心肺衰竭离世 享耆寿91岁</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank">田馥甄获金曲歌后：做专辑就像享受爬山</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/18/n13170824.md#1" target="_blank">2021金曲奖完整得奖名单 华语歌后田馥甄胜出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178012.md#1" target="_blank">“金曲32”红毯 瘦子、苏慧伦造型各显风格</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176794.md#1" target="_blank">自曝践行断食法十多年 古天乐每日只吃一餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank">田馥甄获金曲歌后：做专辑就像享受爬山</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/19/n13174523.md#1" target="_blank">开音乐会庆49岁生日 郑秀文忆亡父泪洒舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/18/n13170023.md#1" target="_blank">黄韵玲率音乐人金曲奖上表演 向罗大佑致敬</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/16/n13166737.md#1" target="_blank">狄龙被传浴室昏厥送医 其演员儿子谭俊彦回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
