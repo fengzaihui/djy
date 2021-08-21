@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank">李行导演因心肺衰竭离世 享耆寿91岁</a><br></h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175308.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13175312-1806120756092384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13174814.md#1" target="_blank">BTS世界巡回演唱会全面取消 准备新演出</a><br></h3><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13174814.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13174932-200623032350100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13177925-210303031204100707-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176911.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12982110-2008250645501487-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13176115-2108170512531487-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13157148-511318-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13175674-2108200355421487-320x200.jpg"></a>
 <a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/19/n13173111.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13173654-200929072042100707-320x200.jpg"></a>
-<a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/19/n13172843.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172847-210311000901100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更能解谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/13/n13161001.md#1" target="_blank">自曝女儿长的像赵又廷 高圆圆将夫君摆第一</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176063.md#1" target="_blank">iKON成员Bobby宣布婚讯 为造成粉丝混乱致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175030.md#1" target="_blank">Young K将推出首张个人专辑 9月6日Solo出道</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13174814.md#1" target="_blank">BTS世界巡回演唱会全面取消 准备新演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank">《斯卡罗》公开查马克生前影片 谈出演心路历程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175603.md#1" target="_blank">视讯录影遭4岁儿乱入 Janet分享疫情下真实生活</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176794.md#1" target="_blank">自曝践行断食法十多年 古天乐每日只吃一餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176911.md#1" target="_blank">赴大陆工作突挂急诊 杨丞琳晒病房照自嘲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13175236.md#1" target="_blank">82岁千叶真一染疫 因病情恶化离世 儿女诉心声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/19/n13172981.md#1" target="_blank">2021 AAA于日本冲绳举办 不排除因疫情有变动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/19/n13174523.md#1" target="_blank">开音乐会庆49岁生日 郑秀文忆亡父泪洒舞台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/adxatu3724/djy/blob/master/gb/21/8/19/n13172861.md#1" target="_blank">黄少谷当爸爸了 儿躺妈妈怀里眯眼笑超可爱</a></h4></td></tr>
