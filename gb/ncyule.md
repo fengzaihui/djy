@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/18/n13171669.md#1" target="_blank">当1岁女儿是朋友 唐嫣：事业家庭同等重要</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181130.md#1" target="_blank">EXO成员XIUMIN染疫已痊愈 音乐剧9月开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181063.md#1" target="_blank">Stray Kids《NOEASY》专辑预售量突破93万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180662.md#1" target="_blank">TWICE英文曲10月发行 IG追踪数破两千万人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180551.md#1" target="_blank">Joy与Crush合作歌曲后走近 交往获公司证实</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13179064.md#1" target="_blank">好莱坞女星开IG账号 公开阿富汗少女求救信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a></h4></td></tr>
