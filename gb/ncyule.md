@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13180985.md#1" target="_blank">张基龙入伍日公开剃发照 以亲笔信暂别粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13181130.md#1" target="_blank">EXO成员XIUMIN染疫已痊愈 音乐剧9月开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13181063.md#1" target="_blank">Stray Kids《NOEASY》专辑预售量突破93万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13181517.md#1" target="_blank">“金钟56”公开主视觉 串连幕前幕后力量发光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13181286.md#1" target="_blank">《台湾三部曲》停工中 魏德圣持续寻求资金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/22/n13179064.md#1" target="_blank">好莱坞女星开IG账号 公开阿富汗少女求救信</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13181517.md#1" target="_blank">“金钟56”公开主视觉 串连幕前幕后力量发光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13181286.md#1" target="_blank">《台湾三部曲》停工中 魏德圣持续寻求资金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank">曾遭人多次背叛 黄明志叹：饮水思源观念式微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/18/n13170824.md#1" target="_blank">2021金曲奖完整得奖名单 华语歌后田馥甄胜出</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/21/n13178498.md#1" target="_blank">打败JJ青峰 “蛋堡”生活化歌词获评审青睐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/inqxbl3990/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
