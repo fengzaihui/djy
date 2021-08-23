@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank">田馥甄获金曲歌后：做专辑就像享受爬山</a><br></h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178435-2108211230291487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178284.md#1" target="_blank">许富凯获台语歌王落泪 曹雅雯：比我得奖还紧张</a><br></h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178284.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178290-2108210924461487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181286.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181374-2108230347291487-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180985.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181014-210725224522100707-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181058-2108230127331487-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180662.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13180918-201123055847100707-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13180568-210601010249100707-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13180297.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/zhaoliyingxiena--320x200.jpg"></a>
-<a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13177823-190129092411100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更能解谜</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180985.md#1" target="_blank">张基龙入伍日公开剃发照 以亲笔信暂别粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181130.md#1" target="_blank">EXO成员XIUMIN染疫已痊愈 音乐剧9月开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181063.md#1" target="_blank">Stray Kids《NOEASY》专辑预售量突破93万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181286.md#1" target="_blank">《台湾三部曲》停工中 魏德圣持续寻求资金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13179064.md#1" target="_blank">好莱坞女星开IG账号 公开阿富汗少女求救信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13176040.md#1" target="_blank">《斯卡罗》公开查马克生前影片 谈出演心路历程</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181286.md#1" target="_blank">《台湾三部曲》停工中 魏德圣持续寻求资金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank">曾遭人多次背叛 黄明志叹：饮水思源观念式微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/18/n13170824.md#1" target="_blank">2021金曲奖完整得奖名单 华语歌后田馥甄胜出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178498.md#1" target="_blank">打败JJ青峰 “蛋堡”生活化歌词获评审青睐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178482.md#1" target="_blank">“金曲最大彩蛋” 杨勇纬与郭婞淳惊喜登场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13175770.md#1" target="_blank">《斯卡罗》演员查马克病逝 长子获奖献亡父</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/17/n13167416.md#1" target="_blank">黄秋生门下台湾10星曝光 谢佳见等名列表演班</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13176911.md#1" target="_blank">赴大陆工作突挂急诊 杨丞琳晒病房照自嘲</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/tjuayn320/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/tjuayn320/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tjuayn320/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/tjuayn320/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
