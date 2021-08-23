@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank">田馥甄获金曲歌后：做专辑就像享受爬山</a><br></h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178423.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178435-2108211230291487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178284.md#1" target="_blank">许富凯获台语歌王落泪 曹雅雯：比我得奖还紧张</a><br></h3><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178284.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178290-2108210924461487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180985.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181014-210725224522100707-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181058-2108230127331487-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180662.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13180918-201123055847100707-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13180568-210601010249100707-320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13180297.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/01/zhaoliyingxiena--320x200.jpg"></a>
 <a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13177823-190129092411100707-320x200.jpg"></a>
-<a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13178284.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13178290-2108210924461487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更能解谜</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/18/n13171669.md#1" target="_blank">当1岁女儿是朋友 唐嫣：事业家庭同等重要</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/17/n13169183.md#1" target="_blank">邓超探班孙俪秀恩爱 赵又廷俨然成电灯泡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/16/n13166423.md#1" target="_blank">受张哲瀚事件牵连？赵薇登杂志封面被取消</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181220.md#1" target="_blank">Jessica时隔两年唱新歌 为姊妹综艺节目唱OST</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180985.md#1" target="_blank">张基龙入伍日公开剃发照 以亲笔信暂别粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181130.md#1" target="_blank">EXO成员XIUMIN染疫已痊愈 音乐剧9月开演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13181063.md#1" target="_blank">Stray Kids《NOEASY》专辑预售量突破93万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180662.md#1" target="_blank">TWICE英文曲10月发行 IG追踪数破两千万人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/23/n13180551.md#1" target="_blank">Joy与Crush合作歌曲后走近 交往获公司证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/22/n13179064.md#1" target="_blank">好莱坞女星开IG账号 公开阿富汗少女求救信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjuayn320/djy/blob/master/gb/21/8/20/n13177079.md#1" target="_blank">拍《尚气》与梁朝伟合作 刘思慕直呼美梦成真</a></h4></td></tr>
