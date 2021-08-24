@@ -33,7 +33,13 @@
 <tr><td width="742"><h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/22/n13179261.md#1" target="_blank">清荷：那些“悦目”的宣传</a><br></h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/22/n13179261.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13179303-Fotolia_59193608_Subscription_L--150x120.jpeg" align ="left"></a>我看见的那个张贴栏是在一辆公车里。
 好友约我在某处公园会她。那家公园离我的住所很远，我在地图上索好公车路线就出发了。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月22日 4:51 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/22/n13179214.md#1" target="_blank">觅真：中共首任“610办公室”主任王茂林的罪恶被明慧网曝光</a><br></h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/22/n13179214.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2018/05/1-li-guangrong-m3-150x120.jpg" align ="left"></a>最近明慧网以《原中共610主任王茂林迫害法轮功的罪行》一文，曝光了中共中央处理法轮功问题领导小组办公室（中共中央“610办公室”）主任王茂林迫害法轮功的罪行。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月22日 4:03 PM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/22/n13179191.md#1" target="_blank">千百度：“90后”结婚率只有10%多 “元芳，你怎么看”</a><br></h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/22/n13179191.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13179209-GettyImages-56011396--150x120.jpeg" align ="left"></a>中国民政部门近期公布的一组数据显示，目前中国“90后”人群约1.7亿人，男女比例约54:46（男：女），而登记注册结婚的“90后”不超过1000万对，结婚率只有10%多一点。新华社报道，去年全国结婚登记仅813.1万对，连续第七年下降。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月22日 3:16 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/24/n13183050.md#1" target="_blank">陈达：中共“代表阿富汗人民”解</a><br></h3>人民选择！人民选择！
+塔利班窃国顺嘴往这扯。
+从来都是谎言滔滔信口开河，
+代言惯了一不留神代表了外国。
+就像嫖歌唱给同伙：
+非猫偷腥乃鱼请客。
+无耻底线又刷新一拨。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月24日 8:54 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/23/n13181650.md#1" target="_blank">我们从小到大学到的历史哪些是假的（1）</a><br></h3>几年前，曾有网友在海外最大的问答网站“品葱”上发帖问大家：“我们从小到大学到的历史哪些是假的或被共产党扭曲的？”......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月23日 5:56 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/apzwfd336/djy/blob/master/gb/21/8/23/n13180924.md#1" target="_blank">祝君安：中共病毒之思想探源</a><br></h3>汹汹马毒撒旦来，变异毛思铺陈开；
 假恶斗兮教人坏，毒米毒奶毒肉菜；
