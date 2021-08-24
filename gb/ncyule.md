@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180662.md#1" target="_blank">TWICE英文曲10月发行 IG追踪数破两千万人</a><br></h3><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180662.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13180918-201123055847100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a><br></h3><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/08/1908080047321487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/24/n13183730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13183814-2108240305361487-320x200.jpg"></a>
 <a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181572.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181627-DSC_9621-320x200.jpg"></a>
 <a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181421.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181677-180611033448100707-320x200.jpg"></a>
 <a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180985.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181014-210725224522100707-320x200.jpg"></a>
 <a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13181058-2108230127331487-320x200.jpg"></a>
 <a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180551.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13180568-210601010249100707-320x200.jpg"></a>
+<a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13177823-190129092411100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181964.md#1" target="_blank">台时尚模特黄珮琪 近乎素颜出演短片《姊姊》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181517.md#1" target="_blank">“金钟56”公开主视觉 串连幕前幕后力量发光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181286.md#1" target="_blank">《台湾三部曲》停工中 魏德圣持续寻求资金</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/24/n13183730.md#1" target="_blank">谢宜君发表压箱21年创作 女儿同框MV演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/24/n13183462.md#1" target="_blank">贾永婕抗疫行动力强 线上分享“不放弃”精神</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181572.md#1" target="_blank">台首进军欧洲最大剧集展 林柏宏大霈等齐聚打气</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181516.md#1" target="_blank">金曲收视最高点 近138万人收看曹雅雯</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13181964.md#1" target="_blank">台时尚模特黄珮琪 近乎素颜出演短片《姊姊》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/24/n13183730.md#1" target="_blank">谢宜君发表压箱21年创作 女儿同框MV演出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13182812.md#1" target="_blank">受访视频被翻出 刘雨昕称感谢疫情引争议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank">曾多次遭人背叛 黄明志叹：饮水思源观念式微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13178498.md#1" target="_blank">打败JJ青峰 “蛋堡”生活化歌词获评审青睐</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13178482.md#1" target="_blank">“金曲最大彩蛋” 杨勇纬与郭婞淳惊喜登场</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/22/n13180297.md#1" target="_blank">产后复工获赵丽颖助阵 谢娜否认二胎是双胞胎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
