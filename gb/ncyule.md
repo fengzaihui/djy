@@ -44,7 +44,7 @@
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/20/n13176395.md#1" target="_blank">70岁日本配乐大师久石让 挑战就任交响乐指挥</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13182812.md#1" target="_blank">受访视频被翻出 刘雨昕称感谢疫情引争议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank">曾遭人多次背叛 黄明志叹：饮水思源观念式微</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/23/n13180825.md#1" target="_blank">曾多次遭人背叛 黄明志叹：饮水思源观念式微</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13178498.md#1" target="_blank">打败JJ青峰 “蛋堡”生活化歌词获评审青睐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fseftk3970/djy/blob/master/gb/21/8/21/n13178482.md#1" target="_blank">“金曲最大彩蛋” 杨勇纬与郭婞淳惊喜登场</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
