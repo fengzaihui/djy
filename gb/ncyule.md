@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/23/n13182574.md#1" target="_blank">黄晓明节目中罕见谈家事 直呼想添个女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/22/n13180297.md#1" target="_blank">产后复工获赵丽颖助阵 谢娜否认二胎是双胞胎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/18/n13171669.md#1" target="_blank">当1岁女儿是朋友 唐嫣：事业家庭同等重要</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/24/n13184051.md#1" target="_blank">NCT 127正规三辑 首日预售量突破132万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/24/n13183810.md#1" target="_blank">gugudan成员Hana签约FN娱乐 以本名走演员路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/24/n13183500.md#1" target="_blank">BTS《Butter》于美英日都获佳绩 再夺两项认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/24/n13183334.md#1" target="_blank">SHINee成员KEY月底公开新歌 9月推出Solo专辑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/23/n13181421.md#1" target="_blank">颂乐健身成果三天就消失 腹肌“变成西瓜”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/23/n13181220.md#1" target="_blank">Jessica时隔两年唱新歌 为姊妹综艺节目唱OST</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/24/n13183462.md#1" target="_blank">贾永婕抗疫行动力强 线上分享“不放弃”精神</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/23/n13181964.md#1" target="_blank">台时尚模特黄珮琪 近乎素颜出演短片《姊姊》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lseeig3883/djy/blob/master/gb/21/8/23/n13181517.md#1" target="_blank">“金钟56”公开主视觉 串连幕前幕后力量发光</a></h4></td></tr>
