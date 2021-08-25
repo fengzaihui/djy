@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183810.md#1" target="_blank">gugudan成员Hana签约FN娱乐 以本名走演员路</a><br></h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183810.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13183933-1711281001071487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/23/n13182574.md#1" target="_blank">黄晓明节目中罕见谈家事 直呼想添个女儿</a><br></h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/23/n13182574.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/12/1612050441312384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13186510.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186554-2108250528241487-320x200.jpg"></a>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12983246-GettyImages-488954991-320x200.jpg"></a>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13184051.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13184167-200127075434100707-320x200.jpg"></a>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183934.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13184009-2108240451341487-320x200.jpg"></a>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13183814-2108240305361487-320x200.jpg"></a>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183462.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13183499-2108232351321487-320x200.jpg"></a>
-<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/23/n13181572.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13184561-2108230338092122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13185780.md#1" target="_blank">LUCAS黄旭熙为私生活争议致歉 中断演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13185978.md#1" target="_blank">《摩加迪休》韩票房称冠 逃脱情节犹如阿富汗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13185684.md#1" target="_blank">Apink郑恩地去年起遭跟踪 公司起诉跟踪狂</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13186510.md#1" target="_blank">胡瓜重返《大集合》 说明3度请假原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13184425.md#1" target="_blank">纪录片《买房子卖房子》呈现台湾高房价问题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183462.md#1" target="_blank">贾永婕抗疫行动力强 线上分享“不放弃”精神</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/23/n13181964.md#1" target="_blank">台时尚模特黄珮琪 近乎素颜出演短片《姊姊》</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/23/n13181517.md#1" target="_blank">“金钟56”公开主视觉 串连幕前幕后力量发光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13186510.md#1" target="_blank">胡瓜重返《大集合》 说明3度请假原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13185017.md#1" target="_blank">舒淇分享瘦身秘笈 黄金时间吃甜品不复胖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13184425.md#1" target="_blank">纪录片《买房子卖房子》呈现台湾高房价问题</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13184039.md#1" target="_blank">《孟婆客栈》预算超支 制作人唐美云房屋二贷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183934.md#1" target="_blank">许富凯宣传传艺金曲奖 盼艺术与音乐没有断层</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/20/n13175534.md#1" target="_blank">OH MY GIRL《Nonstop》创女团曲最长在榜纪录</a></h4></td></tr>
