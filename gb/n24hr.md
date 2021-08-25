@@ -751,6 +751,11 @@
 以上数据由星河地产（Starriver Realty）房地产经纪Jason（Zhenhua）Tao（BRE：01869132）提供
 Jason Tao熟悉旧金山、湾区房地产市场。联络Jason：（510）366.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月23日 8:37 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/23/n13181736.md#1" target="_blank">高市本土共94例  亲人接触风险最高</a><br></h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/23/n13181736.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/08/id13182447-e84dcbb15fda43e3e8c9bc94bb16b9d6-150x120.jpg" align ="left"></a>中共肺炎本土个案高市共94例，其中以亲人或同住者接触41例占43.6%最高，次为双北旅游史及共餐、桌游，皆为11例，占11.7%。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月23日 8:22 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13187668.md#1" target="_blank">格伦岱尔自存仓遭窃 警方发视频抓贼</a><br></h3>洛县格伦岱尔市（Glandale）警方周二（8月24日）公布了3男2女共5名嫌犯的监控录像，他们从格伦岱尔市的几个自存仓库单元里偷走了价值约75,000美元的物品。
+
+
+
+格伦岱尔警局警佐豪普特曼表示，周日（20日）上午约10点半的报案说有歹徒正在行窃，但当警员们赶到位于134号高速公路旁、圣费尔南多路（San.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月26日 4:15 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13187369.md#1" target="_blank">甲午中原</a><br></h3>西风萧瑟秋光冷，树摇叶落催寒景。 天定天时谁能改？甲午中原天气猛！ 毒雾蒙蒙蔽天日，残山断水声声泣。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月26日 12:19 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13186044.md#1" target="_blank">神韵行（七十八）</a><br></h3>抚槛思， 依栏话， 且去长安看繁华。 仙姿暂许人间化。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月26日 12:16 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13187197.md#1" target="_blank">诗歌：上天要你归善（外一首）</a><br></h3>魔高一尺动， 道长万寻升。 疫苗还难定， 变种却流行。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年08月26日 12:12 AM			</td></tr>
