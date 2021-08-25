@@ -7,10 +7,10 @@
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13186479.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186499-DSC_1320-320x200.jpg"></a>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13186510.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186554-2108250528241487-320x200.jpg"></a>
+<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13186399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186494-200407063132100707-320x200.jpg"></a>
+<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13185780.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186392-191004051725100707-320x200.jpg"></a>
+<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/25/n13185978.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186033-2108250131321487-320x200.jpg"></a>
 <a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12983246-GettyImages-488954991-320x200.jpg"></a>
-<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13184051.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13184167-200127075434100707-320x200.jpg"></a>
-<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183934.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13184009-2108240451341487-320x200.jpg"></a>
-<a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183730.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13183814-2108240305361487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gmvniw384/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
