@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/23/n13182812.md#1" target="_blank">受访视频被翻出 刘雨昕称感谢疫情引争议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/26/n13188403.md#1" target="_blank">NCT 127宣传照被控抄袭 制图外包商认错致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/26/n13188088.md#1" target="_blank">Lisa以《LALISA》Solo出道 单曲9月10日推出</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/25/n13186548.md#1" target="_blank">TXT改版专辑首周热销48万张 海内外创佳绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/25/n13186399.md#1" target="_blank">金钟国为《禁婚令》献唱 OST专辑30日发行</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/25/n13185780.md#1" target="_blank">LUCAS黄旭熙为私生活争议致歉 中断演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/25/n13187726.md#1" target="_blank">与梁朝伟隔28年再合作 杨紫琼晒合照宣传新片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wrwufb368/djy/blob/master/gb/21/8/25/n13186352.md#1" target="_blank">赵心妍淡出3年重回八点档 大叹角色“难驾驭”</a></h4></td></tr>
