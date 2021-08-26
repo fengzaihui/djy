@@ -9,8 +9,8 @@
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189081-2108260528431487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188920-2108260345581487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188517-2108260002571487-320x200.jpg"></a>
+<a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188088.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188275-201228011532100707-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13187224-180123034541100707-320x200.jpg"></a>
-<a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186479.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186499-DSC_1320-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
