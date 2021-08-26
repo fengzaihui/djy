@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187561.md#1" target="_blank">英“滚石乐队”鼓手查理·沃茨病逝 享年80岁</a><br></h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187561.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13187683-GettyImages-104394383-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a><br></h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186923-2108250845571487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189342-210817070448100707-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189115-210415093229100707-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189081-2108260528431487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188920-2108260345581487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188517-2108260002571487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188088.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188275-201228011532100707-320x200.jpg"></a>
+<a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13187224-180123034541100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/23/n13182812.md#1" target="_blank">受访视频被翻出 刘雨昕称感谢疫情引争议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank">Red Velvet全员回归拿冠军 对粉丝诉珍惜与感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank">SJ利特打疫苗手臂疼 粉丝祝打第二剂平安顺利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188754.md#1" target="_blank">韩惠珍染疫后留后遗症 呼吸仅为原来六、七成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188771.md#1" target="_blank">韩喜剧片《金派特务》 李善彬金英光联手查案</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188403.md#1" target="_blank">NCT 127宣传照被控抄袭 制图外包商认错致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187726.md#1" target="_blank">与梁朝伟隔28年再合作 杨紫琼晒合照宣传新片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186352.md#1" target="_blank">赵心妍淡出3年重回八点档 大叹角色“难驾驭”</a></h4></td></tr>
