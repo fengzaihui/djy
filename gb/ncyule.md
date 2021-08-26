@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187561.md#1" target="_blank">英“滚石乐队”鼓手查理·沃茨病逝 享年80岁</a><br></h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187561.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13187683-GettyImages-104394383-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a><br></h3><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186923-2108250845571487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189081-2108260528431487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188920-2108260345581487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188517-2108260002571487-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13187224-180123034541100707-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186479.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186499-DSC_1320-320x200.jpg"></a>
 <a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186510.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186554-2108250528241487-320x200.jpg"></a>
-<a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13186494-200407063132100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186352.md#1" target="_blank">赵心妍淡出3年重回八点档 大叹角色“难驾驭”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186510.md#1" target="_blank">胡瓜重返《大集合》 说明3度请假原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank">小煜妻打AZ曾发烧 混打莫德纳又挂急诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank">周董“募20万个赞”释出新歌 短短4小时达标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187726.md#1" target="_blank">与梁朝伟隔28年再合作 杨紫琼晒合照宣传新片</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank">WANIMA两人发烧全员确诊染疫 演出取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gwrihu3930/djy/blob/master/gb/21/8/21/n13177866.md#1" target="_blank">TWICE说“啊啾” 山田孝之和松平健也跟着学</a></h4></td></tr>
