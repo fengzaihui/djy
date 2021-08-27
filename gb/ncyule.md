@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank">《明星许愿池》比拼投篮 王仁甫惨输赵传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13190679.md#1" target="_blank">林志玲持续送暖 残奥会选手陈亮达收到伴手礼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191920.md#1" target="_blank">《行动急诊室》稻森泉与马场彻确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank">宫胁咲良抵达韩国吸引粉丝接机 保镳帮开路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank">WANIMA两人发烧全员确诊染疫 演出取消</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank">周董“募20万个赞”释出新歌 短短4小时达标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187561.md#1" target="_blank">英“滚石乐队”鼓手查理·沃茨病逝 享年80岁</a></h4></td></tr>
