@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13188754.md#1" target="_blank">韩惠珍染疫后留后遗症 呼吸仅为原来六、七成</a><br></h3><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13188754.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188985-210715224406100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a><br></h3><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191372-2108270216031487-320x200.jpg"></a>
 <a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189342-210817070448100707-320x200.jpg"></a>
 <a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189115-210415093229100707-320x200.jpg"></a>
 <a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189081-2108260528431487-320x200.jpg"></a>
 <a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188920-2108260345581487-320x200.jpg"></a>
 <a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188517-2108260002571487-320x200.jpg"></a>
-<a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13188088.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188275-201228011532100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
@@ -23,22 +23,22 @@
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191068.md#1" target="_blank">大陆女星郑爽被罚2.99亿元 遭全面封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191267.md#1" target="_blank">梁耀燮9月发行正规专辑 Highlight推出新综艺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191064.md#1" target="_blank">B.I改口承认吸毒 遭检方求刑三年有期徒刑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank">Red Velvet全员回归拿冠军 对粉丝诉珍惜与感谢</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank">SJ利特打疫苗手臂疼 粉丝祝打第二剂平安顺利</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187726.md#1" target="_blank">与梁朝伟隔28年再合作 杨紫琼晒合照宣传新片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13186352.md#1" target="_blank">赵心妍淡出3年重回八点档 大叹角色“难驾驭”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank">《明星许愿池》比拼投篮 王仁甫惨输赵传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190679.md#1" target="_blank">林志玲持续送暖 残奥会选手陈亮达收到伴手礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190470.md#1" target="_blank">为何能生吞12颗鸡蛋？周润发的回答感动网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank">小煜妻打AZ曾发烧 混打莫德纳又挂急诊</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank">WANIMA两人发烧全员确诊染疫 演出取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
@@ -49,14 +49,14 @@
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13186509.md#1" target="_blank">疫情下厨艺变精进 梁静茹自家孵豆芽菜</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185100.md#1" target="_blank">李英爱7旬夫近照曝光 冻龄外表就像才40岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/22/n13180297.md#1" target="_blank">产后复工获赵丽颖助阵 谢娜否认二胎是双胞胎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/23/n13182574.md#1" target="_blank">黄晓明节目中罕见谈家事 直呼想添个女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/20/n13176794.md#1" target="_blank">自曝践行断食法十多年 古天乐每日只吃一餐</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/22/n13179064.md#1" target="_blank">好莱坞女星开IG账号 公开阿富汗少女求救信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/22/n13179064.md#1" target="_blank">好莱坞女星开IG账号 公开阿富汗少女求救信</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/llmdgb3794/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/llmdgb3794/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/llmdgb3794/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/llmdgb3794/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
