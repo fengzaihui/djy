@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a><br></h3><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/03/sunli-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191814-210311000901100707-320x200.jpg"></a>
+<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191675.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191685-200525031230100707-320x200.jpg"></a>
 <a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191372-2108270216031487-320x200.jpg"></a>
 <a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189342-210817070448100707-320x200.jpg"></a>
 <a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189115-210415093229100707-320x200.jpg"></a>
 <a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189081-2108260528431487-320x200.jpg"></a>
-<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13188920-2108260345581487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank">《明星许愿池》比拼投篮 王仁甫惨输赵传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13190679.md#1" target="_blank">林志玲持续送暖 残奥会选手陈亮达收到伴手礼</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191978.md#1" target="_blank">SKE48五成员染疫 剧场消毒 公演等活动取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191920.md#1" target="_blank">《行动急诊室》稻森泉与马场彻确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank">宫胁咲良抵达韩国吸引粉丝接机 保镳帮开路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank">WANIMA两人发烧全员确诊染疫 演出取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank">周董“募20万个赞”释出新歌 短短4小时达标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187561.md#1" target="_blank">英“滚石乐队”鼓手查理·沃茨病逝 享年80岁</a></h4></td></tr>
