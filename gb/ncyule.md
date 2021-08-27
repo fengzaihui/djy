@@ -27,14 +27,14 @@
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191675.md#1" target="_blank">伯贤入伍前录《红天机》OST 花絮短片公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191432.md#1" target="_blank">《玩什么好呢？》刘在锡临时挑战新闻主播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191267.md#1" target="_blank">梁耀燮9月发行正规专辑 Highlight推出新综艺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191064.md#1" target="_blank">B.I改口承认吸毒 遭检方求刑三年有期徒刑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191595.md#1" target="_blank">《尚气与十环传奇》编“武”专家 来自各地</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187726.md#1" target="_blank">与梁朝伟隔28年再合作 杨紫琼晒合照宣传新片</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank">《明星许愿池》比拼投篮 王仁甫惨输赵传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13190679.md#1" target="_blank">林志玲持续送暖 残奥会选手陈亮达收到伴手礼</a></h4></td></tr>
