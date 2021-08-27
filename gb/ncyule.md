@@ -43,10 +43,10 @@
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191920.md#1" target="_blank">《行动急诊室》稻森泉与马场彻确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank">宫胁咲良抵达韩国吸引粉丝接机 保镳帮开路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13192444.md#1" target="_blank">新人黄霆睿首发创作专辑 吕士轩站台献贺礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank">周董“募20万个赞”释出新歌 短短4小时达标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187561.md#1" target="_blank">英“滚石乐队”鼓手查理·沃茨病逝 享年80岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13186509.md#1" target="_blank">疫情下厨艺变精进 梁静茹自家孵豆芽菜</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/20/n13176794.md#1" target="_blank">自曝践行断食法十多年 古天乐每日只吃一餐</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/22/n13179064.md#1" target="_blank">好莱坞女星开IG账号 公开阿富汗少女求救信</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/21/8/27/n13191068.md#1" target="_blank">大陆女星郑爽被罚2.99亿元 遭全面封杀</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/gyuhsq3583/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/gyuhsq3583/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
