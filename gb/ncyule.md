@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191432.md#1" target="_blank">《玩什么好呢？》刘在锡临时挑战新闻主播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191267.md#1" target="_blank">梁耀燮9月发行正规专辑 Highlight推出新综艺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191064.md#1" target="_blank">B.I改口承认吸毒 遭检方求刑三年有期徒刑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank">Red Velvet全员回归拿冠军 对粉丝诉珍惜与感谢</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187726.md#1" target="_blank">与梁朝伟隔28年再合作 杨紫琼晒合照宣传新片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13186352.md#1" target="_blank">赵心妍淡出3年重回八点档 大叹角色“难驾驭”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank">《明星许愿池》比拼投篮 王仁甫惨输赵传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190679.md#1" target="_blank">林志玲持续送暖 残奥会选手陈亮达收到伴手礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190470.md#1" target="_blank">为何能生吞12颗鸡蛋？周润发的回答感动网友</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189073.md#1" target="_blank">小煜妻打AZ曾发烧 混打莫德纳又挂急诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187216.md#1" target="_blank">WANIMA两人发烧全员确诊染疫 演出取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/21/n13177812.md#1" target="_blank">BLACKPINK参与《MS》 山田孝之反应热烈</a></h4></td></tr>
