@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185347.md#1" target="_blank">中共整肃“饭圈” 赵丽颖工作室被禁言15天</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/27/n13191064.md#1" target="_blank">B.I改口承认吸毒 遭检方求刑三年有期徒刑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank">Red Velvet全员回归拿冠军 对粉丝诉珍惜与感谢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank">SJ利特打疫苗手臂疼 粉丝祝打第二剂平安顺利</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13188754.md#1" target="_blank">韩惠珍染疫后留后遗症 呼吸仅为原来六、七成</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13187726.md#1" target="_blank">与梁朝伟隔28年再合作 杨紫琼晒合照宣传新片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llmdgb3794/djy/blob/master/gb/21/8/25/n13186843.md#1" target="_blank">拆解与黄秋生合作过程 谢盈萱：又怕又哭又笑</a></h4></td></tr>
