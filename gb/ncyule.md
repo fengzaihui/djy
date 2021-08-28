@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13193075.md#1" target="_blank">继承母亲遗产进入倒计时？郑欣宜首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191818.md#1" target="_blank">侯孝贤监制首部台剧《良辰吉时》 明年春首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/28/n13194000.md#1" target="_blank">ARASHI岚“ARAFES”蝉联双周销售冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191978.md#1" target="_blank">SKE48五成员染疫 剧场消毒 公演等活动取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191920.md#1" target="_blank">《行动急诊室》稻森泉与马场彻确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank">宫胁咲良抵达韩国吸引粉丝接机 保镳帮开路</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13189586.md#1" target="_blank">BTS回忆录2020 连续两周登日本Oricon榜首</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13192444.md#1" target="_blank">新人黄霆睿首发创作专辑 吕士轩站台献贺礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank">周董“募20万个赞”释出新歌 短短4小时达标</a></h4></td></tr>
