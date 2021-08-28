@@ -5,18 +5,18 @@
 <tr><td><h3><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a><br></h3><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-598116592-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13190470.md#1" target="_blank">为何能生吞12颗鸡蛋？周润发的回答感动网友</a><br></h3><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13190470.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/03/1903070110461487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13193057.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/01/zhaoyouting-320x200.jpg"></a>
 <a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13192234.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13192285-2108270857181487-320x200.jpg"></a>
 <a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191814-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191675.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191685-200525031230100707-320x200.jpg"></a>
 <a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191372-2108270216031487-320x200.jpg"></a>
 <a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189342-210817070448100707-320x200.jpg"></a>
-<a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189115-210415093229100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/20/n13173998.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13174003-512514-320x200.jpeg"><br>《追忆人》影评：追朔回忆除了怀旧 更能解谜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/14/n13162380.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13162387-511649-320x200.jpg"><br>《脱稿玩家》影评：失控的NPC 也能影响人类世界</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191818.md#1" target="_blank">侯孝贤监制首部台剧《良辰吉时》 明年春首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191595.md#1" target="_blank">《尚气与十环传奇》编“武”专家 来自各地</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13193057.md#1" target="_blank">被2岁女儿下“逐客令” 赵又廷的回应很理性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13193075.md#1" target="_blank">继承母亲遗产进入倒计时？郑欣宜首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191818.md#1" target="_blank">侯孝贤监制首部台剧《良辰吉时》 明年春首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank">《明星许愿池》比拼投篮 王仁甫惨输赵传</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191978.md#1" target="_blank">SKE48五成员染疫 剧场消毒 公演等活动取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191920.md#1" target="_blank">《行动急诊室》稻森泉与马场彻确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hrmmqu334/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank">宫胁咲良抵达韩国吸引粉丝接机 保镳帮开路</a></h4></td></tr>
