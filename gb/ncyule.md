@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13192234.md#1" target="_blank">迪士尼频道明年退出台湾 串流平台Disney+接棒</a><br></h3><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13192234.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13192285-2108270857181487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/26/n13190679.md#1" target="_blank">林志玲持续送暖 残奥会选手陈亮达收到伴手礼</a><br></h3><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/26/n13190679.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/06/id12999221-2106040844501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/29/n13195065.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195097-2108282221131487-320x200.jpg"></a>
 <a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195038-2108282127121487-320x200.jpg"></a>
 <a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191814-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191675.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191685-200525031230100707-320x200.jpg"></a>
 <a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191372-2108270216031487-320x200.jpg"></a>
 <a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/26/n13189204.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189342-210817070448100707-320x200.jpg"></a>
-<a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/26/n13189006.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13189115-210415093229100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191068.md#1" target="_blank">大陆女星郑爽被罚2.99亿元 遭全面封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/29/n13195063.md#1" target="_blank">张员瑛确诊染疫 安兪真取消行程自主隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank">宫胁咲良抵达韩国吸引粉丝接机 保镳帮开路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191675.md#1" target="_blank">伯贤入伍前录《红天机》OST 花絮短片公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191432.md#1" target="_blank">《玩什么好呢？》刘在锡临时挑战新闻主播</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191267.md#1" target="_blank">梁耀燮9月发行正规专辑 Highlight推出新综艺</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/29/n13195065.md#1" target="_blank">《斯卡罗》主演英文流利受瞩 归功周厚安提点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13192234.md#1" target="_blank">迪士尼频道明年退出台湾 串流平台Disney+接棒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191818.md#1" target="_blank">侯孝贤监制首部台剧《良辰吉时》 明年春首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191595.md#1" target="_blank">《尚气与十环传奇》编“武”专家 来自各地</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191473.md#1" target="_blank">歌仔戏《孟婆客栈》施易男、李千那演梁祝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/29/n13195065.md#1" target="_blank">《斯卡罗》主演英文流利受瞩 归功周厚安提点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank">罗文裕首与许富凯合作 自夸“旗美双帅”献唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13193057.md#1" target="_blank">被2岁女儿下“逐客令” 赵又廷的回应很理性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13193075.md#1" target="_blank">继承母亲遗产进入倒计时？郑欣宜首度回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191818.md#1" target="_blank">侯孝贤监制首部台剧《良辰吉时》 明年春首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/28/n13194027.md#1" target="_blank">Snow Man阿部亮平染疫 出现味觉异常等症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/28/n13194000.md#1" target="_blank">ARASHI岚“ARAFES”蝉联双周销售冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/exwvxr3145/djy/blob/master/gb/21/8/27/n13191978.md#1" target="_blank">SKE48五成员染疫 剧场消毒 公演等活动取消</a></h4></td></tr>
