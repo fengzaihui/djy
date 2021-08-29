@@ -8,9 +8,9 @@
 <a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/29/n13195249.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195255-2106120500581470-320x200.jpg"></a>
 <a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/29/n13195065.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195097-2108282221131487-320x200.jpg"></a>
 <a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195038-2108282127121487-320x200.jpg"></a>
+<a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/28/n13194000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13194006-20210826-weishin-ARAFES_2020-320x200.jpg"></a>
 <a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191814-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/27/n13191675.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191685-200525031230100707-320x200.jpg"></a>
-<a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/27/n13191332.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13191372-2108270216031487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dliupw3055/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
