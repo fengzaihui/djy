@@ -49,8 +49,8 @@
 <tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank">周董“募20万个赞”释出新歌 短短4小时达标</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/27/n13192869.md#1" target="_blank">赵薇遭全面封杀 大陆娱乐圈人人自危急切割</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/24/n13185191.md#1" target="_blank">43岁刘涛晒健身自拍 背后全身镜曝真实身材</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/24/n13185100.md#1" target="_blank">李英爱7旬夫近照曝光 冻龄外表就像才40岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/22/n13180297.md#1" target="_blank">产后复工获赵丽颖助阵 谢娜否认二胎是双胞胎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dlsqnq369/djy/blob/master/gb/21/8/22/n13180163.md#1" target="_blank">暗讽塔利班与中共如出一辙 黄明志微博遭封杀</a></h4></td></tr>
