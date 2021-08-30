@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195275.md#1" target="_blank">美国警察酷似影星巨石强森 犹如分身</a><br></h3><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195275.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195278-GettyImages-539316412-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195065.md#1" target="_blank">《斯卡罗》主演英文流利受瞩 归功周厚安提点</a><br></h3><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195065.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195097-2108282221131487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196735-2108300017321487-320x200.jpg"></a>
 <a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/30/n13196558.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196560-1512150631312384-320x200.jpg"></a>
 <a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195596-2108290820051487-320x200.jpg"></a>
 <a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195408.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195409-210829053331100707-320x200.jpg"></a>
 <a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195249.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195255-2106120500581470-320x200.jpg"></a>
 <a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195038-2108282127121487-320x200.jpg"></a>
-<a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/28/n13194000.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13194006-20210826-weishin-ARAFES_2020-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13196045.md#1" target="_blank">赵薇奖项遭百度抹掉 第34届金像奖俨然无影后</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13196165.md#1" target="_blank">网传中共整肃艺人名单 导演点名李连杰快跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/27/n13192869.md#1" target="_blank">赵薇遭全面封杀 大陆娱乐圈人人自危急切割</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank">金高银演出《盼望的大海》 敬重歌手伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/30/n13196558.md#1" target="_blank">李敏镐与妍雨传热恋五个月 公司迅速否认</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195408.md#1" target="_blank">宋歌人因身体不适检疫 确诊后进隔离设施</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195063.md#1" target="_blank">张员瑛确诊染疫 安兪真取消行程自主隔离</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/27/n13191722.md#1" target="_blank">宫胁咲良抵达韩国吸引粉丝接机 保镳帮开路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13196045.md#1" target="_blank">赵薇奖项遭百度抹掉 第34届金像奖俨然无影后</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13196165.md#1" target="_blank">网传中共整肃艺人名单 导演点名李连杰快跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kfmdej367/djy/blob/master/gb/21/8/29/n13195562.md#1" target="_blank">小刀曝退出5566秘辛 晒出道嫩照自觉“显老”</a></h4></td></tr>
