@@ -31,18 +31,18 @@
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/30/n13196625.md#1" target="_blank">佐佐木藏之介无症状确诊染疫 演出取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank">金高银演出《盼望的大海》 敬重歌手伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/30/n13196558.md#1" target="_blank">李敏镐与妍雨传热恋五个月 公司迅速否认</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/30/n13197079.md#1" target="_blank">许明杰、林则希能演也能唱 开播会粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13196045.md#1" target="_blank">赵薇奖项遭百度抹掉 第34届金像奖俨然无影后</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13196165.md#1" target="_blank">网传中共整肃艺人名单 导演点名李连杰快跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195562.md#1" target="_blank">小刀曝退出5566秘辛 晒出道嫩照自觉“显老”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195275.md#1" target="_blank">美国警察酷似影星巨石强森 犹如分身</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/30/n13197079.md#1" target="_blank">许明杰、林则希能演也能唱 开播会粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195562.md#1" target="_blank">小刀曝退出5566秘辛 晒出道嫩照自觉“显老”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195249.md#1" target="_blank">白家绮7年终圆梦 开箱豪宅可容一家7口</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195065.md#1" target="_blank">《斯卡罗》主演英文流利受瞩 归功周厚安提点</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank">罗文裕首与许富凯合作 自夸“旗美双帅”献唱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/30/n13196859.md#1" target="_blank">无法同时两地办活动 SUPERSONIC取消大阪场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/28/n13194027.md#1" target="_blank">Snow Man阿部亮平染疫 出现味觉异常等症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/28/n13194000.md#1" target="_blank">ARASHI岚“ARAFES”蝉联双周销售冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/27/n13191978.md#1" target="_blank">SKE48五成员染疫 剧场消毒 公演等活动取消</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/27/n13191920.md#1" target="_blank">《行动急诊室》稻森泉与马场彻确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank">罗文裕首与许富凯合作 自夸“旗美双帅”献唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/27/n13192444.md#1" target="_blank">新人黄霆睿首发创作专辑 吕士轩站台献贺礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/27/n13193075.md#1" target="_blank">继承母亲遗产进入倒计时？郑欣宜首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/23/n13182574.md#1" target="_blank">黄晓明节目中罕见谈家事 直呼想添个女儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/26/n13190470.md#1" target="_blank">为何能生吞12颗鸡蛋？周润发的回答感动网友</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/21/8/29/n13195275.md#1" target="_blank">美国警察酷似影星巨石强森 犹如分身</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/pmzjhb3698/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/pmzjhb3698/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
