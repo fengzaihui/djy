@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank">懒理与赵薇不合传闻 范冰冰称只关注一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13200008.md#1" target="_blank">KEY 9月线上开唱 与太妍合作曲10区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199188.md#1" target="_blank">Lisa《LALISA》开放预购4天 预售破70万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199403.md#1" target="_blank">辉人与Ravi新公司签约 兼顾团体与个人活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199060.md#1" target="_blank">Stray Kids《NOEASY》累计出货量达110万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13196748.md#1" target="_blank">英经纪公司与CL签约 旗下有碧昂丝爱黛儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199936.md#1" target="_blank">陈美凤现身夜市拍戏 摊商老板放下生意抢拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank">《完全娱乐》庆26岁 特辑回顾明星经典画面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
