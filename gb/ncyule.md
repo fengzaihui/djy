@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/29/n13196045.md#1" target="_blank">赵薇奖项遭百度抹掉 第34届金像奖俨然无影后</a><br></h3><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/29/n13196045.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196147-GettyImages-470345842-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199690-2108310430141487-320x200.jpg"></a>
+<a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13200082-2108310401342122-320x200.jpg"></a>
 <a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199269-2010161023261470-320x200.jpg"></a>
 <a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199064-fan-bingbing-zhao-wei-320x200.jpg"></a>
 <a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13197910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13197925-2002260747581487-320x200.jpg"></a>
 <a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196735-2108300017321487-320x200.jpg"></a>
-<a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13196558.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196560-1512150631312384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -36,9 +36,9 @@
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank">懒理与赵薇不合传闻 范冰冰称只关注一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank">《完全娱乐》庆26岁 特辑回顾明星经典画面</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199622.md#1" target="_blank">为节目录歌 赵岱新不敢让周兴哲听自己歌声</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13197910.md#1" target="_blank">陈语安驳情变 与吴克群远距恋“半年没见”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13197195.md#1" target="_blank">爱知县办音乐祭逾8千人密集群聚 主办方致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dmdccu385/djy/blob/master/gb/21/8/30/n13196859.md#1" target="_blank">无法同时两地办活动 SUPERSONIC取消大阪场</a></h4></td></tr>
