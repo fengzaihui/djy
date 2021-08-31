@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13196279.md#1" target="_blank">汤唯分享农家生活 与丈夫一口气吃8根黄瓜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199403.md#1" target="_blank">辉人与Ravi新公司签约 兼顾团体与个人活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199060.md#1" target="_blank">Stray Kids《NOEASY》累计出货量达110万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196748.md#1" target="_blank">英经纪公司与CL签约 旗下有碧昂丝爱黛儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196625.md#1" target="_blank">佐佐木藏之介无症状确诊染疫 演出取消</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank">金高银演出《盼望的大海》 敬重歌手伙伴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank">懒理与赵薇不合传闻 范冰冰称只关注一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197569.md#1" target="_blank">台湾进军欧洲最大剧集展 推介作品全球首播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197910.md#1" target="_blank">陈语安驳情变 与吴克群远距恋“半年没见”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197569.md#1" target="_blank">台湾进军欧洲最大剧集展 推介作品全球首播</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197079.md#1" target="_blank">许明杰、林则希能演也能唱 开播会粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197195.md#1" target="_blank">爱知县办音乐祭逾8千人密集群聚 主办方致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196859.md#1" target="_blank">无法同时两地办活动 SUPERSONIC取消大阪场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/28/n13194027.md#1" target="_blank">Snow Man阿部亮平染疫 出现味觉异常等症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/28/n13194000.md#1" target="_blank">ARASHI岚“ARAFES”蝉联双周销售冠军</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank">罗文裕首与许富凯合作 自夸“旗美双帅”献唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/27/n13192444.md#1" target="_blank">新人黄霆睿首发创作专辑 吕士轩站台献贺礼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/26/n13188899.md#1" target="_blank">万芳摘“金”后喜讯连发 “攻蛋”新档期确认</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/26/n13188470.md#1" target="_blank">周董“募20万个赞”释出新歌 短短4小时达标</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/27/n13192869.md#1" target="_blank">赵薇遭全面封杀 大陆娱乐圈人人自危急切割</a></h4></td></tr>
