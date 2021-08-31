@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13196279.md#1" target="_blank">汤唯分享农家生活 与丈夫一口气吃8根黄瓜</a><br></h3><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13196279.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-454781354-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13196045.md#1" target="_blank">赵薇奖项遭百度抹掉 第34届金像奖俨然无影后</a><br></h3><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13196045.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196147-GettyImages-470345842-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199269-2010161023261470-320x200.jpg"></a>
 <a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199064-fan-bingbing-zhao-wei-320x200.jpg"></a>
 <a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/09/DSC_1192_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13197925-2002260747581487-320x200.jpg"></a>
 <a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196735-2108300017321487-320x200.jpg"></a>
 <a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196558.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196560-1512150631312384-320x200.jpg"></a>
-<a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13195562.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13195596-2108290820051487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196748.md#1" target="_blank">英经纪公司与CL签约 旗下有碧昂丝爱黛儿</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196625.md#1" target="_blank">佐佐木藏之介无症状确诊染疫 演出取消</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank">金高银演出《盼望的大海》 敬重歌手伙伴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank">懒理与赵薇不合传闻 范冰冰称只关注一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197569.md#1" target="_blank">台湾进军欧洲最大剧集展 推介作品全球首播</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197079.md#1" target="_blank">许明杰、林则希能演也能唱 开播会粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197910.md#1" target="_blank">陈语安驳情变 与吴克群远距恋“半年没见”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197569.md#1" target="_blank">台湾进军欧洲最大剧集展 推介作品全球首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197079.md#1" target="_blank">许明杰、林则希能演也能唱 开播会粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/29/n13195562.md#1" target="_blank">小刀曝退出5566秘辛 晒出道嫩照自觉“显老”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13197195.md#1" target="_blank">爱知县办音乐祭逾8千人密集群聚 主办方致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/30/n13196859.md#1" target="_blank">无法同时两地办活动 SUPERSONIC取消大阪场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/llvwqw358/djy/blob/master/gb/21/8/28/n13194027.md#1" target="_blank">Snow Man阿部亮平染疫 出现味觉异常等症状</a></h4></td></tr>
