@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank">【有冇搞错】赵薇和“政治骗子”</a><br></h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13200295-bcaacdc3455ba88b7cb2c17853b2c328-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a><br></h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199965-1903040603392384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13202576-2109010518091487-320x200.jpg"></a>
+<a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13201381-200112015246100707-320x200.jpg"></a>
+<a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13201509-190106210643100707-320x200.jpg"></a>
 <a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199690-2108310430141487-320x200.jpg"></a>
 <a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13200082-2108310401342122-320x200.jpg"></a>
-<a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199269-2010161023261470-320x200.jpg"></a>
-<a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13197910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13197925-2002260747581487-320x200.jpg"></a>
-<a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13196655.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13196735-2108300017321487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202361.md#1" target="_blank">中国成员返家 SEVENTEEN暂以11人体制活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank">Yuju裕株与KONNECT娱乐签约：感到踏实</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank">演员梦碎曾淡出7年 洪都拉斯努力耕耘终获肯定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202166.md#1" target="_blank">《007生死交战》释预告 庞德最具挑战的终极任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202044.md#1" target="_blank">2021金马创投会议 公布19件入选剧集企划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199936.md#1" target="_blank">陈美凤现身夜市拍戏 摊商老板放下生意抢拍</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank">《完全娱乐》庆26岁 特辑回顾明星经典画面</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank">演员梦碎曾淡出7年 洪都拉斯努力耕耘终获肯定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202166.md#1" target="_blank">《007生死交战》释预告 庞德最具挑战的终极任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202044.md#1" target="_blank">2021金马创投会议 公布19件入选剧集企划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199936.md#1" target="_blank">陈美凤现身夜市拍戏 摊商老板放下生意抢拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13197195.md#1" target="_blank">爱知县办音乐祭逾8千人密集群聚 主办方致歉</a></h4></td></tr>
@@ -55,7 +55,7 @@
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/27/n13191068.md#1" target="_blank">大陆女星郑爽被罚2.99亿元 遭全面封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/29/n13196165.md#1" target="_blank">网传中共整肃艺人名单 导演点名李连杰快跑</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/29/n13195249.md#1" target="_blank">白家绮7年终圆梦 开箱豪宅可容一家7口</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/29/n13195249.md#1" target="_blank">白家绮7年终圆梦 开箱豪宅可容一家7口</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/phwbor381/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/phwbor381/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/phwbor381/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/phwbor381/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
