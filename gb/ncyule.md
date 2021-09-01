@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank">【有冇搞错】赵薇和“政治骗子”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank">懒理与赵薇不合传闻 范冰冰称只关注一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank">Yuju裕株与KONNECT娱乐签约：感到踏实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13200008.md#1" target="_blank">KEY 9月线上开唱 与太妍合作曲10区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199188.md#1" target="_blank">Lisa《LALISA》开放预购4天 预售破70万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199403.md#1" target="_blank">辉人与Ravi新公司签约 兼顾团体与个人活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199060.md#1" target="_blank">Stray Kids《NOEASY》累计出货量达110万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199936.md#1" target="_blank">陈美凤现身夜市拍戏 摊商老板放下生意抢拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank">《完全娱乐》庆26岁 特辑回顾明星经典画面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199936.md#1" target="_blank">陈美凤现身夜市拍戏 摊商老板放下生意抢拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank">《完全娱乐》庆26岁 特辑回顾明星经典画面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199622.md#1" target="_blank">为节目录歌 赵岱新不敢让周兴哲听自己歌声</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/30/n13197195.md#1" target="_blank">爱知县办音乐祭逾8千人密集群聚 主办方致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/30/n13196859.md#1" target="_blank">无法同时两地办活动 SUPERSONIC取消大阪场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/28/n13194027.md#1" target="_blank">Snow Man阿部亮平染疫 出现味觉异常等症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank">罗文裕首与许富凯合作 自夸“旗美双帅”献唱</a></h4></td></tr>
