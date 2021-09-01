@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank">【有冇搞错】赵薇和“政治骗子”</a><br></h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13200295-bcaacdc3455ba88b7cb2c17853b2c328-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a><br></h3><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199965-1903040603392384-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13202748-210901074045100707-320x200.jpg"></a>
 <a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13202576-2109010518091487-320x200.jpg"></a>
 <a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13201381-200112015246100707-320x200.jpg"></a>
 <a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13201509-190106210643100707-320x200.jpg"></a>
 <a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13199690-2108310430141487-320x200.jpg"></a>
-<a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/08/id13200082-2108310401342122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -38,10 +38,10 @@
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202166.md#1" target="_blank">《007生死交战》释预告 庞德最具挑战的终极任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202044.md#1" target="_blank">2021金马创投会议 公布19件入选剧集企划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank">小泽征悦与NHK知名主播桑子真帆结婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13197195.md#1" target="_blank">爱知县办音乐祭逾8千人密集群聚 主办方致歉</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/30/n13196859.md#1" target="_blank">无法同时两地办活动 SUPERSONIC取消大阪场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/phwbor381/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank">罗文裕首与许富凯合作 自夸“旗美双帅”献唱</a></h4></td></tr>
