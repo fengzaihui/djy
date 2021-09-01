@@ -30,14 +30,14 @@
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank">Yuju裕株与KONNECT娱乐签约：感到踏实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13200008.md#1" target="_blank">KEY 9月线上开唱 与太妍合作曲10区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199188.md#1" target="_blank">Lisa《LALISA》开放预购4天 预售破70万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13202166.md#1" target="_blank">《007生死交战》释预告 庞德最具挑战的终极任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13202044.md#1" target="_blank">2021金马创投会议 公布19件入选剧集企划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199936.md#1" target="_blank">陈美凤现身夜市拍戏 摊商老板放下生意抢拍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank">《完全娱乐》庆26岁 特辑回顾明星经典画面</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199168.md#1" target="_blank">《桥牌社2》制作人2天掉5公斤 住院收病危通知</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13202166.md#1" target="_blank">《007生死交战》释预告 庞德最具挑战的终极任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13202044.md#1" target="_blank">2021金马创投会议 公布19件入选剧集企划</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199936.md#1" target="_blank">陈美凤现身夜市拍戏 摊商老板放下生意抢拍</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199665.md#1" target="_blank">《完全娱乐》庆26岁 特辑回顾明星经典画面</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/30/n13197195.md#1" target="_blank">爱知县办音乐祭逾8千人密集群聚 主办方致歉</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/27/n13193057.md#1" target="_blank">被2岁女儿下“逐客令” 赵又廷的回应很理性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/29/n13195275.md#1" target="_blank">美国警察酷似影星巨石强森 犹如分身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/27/n13193075.md#1" target="_blank">继承母亲遗产进入倒计时？郑欣宜首度回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/27/n13191068.md#1" target="_blank">大陆女星郑爽被罚2.99亿元 遭全面封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/27/n13191068.md#1" target="_blank">大陆女星郑爽被罚2.99亿元 遭全面封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/29/n13196165.md#1" target="_blank">网传中共整肃艺人名单 导演点名李连杰快跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/29/n13195249.md#1" target="_blank">白家绮7年终圆梦 开箱豪宅可容一家7口</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/myoyzr357/djy/blob/master/gb/21/8/25/n13187964.md#1" target="_blank">孙俪：家人让我的表达能力提高了七成</a></h4></td></tr>
