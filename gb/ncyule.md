@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204858.md#1" target="_blank">ENHYPEN五位成员隔离中确诊染疫 症状类似</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204596.md#1" target="_blank">FTISLAND崔敏焕退伍 明天办线上直播活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13205230.md#1" target="_blank">首度入围金钟奖 窦智孔惊喜：感觉不太真实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">前额头发稀疏变浓密 34岁杨幂疑似已植发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13202817.md#1" target="_blank">郭子乾快60岁当男主角 诠释《茶金》茶商大王</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank">演员梦碎曾淡出7年 洪都拉斯努力耕耘终获肯定</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13205230.md#1" target="_blank">首度入围金钟奖 窦智孔惊喜：感觉不太真实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204870.md#1" target="_blank">已逝黄鸿升入围金钟节目主持人奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204961.md#1" target="_blank">2021金钟入围名单公布 《天桥》入围14项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank">周汤豪疫情后走出焦虑 学会面对最真实自己</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204816.md#1" target="_blank">小孩开学像打仗 阿翔妻“一打三”一天跑六趟</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank">小泽征悦与NHK知名主播桑子真帆结婚</a></h4></td></tr>
