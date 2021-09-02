@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13203565.md#1" target="_blank">演唱会场馆突遭取消 何韵诗宣布网上开唱</a><br></h3><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13203565.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/07/1906300234222384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a><br></h3><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/liu-leyan-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205000-2101190308551487-320x200.jpg"></a>
 <a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205042-2109020503031487-320x200.jpg"></a>
 <a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204858.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204901-210423022100100707-320x200.jpg"></a>
 <a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204311-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204430-2010300334591487-320x200.jpg"></a>
 <a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13016911-GettyImages-846052792-320x200.jpg"></a>
-<a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13202862.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13203081-210603132150100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank">【有冇搞错】赵薇和“政治骗子”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank">允浩违反防疫方针遭罚款 不在刑事处罚之列</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204858.md#1" target="_blank">ENHYPEN五位成员隔离中确诊染疫 症状类似</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204596.md#1" target="_blank">FTISLAND崔敏焕退伍 明天办线上直播活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13202862.md#1" target="_blank">Stray Kids以《Thunderous》夺冠 昇玟心怀感恩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">前额头发稀疏变浓密 34岁杨幂疑似已植发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/9/1/n13202817.md#1" target="_blank">郭子乾快60岁当男主角 诠释《茶金》茶商大王</a></h4></td></tr>
