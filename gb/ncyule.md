@@ -5,6 +5,7 @@
 <tr><td><h3><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank">Yuju裕株与KONNECT娱乐签约：感到踏实</a><br></h3><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13201509-190106210643100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a><br></h3><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/07/zhao-wei-GettyImages-474035560-1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13016911-GettyImages-846052792-320x200.jpg"></a>
 <a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202862.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13203081-210603132150100707-320x200.jpg"></a>
 <a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202817.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13202893-2109010833211487-320x200.jpg"></a>
 <a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13202748-210901074045100707-320x200.jpg"></a>
@@ -22,18 +23,18 @@
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">发际线后移引关注 34岁杨幂疑似已植发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank">【有冇搞错】赵薇和“政治骗子”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/8/31/n13198810.md#1" target="_blank">懒理与赵薇不合传闻 范冰冰称只关注一件事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202862.md#1" target="_blank">Stray Kids以《Thunderous》夺冠 昇玟心怀感恩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13201908.md#1" target="_blank">Dara和ABYSS签约 与宣美及BamBam同门</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202361.md#1" target="_blank">中国成员返家 SEVENTEEN暂以11人体制活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">发际线后移引关注 34岁杨幂疑似已植发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202817.md#1" target="_blank">郭子乾快60岁当男主角 诠释《茶金》茶商大王</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank">演员梦碎曾淡出7年 洪都拉斯努力耕耘终获肯定</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202166.md#1" target="_blank">《007生死交战》释预告 庞德最具挑战的终极任务</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13203565.md#1" target="_blank">演唱会场馆突遭取消 何韵诗宣布网上开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlfwur3187/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank">演员梦碎曾淡出7年 洪都拉斯努力耕耘终获肯定</a></h4></td></tr>
