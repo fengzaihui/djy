@@ -50,8 +50,8 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/26/n13190261.md#1" target="_blank">“小燕子”赵薇疑遭封杀 陆媒分析三大原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/27/n13192869.md#1" target="_blank">赵薇遭全面封杀 大陆娱乐圈人人自危急切割</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/27/n13193057.md#1" target="_blank">被2岁女儿下“逐客令” 赵又廷的回应很理性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/27/n13193057.md#1" target="_blank">被2岁女儿下“逐客令” 赵又廷的回应很理性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/29/n13195275.md#1" target="_blank">美国警察酷似影星巨石强森 犹如分身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dyxikb312/djy/blob/master/gb/21/8/27/n13193075.md#1" target="_blank">继承母亲遗产进入倒计时？郑欣宜首度回应</a></h4></td></tr>
