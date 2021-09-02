@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank">Yuju裕株与KONNECT娱乐签约：感到踏实</a><br></h3><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13201508.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13201509-190106210643100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a><br></h3><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/07/zhao-wei-GettyImages-474035560-1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204531-190116092729100707-320x200.jpg"></a>
 <a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204311-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/2/n13204324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204430-2010300334591487-320x200.jpg"></a>
 <a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/06/id13016911-GettyImages-846052792-320x200.jpg"></a>
 <a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13202862.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13203081-210603132150100707-320x200.jpg"></a>
 <a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13202817.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13202893-2109010833211487-320x200.jpg"></a>
-<a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13202748-210901074045100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13203565.md#1" target="_blank">演唱会场馆突遭取消 何韵诗宣布网上开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13202430.md#1" target="_blank">演员梦碎曾淡出7年 洪都拉斯努力耕耘终获肯定</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank">小泽征悦与NHK知名主播桑子真帆结婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/31/n13199488.md#1" target="_blank">绫濑遥感染中共病毒 因肺炎症状住院治疗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/svgwls311/djy/blob/master/gb/21/8/29/n13195024.md#1" target="_blank">罗文裕首与许富凯合作 自夸“旗美双帅”献唱</a></h4></td></tr>
