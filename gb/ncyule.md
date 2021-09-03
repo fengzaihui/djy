@@ -8,9 +8,9 @@
 <a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/3/n13207898.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207918-2109030522401487-320x200.jpg"></a>
 <a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/3/n13207385.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207451-2109030204321487-320x200.jpg"></a>
 <a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207072-210317024107100707-320x200.jpg"></a>
-<a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-320x200.jpg"></a>
 <a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205000-2101190308551487-320x200.jpg"></a>
 <a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205042-2109020503031487-320x200.jpg"></a>
+<a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/2/n13204858.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204901-210423022100100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
