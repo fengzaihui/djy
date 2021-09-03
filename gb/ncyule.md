@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">前额头发稀疏变浓密 34岁杨幂疑似已植发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/3/n13206823.md#1" target="_blank">MAMAMOO精选辑15日发行 专辑以问候语命名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13205100.md#1" target="_blank">成员齐聚谈今昔 孝渊：“少女时代”是我的光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank">允浩违反防疫方针遭罚款 不在刑事处罚之列</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204858.md#1" target="_blank">ENHYPEN五位成员隔离中确诊染疫 症状类似</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204596.md#1" target="_blank">FTISLAND崔敏焕退伍 明天办线上直播活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13206316.md#1" target="_blank">威尼斯影展开幕 华裔导演赵婷现身红毯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13205230.md#1" target="_blank">首度入围金钟奖 窦智孔惊喜：感觉不太真实</a></h4></td></tr>
