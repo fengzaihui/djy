@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204961.md#1" target="_blank">2021金钟入围名单公布 《天桥》入围14项</a><br></h3><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204961.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/07/1807050937081487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a><br></h3><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204531-190116092729100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207072-210317024107100707-320x200.jpg"></a>
 <a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-320x200.jpg"></a>
 <a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205000-2101190308551487-320x200.jpg"></a>
 <a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205042-2109020503031487-320x200.jpg"></a>
 <a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204858.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204901-210423022100100707-320x200.jpg"></a>
 <a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204311-181211004125100707-320x200.jpg"></a>
-<a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204324.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13204430-2010300334591487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">前额头发稀疏变浓密 34岁杨幂疑似已植发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank">SJ蝉连KKBOX冠军200周 利特与艺声谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/3/n13206823.md#1" target="_blank">MAMAMOO精选辑15日发行 专辑以问候语命名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13205100.md#1" target="_blank">成员齐聚谈今昔 孝渊：“少女时代”是我的光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank">允浩违反防疫方针遭罚款 不在刑事处罚之列</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204858.md#1" target="_blank">ENHYPEN五位成员隔离中确诊染疫 症状类似</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13206316.md#1" target="_blank">威尼斯影展开幕 华裔导演赵婷现身红毯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13205230.md#1" target="_blank">首度入围金钟奖 窦智孔惊喜：感觉不太真实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">前额头发稀疏变浓密 34岁杨幂疑似已植发</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank">SJ蝉连KKBOX冠军200周 利特与艺声谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13206073.md#1" target="_blank">黄秋生庆60岁生日 杜汶泽祝“好人一生平安”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13205230.md#1" target="_blank">首度入围金钟奖 窦智孔惊喜：感觉不太真实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204870.md#1" target="_blank">已逝黄鸿升入围金钟节目主持人奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204961.md#1" target="_blank">2021金钟入围名单公布 《天桥》入围14项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wzyhai300/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank">小泽征悦与NHK知名主播桑子真帆结婚</a></h4></td></tr>
