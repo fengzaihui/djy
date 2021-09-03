@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/3/n13207551.md#1" target="_blank">梅芳客串《斯卡罗》 犀利演出震慑全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/3/n13207385.md#1" target="_blank">科幻片《2067》10日登台 导演藉影作与观众对话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank">SJ蝉连KKBOX冠军200周 利特与艺声谢粉丝</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/3/n13207538.md#1" target="_blank">橘子新乐园两人染疫 NAOTO一周前PCR为阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank">小泽征悦与NHK知名主播桑子真帆结婚</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/1/n13201367.md#1" target="_blank">ITZY将于日本出道 公开正规专辑回归行程表</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank">周汤豪疫情后走出焦虑 学会面对最真实自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zeqdou3554/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
