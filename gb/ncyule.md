@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">前额头发稀疏变浓密 34岁杨幂疑似已植发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/4/n13209855.md#1" target="_blank">金宰铉确诊 N.Flying五人中四人染疫</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/4/n13209820.md#1" target="_blank">安兪真继张员瑛后确诊染疫 有发烧等症状</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/3/n13207464.md#1" target="_blank">N.Flying三位成员染疫 另两人等待检疫结果</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/3/n13207356.md#1" target="_blank">朴叙俊为拍漫威电影出国 公司对详情三缄其口</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank">SJ蝉连KKBOX冠军200周 利特与艺声谢粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/3/n13206823.md#1" target="_blank">MAMAMOO精选辑15日发行 专辑以问候语命名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/3/n13208183.md#1" target="_blank">连俞涵自比像山羌 不用群聚的时光也自在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/3/n13207551.md#1" target="_blank">梅芳客串《斯卡罗》 犀利演出震慑全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/3/n13207385.md#1" target="_blank">科幻片《2067》10日登台 导演藉影作与观众对话</a></h4></td></tr>
@@ -53,10 +53,10 @@
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/8/29/n13195275.md#1" target="_blank">美国警察酷似影星巨石强森 犹如分身</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/8/29/n13196165.md#1" target="_blank">网传中共整肃艺人名单 导演点名李连杰快跑</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xqives3830/djy/blob/master/gb/21/8/29/n13195249.md#1" target="_blank">白家绮7年终圆梦 开箱豪宅可容一家7口</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/xqives3830/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/xqives3830/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xqives3830/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/xqives3830/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
