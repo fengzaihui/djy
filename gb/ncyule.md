@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/3/n13208183.md#1" target="_blank">连俞涵自比像山羌 不用群聚的时光也自在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/3/n13207551.md#1" target="_blank">梅芳客串《斯卡罗》 犀利演出震慑全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/3/n13207385.md#1" target="_blank">科幻片《2067》10日登台 导演藉影作与观众对话</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank">男团选秀惊见“王仁甫” 孙协志：是考验我吧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">好事多磨 王心凌高雄加场演唱延至明年1月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/5/n13211051.md#1" target="_blank">认识学妹20多年才想追 柯有伦曝追妻过程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank">赵薇遭封杀 林心如一动作获赞“有先见之明”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/3/n13208868.md#1" target="_blank">为何近年只当厨师不拍电影？谢霆锋感伤回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/3/n13207538.md#1" target="_blank">橘子新乐园两人染疫 NAOTO一周前PCR为阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank">小泽征悦与NHK知名主播桑子真帆结婚</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank">男团选秀惊见“王仁甫” 孙协志：是考验我吧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">好事多磨 王心凌高雄加场演唱延至明年1月</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank">周汤豪疫情后走出焦虑 学会面对最真实自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/8/31/n13199424.md#1" target="_blank">信为新戏打造片尾曲 包办词曲、担任制作人</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/lyetbc306/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank">赵薇遭封杀 林心如一动作获赞“有先见之明”</a></h4></td></tr>
