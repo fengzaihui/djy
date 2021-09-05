@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207356.md#1" target="_blank">朴叙俊为拍漫威电影出国 公司对详情三缄其口</a><br></h3><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207356.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207390-190719052104100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211945.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13212004-2109050819371487-320x200.jpg"></a>
+<a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13211517-2109050338091487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13211151-2109042310541487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207898.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207918-2109030522401487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207385.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207451-2109030204321487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207072-210317024107100707-320x200.jpg"></a>
-<a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205000-2101190308551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
