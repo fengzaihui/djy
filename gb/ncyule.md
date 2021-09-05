@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank">赵薇遭封杀 林心如一动作获赞“有先见之明”</a><br></h3><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13209248-zhao-wei-lin-xinru-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207356.md#1" target="_blank">朴叙俊为拍漫威电影出国 公司对详情三缄其口</a><br></h3><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207356.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207390-190719052104100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211945.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13212004-2109050819371487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13211151-2109042310541487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207898.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207918-2109030522401487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207385.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207451-2109030204321487-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13206971.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13207072-210317024107100707-320x200.jpg"></a>
 <a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/2/n13204951.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205000-2101190308551487-320x200.jpg"></a>
-<a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13205042-2109020503031487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
@@ -35,28 +35,28 @@
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13208183.md#1" target="_blank">连俞涵自比像山羌 不用群聚的时光也自在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207551.md#1" target="_blank">梅芳客串《斯卡罗》 犀利演出震慑全场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207385.md#1" target="_blank">科幻片《2067》10日登台 导演藉影作与观众对话</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211945.md#1" target="_blank">林俊逸靠写字月入数万 曾因这2字泪洒作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank">男团选秀惊见“王仁甫” 孙协志：是考验我吧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">好事多磨 王心凌高雄加场演唱延至明年1月</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">王心凌生日报喜 演唱会加场明年1月中登场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211051.md#1" target="_blank">认识学妹20多年才想追 柯有伦曝追妻过程</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank">赵薇遭封杀 林心如一动作获赞“有先见之明”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13207538.md#1" target="_blank">橘子新乐园两人染疫 NAOTO一周前PCR为阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/1/n13202553.md#1" target="_blank">小泽征悦与NHK知名主播桑子真帆结婚</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank">男团选秀惊见“王仁甫” 孙协志：是考验我吧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">好事多磨 王心凌高雄加场演唱延至明年1月</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">王心凌生日报喜 演唱会加场明年1月中登场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank">周汤豪疫情后走出焦虑 学会面对最真实自己</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank">赵薇遭封杀 林心如一动作获赞“有先见之明”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/31/n13200937.md#1" target="_blank">赵薇为何被封杀？台名嘴爆北京大咖仅答9字</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/29/n13196165.md#1" target="_blank">网传中共整肃艺人名单 导演点名李连杰快跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/9/3/n13208868.md#1" target="_blank">为何近年只当厨师不拍电影？谢霆锋感伤回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wqdccn312/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/wqdccn312/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/wqdccn312/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wqdccn312/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/wqdccn312/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
