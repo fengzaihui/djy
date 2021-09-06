@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/3/n13209273.md#1" target="_blank">工作室微博被禁言至今 赵丽颖9月行程成谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/1/n13203881.md#1" target="_blank">前额头发稀疏变浓密 34岁杨幂疑似已植发</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/6/n13213725.md#1" target="_blank">fromis_9《Talk &#038; Talk》MV 两天破千万次观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/6/n13213209.md#1" target="_blank">前KARA成员许龄智身体异常 检疫后确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/6/n13212994.md#1" target="_blank">姜惠元将演出网路剧 演风云人物挑战演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/6/n13212938.md#1" target="_blank">ENHYPEN成员NIKI也染疫 七人中六人确诊</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/4/n13209855.md#1" target="_blank">金宰铉确诊 N.Flying五人中四人染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/5/n13212560.md#1" target="_blank">不适应在香港拍戏 妮可·基嫚请假回澳洲休息</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/5/n13211051.md#1" target="_blank">认识学妹20多年才想追 柯有伦曝追妻过程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/3/n13208183.md#1" target="_blank">连俞涵自比像山羌 不用群聚的时光也自在</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/8/30/n13198516.md#1" target="_blank">李冰冰出12万月薪请保姆 面试洗菜刷掉20多人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/3/n13208868.md#1" target="_blank">为何近年只当厨师不拍电影？谢霆锋感伤回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/8/30/n13198271.md#1" target="_blank">赵薇出事 牵连旗下艺人遭封杀</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/8/31/n13200901.md#1" target="_blank">梁咏琪宣布将暂别歌坛 原因曝光震惊歌迷</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qifiye3791/djy/blob/master/gb/21/8/30/n13198427.md#1" target="_blank">【有冇搞错】赵薇和“政治骗子”</a></h4></td></tr>
