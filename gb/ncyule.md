@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/3/n13209273.md#1" target="_blank">工作室微博被禁言至今 赵丽颖9月行程成谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13214349.md#1" target="_blank">Highlight成员耀燮 首张正规专辑预告片公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213271.md#1" target="_blank">YG娱乐公开Lisa专辑曲目：她发光的时刻来了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213725.md#1" target="_blank">fromis_9《Talk &#038; Talk》MV 两天破千万次观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213209.md#1" target="_blank">前KARA成员许龄智身体异常 检疫后确诊染疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13212994.md#1" target="_blank">姜惠元将演出网路剧 演风云人物挑战演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank">《尚气》横扫周末台美票房 梁朝伟做了2个突破</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213881.md#1" target="_blank">摄影林赞庭、导演蔡扬名 获金马奖终身成就奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/5/n13212560.md#1" target="_blank">不适应在香港拍戏 妮可·基嫚请假回澳洲休息</a></h4></td></tr>
