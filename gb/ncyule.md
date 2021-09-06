@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/3/n13209273.md#1" target="_blank">工作室微博被禁言至今 赵丽颖9月行程成谜</a><br></h3><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/3/n13209273.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/02/170323102148100694-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank">赵薇遭封杀 林心如一动作获赞“有先见之明”</a><br></h3><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13209248-zhao-wei-lin-xinru-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13214258-2109060637451487-320x200.jpg"></a>
 <a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13213600-201228011532100707-320x200.jpg"></a>
 <a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213881.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13214008-2109060442151487-320x200.jpg"></a>
 <a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13213684-2105020138081487-320x200.jpg"></a>
 <a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213236.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13213289-2109060000001487-320x200.jpg"></a>
 <a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13212938.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13212958-210423022100100707-320x200.jpg"></a>
-<a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/5/n13211945.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13212004-2109050819371487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213725.md#1" target="_blank">fromis_9《Talk &#038; Talk》MV 两天破千万次观看</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213209.md#1" target="_blank">前KARA成员许龄智身体异常 检疫后确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13212994.md#1" target="_blank">姜惠元将演出网路剧 演风云人物挑战演技</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank">《尚气》横扫周末台美票房 梁朝伟做了2个突破</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213881.md#1" target="_blank">摄影林赞庭、导演蔡扬名 获金马奖终身成就奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/5/n13212560.md#1" target="_blank">不适应在香港拍戏 妮可·基嫚请假回澳洲休息</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/5/n13211051.md#1" target="_blank">认识学妹20多年才想追 柯有伦曝追妻过程</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/3/n13208183.md#1" target="_blank">连俞涵自比像山羌 不用群聚的时光也自在</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank">《尚气》横扫周末台美票房 梁朝伟做了2个突破</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213881.md#1" target="_blank">摄影林赞庭、导演蔡扬名 获金马奖终身成就奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213671.md#1" target="_blank">陈昇曝近况暴瘦7公斤 急问医“可再活20年吗”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/6/n13213236.md#1" target="_blank">毕书尽打疫苗反复高烧 煎熬50小时“像被车撞”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/3/n13207538.md#1" target="_blank">橘子新乐园两人染疫 NAOTO一周前PCR为阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rgjxmt3702/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
