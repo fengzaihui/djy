@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a><br></h3><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/GettyImages-607540788-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/5/n13212560.md#1" target="_blank">不适应在香港拍戏 妮可·基嫚请假回澳洲休息</a><br></h3><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/5/n13212560.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13172175-GettyImages-1200627617-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/7/n13216338.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13216374-2109070323521487-320x200.jpg"></a>
 <a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13215231.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/07/DSC_6863_meitu_1-320x200.jpg"></a>
 <a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13214258-2109060637451487-320x200.jpg"></a>
 <a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13213600-201228011532100707-320x200.jpg"></a>
 <a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213881.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13214008-2109060442151487-320x200.jpg"></a>
 <a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213671.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13213684-2105020138081487-320x200.jpg"></a>
-<a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13212938.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13212958-210423022100100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/3/n13209273.md#1" target="_blank">工作室微博被禁言至今 赵丽颖9月行程成谜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/7/n13216338.md#1" target="_blank">朴正民润娥首度合作 共演《奇迹》拼建小车站</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13214349.md#1" target="_blank">Highlight成员耀燮 首张正规专辑预告片公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213271.md#1" target="_blank">YG娱乐公开Lisa专辑曲目：她发光的时刻来了</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213725.md#1" target="_blank">fromis_9《Talk &#038; Talk》MV 两天破千万次观看</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213209.md#1" target="_blank">前KARA成员许龄智身体异常 检疫后确诊染疫</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13215591.md#1" target="_blank">与郑裕玲叙旧 梁朝伟忘记了29年前退休宣言</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank">《尚气》横扫周末台美票房 梁朝伟做了2个突破</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fqovms3570/djy/blob/master/gb/21/9/6/n13213881.md#1" target="_blank">摄影林赞庭、导演蔡扬名 获金马奖终身成就奖</a></h4></td></tr>
