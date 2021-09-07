@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/3/n13209273.md#1" target="_blank">工作室微博被禁言至今 赵丽颖9月行程成谜</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/7/n13216841.md#1" target="_blank">敏焕曝有望再登《家务男》 洪基透露新作消息</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/7/n13216627.md#1" target="_blank">STAYC首度获音源榜冠军 专辑首日卖破4万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/7/n13216495.md#1" target="_blank">韩媒曝2021 MAMA受疫情影响 12月于韩国举行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/6/n13214048.md#1" target="_blank">Young K以《Eternal》传心意 盼永存于众人记忆</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/7/n13216338.md#1" target="_blank">朴正民润娥首度合作 共演《奇迹》拼建小车站</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/7/n13216654.md#1" target="_blank">方文山投稿99次屡败 发奋勤写百首词终获回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/7/n13216526.md#1" target="_blank">2021金穗影展10日登场 逾30位影人共同揭幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yokxwt356/djy/blob/master/gb/21/9/6/n13215591.md#1" target="_blank">与郑裕玲叙旧 梁朝伟忘记了29年前退休宣言</a></h4></td></tr>
