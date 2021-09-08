@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13217146.md#1" target="_blank">fromis_9出道三年首度夺冠 成员们感慨落泪</a><br></h3><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13217146.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13217148-210524084141100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/6/n13215591.md#1" target="_blank">与郑裕玲叙旧 梁朝伟忘记了29年前退休宣言</a><br></h3><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/6/n13215591.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-451535377-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219232.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13219286-210908071733100707-320x200.jpg"></a>
 <a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219030.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13219070-2109080522041487-320x200.jpg"></a>
 <a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218866.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13218894-2003140346541470-320x200.jpg"></a>
 <a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218755.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13218926-210908041647100707-320x200.jpg"></a>
 <a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218690.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13218719-2109080217531487-320x200.jpg"></a>
 <a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218063.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13218074-200825062009100707-320x200.jpg"></a>
-<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/07/zhaowei-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/6/n13215231.md#1" target="_blank">怕成下个赵薇？谢霆锋认退加拿大国籍引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219232.md#1" target="_blank">金世正翻唱周兴哲歌曲 获本人认证“好好听”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218996.md#1" target="_blank">《都市渔夫3》节目组六人确诊 本周节目停播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218755.md#1" target="_blank">演员郑雨盛捐款1亿韩元 帮助阿富汗难民</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218449.md#1" target="_blank">MAMA将于12月举行 尚未决定开放观众入场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218224.md#1" target="_blank">柔廷合约到期离团 LABOUM以四人体制活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219185.md#1" target="_blank">科幻史诗《沙丘》卡司华丽 剧中家族势力解析</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219030.md#1" target="_blank">林嘉俐难抽离爱生气角色 气到挂脑神经内科</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218690.md#1" target="_blank">连静雯主持新节目即兴发挥 专帮委托者圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13216654.md#1" target="_blank">方文山投稿99次屡败 发奋勤写百首词终获回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219232.md#1" target="_blank">金世正翻唱周兴哲歌曲 获本人认证“好好听”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219236.md#1" target="_blank">台网红486账号遭停权 脸书回应：涉及仇恨言论</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219017.md#1" target="_blank">刘杰中首度主持广播金钟 被广播人夸颜值高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219030.md#1" target="_blank">林嘉俐难抽离爱生气角色 气到挂脑神经内科</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218866.md#1" target="_blank">黄嘉千女儿夏天长大了 老爸夏克立晒同框近照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219029.md#1" target="_blank">GACKT罹病仍承诺会守约：没有跨越不了的墙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218063.md#1" target="_blank">GACKT罹病一度命危 无限期暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13216097.md#1" target="_blank">NiziU以首张正规专辑《U》传递感谢 11月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/3/n13207538.md#1" target="_blank">橘子新乐园两人染疫 NAOTO一周前PCR为阴性</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219232.md#1" target="_blank">金世正翻唱周兴哲歌曲 获本人认证“好好听”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/6/n13213671.md#1" target="_blank">陈昇曝近况暴瘦7公斤 急问医“可再活20年吗”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank">男团选秀惊见“王仁甫” 孙协志：是考验我吧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">王心凌生日报喜 演唱会加场明年1月中登场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/2/n13204933.md#1" target="_blank">周汤豪疫情后走出焦虑 学会面对最真实自己</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/3/n13209059.md#1" target="_blank">赵薇遭封杀 林心如一动作获赞“有先见之明”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
