@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219030.md#1" target="_blank">林嘉俐难抽离爱生气角色 气到挂脑神经内科</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218690.md#1" target="_blank">连静雯主持新节目即兴发挥 专帮委托者圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13216654.md#1" target="_blank">方文山投稿99次屡败 发奋勤写百首词终获回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219236.md#1" target="_blank">台网红486账号遭停权 脸书回应：涉及仇恨言论</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219017.md#1" target="_blank">刘杰中首度主持广播金钟 被广播人夸颜值高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219030.md#1" target="_blank">林嘉俐难抽离爱生气角色 气到挂脑神经内科</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218866.md#1" target="_blank">黄嘉千女儿夏天长大了 老爸夏克立晒同框近照</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218690.md#1" target="_blank">连静雯主持新节目即兴发挥 专帮委托者圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219029.md#1" target="_blank">GACKT罹病仍承诺会守约：没有跨越不了的墙</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218063.md#1" target="_blank">GACKT罹病一度命危 无限期暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13216097.md#1" target="_blank">NiziU以首张正规专辑《U》传递感谢 11月发行</a></h4></td></tr>
