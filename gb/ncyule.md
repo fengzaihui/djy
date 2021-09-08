@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218690.md#1" target="_blank">连静雯主持新节目即兴发挥 专帮委托者圆梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13216654.md#1" target="_blank">方文山投稿99次屡败 发奋勤写百首词终获回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13216526.md#1" target="_blank">2021金穗影展10日登场 逾30位影人共同揭幕</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219017.md#1" target="_blank">刘杰中首度主持广播金钟 被广播人夸颜值高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13219030.md#1" target="_blank">林嘉俐难抽离爱生气角色 气到挂脑神经内科</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218866.md#1" target="_blank">黄嘉千女儿夏天长大了 老爸夏克立晒同框近照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218690.md#1" target="_blank">连静雯主持新节目即兴发挥 专帮委托者圆梦</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218036.md#1" target="_blank">被指来自天王嫂训练营 郭富城妻哽咽首谈内情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/8/n13218063.md#1" target="_blank">GACKT罹病一度命危 无限期暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13216097.md#1" target="_blank">NiziU以首张正规专辑《U》传递感谢 11月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/3/n13207538.md#1" target="_blank">橘子新乐园两人染疫 NAOTO一周前PCR为阴性</a></h4></td></tr>
@@ -52,11 +52,11 @@
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/2/n13206555.md#1" target="_blank">孙俪眼球凸出遭疑得甲亢 网民：证明没医美</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/3/n13208868.md#1" target="_blank">为何近年只当厨师不拍电影？谢霆锋感伤回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/1/n13203696.md#1" target="_blank">一直拒绝扮演父亲角色 梁朝伟终于道出原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/8/31/n13201341.md#1" target="_blank">不满被当境外人士 刘乐妍自曝遭大陆剧组嫌弃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/3/n13209273.md#1" target="_blank">工作室微博被禁言至今 赵丽颖9月行程成谜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/2/n13206073.md#1" target="_blank">黄秋生庆60岁生日 杜汶泽祝“好人一生平安”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/7/n13215985.md#1" target="_blank">因台独言论遭FB禁言 台网红怒：文革蔓延到台湾</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank">《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/pxeqnh3506/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/pxeqnh3506/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
