@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/6/n13215231.md#1" target="_blank">怕成下个赵薇？谢霆锋认退加拿大国籍引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/8/n13218224.md#1" target="_blank">柔廷合约到期离团 LABOUM以四人体制活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/8/n13218096.md#1" target="_blank">BTS《Butter》重回Hot 100榜冠军 第十度登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/7/n13217146.md#1" target="_blank">fromis_9出道三年首度夺冠 成员们感慨落泪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/7/n13216841.md#1" target="_blank">敏焕曝有望再登《家务男》 洪基透露新作消息</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/7/n13216627.md#1" target="_blank">STAYC首度获音源榜冠军 专辑首日卖破4万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/7/n13216654.md#1" target="_blank">方文山投稿99次屡败 发奋勤写百首词终获回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/7/n13216526.md#1" target="_blank">2021金穗影展10日登场 逾30位影人共同揭幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/aqgzvp3484/djy/blob/master/gb/21/9/6/n13215591.md#1" target="_blank">与郑裕玲叙旧 梁朝伟忘记了29年前退休宣言</a></h4></td></tr>
