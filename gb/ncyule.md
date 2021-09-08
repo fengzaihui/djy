@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13215048.md#1" target="_blank">郭富城新片剧组出意外《扫毒3》特技师受重伤</a><br></h3><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13215048.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/09/bedb518e8bc29067f8f0ac60d99ffb33-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13213236.md#1" target="_blank">毕书尽打疫苗反复高烧 煎熬50小时“像被车撞”</a><br></h3><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13213236.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13213289-2109060000001487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/8/n13218063.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13218074-200825062009100707-320x200.jpg"></a>
 <a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/07/zhaowei-320x200.jpg"></a>
 <a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13216654.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13216702-2109070535251487-320x200.jpg"></a>
 <a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13214048.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13214288-210527080747100707-320x200.jpg"></a>
 <a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13216338.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13216374-2109070323521487-320x200.jpg"></a>
 <a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13214258-2109060637451487-320x200.jpg"></a>
-<a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13213271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13213600-201228011532100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
@@ -23,7 +23,7 @@
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/3/14/n12810940.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2020/03/2003020423061487-320x200.jpg"><br> 儿子走路撞到树直呼痛 严立婷教育方法获爆赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/3/4/n12788789.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/210304071538100707-320x200.jpg"><br> Rain郑智薰出道20年再添名言：坚持就能胜出</a></h4></td></tr>
 </h4></td></tr><tr><td><h3><p><strong>大纪元娱乐休闲  最新文章</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank">回顾赵薇当年有多红 网友发现孙俪曾帮伴舞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank">回顾赵薇当年有多红 网友挖出孙俪曾帮她伴舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13215231.md#1" target="_blank">怕成下个赵薇？谢霆锋认退加拿大国籍引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13216509.md#1" target="_blank">幼稚园爆群聚 徐小可心疼：小孩什么都不知道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13216654.md#1" target="_blank">方文山投稿99次屡败 发奋勤写百首词终获回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13215985.md#1" target="_blank">因台独言论遭FB禁言 台网红怒：文革蔓延到台湾</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/8/n13218063.md#1" target="_blank">GACKT罹病一度命危 无限期暂停演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13216097.md#1" target="_blank">NiziU以首张正规专辑《U》传递感谢 11月发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/3/n13207538.md#1" target="_blank">橘子新乐园两人染疫 NAOTO一周前PCR为阴性</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/2/n13204495.md#1" target="_blank">深田恭子适应障碍症康复 重启演艺活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/2/n13204309.md#1" target="_blank">宫胁咲良与奈子聊IZ*ONE回忆 广播9月底告终</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13213671.md#1" target="_blank">陈昇曝近况暴瘦7公斤 急问医“可再活20年吗”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank">男团选秀惊见“王仁甫” 孙协志：是考验我吧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/5/n13211129.md#1" target="_blank">王心凌生日报喜 演唱会加场明年1月中登场</a></h4></td></tr>
@@ -57,6 +57,6 @@
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/2/n13206073.md#1" target="_blank">黄秋生庆60岁生日 杜汶泽祝“好人一生平安”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/6/n13213942.md#1" target="_blank">张钧甯因硕论被扣台独 遭中共网友点名出征</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank">《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uitcog310/djy/blob/master/gb/21/9/7/n13215985.md#1" target="_blank">因台独言论遭FB禁言 台网红怒：文革蔓延到台湾</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/uitcog310/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/uitcog310/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/uitcog310/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/uitcog310/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
