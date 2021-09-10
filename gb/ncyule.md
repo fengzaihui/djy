@@ -12,11 +12,11 @@
 <a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221207.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13221274-210909031835100707-320x200.jpg"></a>
 <a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13220902.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13220927-2106110238511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民能否共存共荣 成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/8/26/n13187517.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13187521-513460-320x200.jpg"><br>《噤界II》影评：为系列承先启后的成功续集！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/8/24/n13183210.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13183222-513048-320x200.png"><br>《猎魔士：狼之恶梦》影评：有限篇幅 也能成功刻划传奇人物</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/8/21/n13177947.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13177956-512704-320x200.jpeg"><br>《叫她系主任》影评：大学系主任 未必是金饭碗</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
