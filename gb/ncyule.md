@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/8/n13220155.md#1" target="_blank">黄秋生自曝已抵台隔离 三个字评铁皮屋获大赞</a><br></h3><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/8/n13220155.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/huangqiusheng-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank">漫威首部华人英雄片热卖 男主角遭五毛翻旧账</a><br></h3><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13214259-2109060636301487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13223932-2006202248511487-320x200.jpg"></a>
 <a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13223793-2109100236281487-320x200.jpg"></a>
 <a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13221577-210616043249100707-320x200.jpg"></a>
 <a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221608.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13221613-DSC_2756-320x200.jpg"></a>
 <a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221342.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13221360-210909035627100707-320x200.jpg"></a>
 <a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221308.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13221348-210904013455100707-320x200.jpg"></a>
-<a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221227.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13221259-1704230111291487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民能否共存共荣 成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223207.md#1" target="_blank">张员瑛染疫已痊愈 解除隔离休息中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221413.md#1" target="_blank">VIXX成员LEO郑泽运今日退伍</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank">何润东新戏将在HBO首播 徐若瑄兼制作、演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank">“雷神”晒与父亲温馨合照 网民：宛如双胞胎</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受大陆出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221513.md#1" target="_blank">台剧《四楼的天堂》释预告 迎接黄秋生抵台</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank">何润东新戏将在HBO首播 徐若瑄兼制作、演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221513.md#1" target="_blank">台剧《四楼的天堂》释预告 迎接黄秋生抵台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221608.md#1" target="_blank">Delta变种病毒入侵 白家绮提醒女儿做防疫</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221227.md#1" target="_blank">金钟视帝唐川中风病倒 妻谈现况：无法言语</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/cdbkmw3667/djy/blob/master/gb/21/9/9/n13221342.md#1" target="_blank">香里奈出院 感谢医护于疫情中照顾病患身心</a></h4></td></tr>
