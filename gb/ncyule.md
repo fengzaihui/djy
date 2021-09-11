@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/8/n13220446.md#1" target="_blank">与黄晓明首度合演剧集遭搁置 赵薇由袁泉顶替</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank">漫威首部华人英雄片热卖 男主角遭五毛翻旧账</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/11/n13226039.md#1" target="_blank">Lisa《LALISA》65区iTunes登顶 MV创纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank">Lisa获BLACKPINK成员鼓励 专辑预售逾80万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/10/n13223838.md#1" target="_blank">BLACKPINK登全球最多YouTube订阅数歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/10/n13223428.md#1" target="_blank">B.I涉毒案 法院判三年有期徒刑 缓刑四年</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/10/n13223207.md#1" target="_blank">张员瑛染疫已痊愈 解除隔离休息中</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank">何润东新戏将在HBO首播 徐若瑄兼制作、演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/oncntc338/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank">“雷神”晒与父亲温馨合照 网民：宛如双胞胎</a></h4></td></tr>
