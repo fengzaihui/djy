@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank">遭酸民归类冷门歌手 孙燕姿线上演唱会7字回应</a><br></h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224913-2109101050521487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank">“雷神”晒与父亲温馨合照 网民：宛如双胞胎</a><br></h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1149411709-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227363-2105110407592122-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227319-2109112143251487-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13225377.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/03/1903270615401487-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224931-200109052555100707-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224166.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224465-2109100813551487-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223838.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224086-190129092411100707-320x200.jpg"></a>
-<a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13223932-2006202248511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank">何润东新戏将在HBO首播 徐若瑄兼制作、演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank">“雷神”晒与父亲温馨合照 网民：宛如双胞胎</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank">魏如萱产后变多愁善感 创作取材全来自生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13225338.md#1" target="_blank">戳气球公布二胎性别 瑞莎：体操队加入新选手</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank">遭酸民归类冷门歌手 孙燕姿线上演唱会7字回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13221342.md#1" target="_blank">香里奈出院 感谢医护于疫情中照顾病患身心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13220702.md#1" target="_blank">本月少女在日本出道 单曲9月15日数位发行</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank">魏如萱产后变多愁善感 创作取材全来自生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank">遭酸民归类冷门歌手 孙燕姿线上演唱会7字回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/8/n13219232.md#1" target="_blank">金世正翻唱周兴哲歌曲 获本人认证“好好听”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/6/n13213671.md#1" target="_blank">陈昇曝近况暴瘦7公斤 急问医“可再活20年吗”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/5/n13211498.md#1" target="_blank">男团选秀惊见“王仁甫” 孙协志：是考验我吧</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank">回顾赵薇当年有多红 网友挖出孙俪曾给她伴舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/8/n13218036.md#1" target="_blank">被指来自天王嫂训练营 郭富城妻哽咽首谈内情</a></h4></td></tr>
