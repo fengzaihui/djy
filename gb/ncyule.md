@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank">遭酸民归类冷门歌手 孙燕姿线上演唱会7字回应</a><br></h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224913-2109101050521487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank">“雷神”晒与父亲温馨合照 网民：宛如双胞胎</a><br></h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/04/GettyImages-1149411709-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227319-2109112143251487-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13225377.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/03/1903270615401487-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224931-200109052555100707-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224166.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224465-2109100813551487-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223838.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224086-190129092411100707-320x200.jpg"></a>
 <a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13223932-2006202248511487-320x200.jpg"></a>
-<a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13223793-2109100236281487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank">Lisa获BLACKPINK成员鼓励 专辑预售逾80万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223838.md#1" target="_blank">BLACKPINK登全球最多YouTube订阅数歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223428.md#1" target="_blank">B.I涉毒案 法院判三年有期徒刑 缓刑四年</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank">何润东新戏将在HBO首播 徐若瑄兼制作、演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank">“雷神”晒与父亲温馨合照 网民：宛如双胞胎</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13225338.md#1" target="_blank">戳气球公布二胎性别 瑞莎：体操队加入新选手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank">遭酸民归类冷门歌手 孙燕姿线上演唱会7字回应</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13224166.md#1" target="_blank">陈零九病愈后容易恐慌 体重直掉4公斤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13221342.md#1" target="_blank">香里奈出院 感谢医护于疫情中照顾病患身心</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank">漫威首部华人英雄片热卖 男主角遭五毛翻旧账</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/5/n13212708.md#1" target="_blank">中共重拳整肃娱乐圈 范冰冰演艺路恐彻底截断</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/8/n13220446.md#1" target="_blank">与黄晓明首度合演剧集遭搁置 赵薇由袁泉顶替</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/8/n13220446.md#1" target="_blank">与黄晓明首度合演剧集遭搁置 赵薇由袁泉顶替</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/8/n13219236.md#1" target="_blank">台网红486账号遭停权 脸书回应：涉及仇恨言论</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bnbdas3787/djy/blob/master/gb/21/9/7/n13215985.md#1" target="_blank">因台独言论遭FB禁言 台网红怒：文革蔓延到台湾</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/bnbdas3787/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
