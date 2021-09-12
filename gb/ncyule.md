@@ -49,8 +49,8 @@
 <tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank">遭酸民归类冷门歌手 孙燕姿线上演唱会7字回应</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank">回顾赵薇当年有多红 网友挖出孙俪曾给她伴舞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/8/n13218036.md#1" target="_blank">被指来自天王嫂训练营 郭富城妻哽咽首谈内情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/8/n13218036.md#1" target="_blank">被指来自天王嫂训练营 郭富城妻哽咽首谈内情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/8/n13220155.md#1" target="_blank">黄秋生自曝已抵台隔离 三个字评铁皮屋获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vtmwhj347/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank">漫威首部华人英雄片热卖 男主角遭五毛翻旧账</a></h4></td></tr>
