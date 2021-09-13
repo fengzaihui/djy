@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225377.md#1" target="_blank">胡歌：出道以来只为了证明自己是个演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229613.md#1" target="_blank">Dal★Shabet世理染疫痊愈出院：有重生的感觉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/11/n13226039.md#1" target="_blank">Lisa《LALISA》65区iTunes登顶 MV创纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank">Lisa获BLACKPINK成员鼓励 专辑预售逾80万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223838.md#1" target="_blank">BLACKPINK登全球最多YouTube订阅数歌手</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223428.md#1" target="_blank">B.I涉毒案 法院判三年有期徒刑 缓刑四年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229086.md#1" target="_blank">周兴哲跨海宣传 首与对唱新人同台相见欢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
@@ -52,11 +52,11 @@
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13218036.md#1" target="_blank">被指来自天王嫂训练营 郭富城妻哽咽首谈内情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13220155.md#1" target="_blank">黄秋生自曝已抵台隔离 三个字评铁皮屋获大赞</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank">漫威首部华人英雄片热卖 男主角遭五毛翻旧账</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13220446.md#1" target="_blank">与黄晓明首度合演剧集遭搁置 赵薇由袁泉顶替</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13219236.md#1" target="_blank">台网红486账号遭停权 脸书回应：涉及仇恨言论</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/7/n13215985.md#1" target="_blank">因台独言论遭FB禁言 台网红怒：文革蔓延到台湾</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/6/n13214171.md#1" target="_blank">《尚气》横扫周末台美票房 梁朝伟做了2个突破</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yzovrq360/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/yzovrq360/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yzovrq360/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/yzovrq360/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
