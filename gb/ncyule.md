@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/11/n13226039.md#1" target="_blank">Lisa《LALISA》65区iTunes登顶 MV创纪录</a><br></h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/11/n13226039.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13226123-200131101750100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a><br></h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-451535377-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229574.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229594-2109130257381487-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227690.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227710-2109120453431487-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227429.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227435-2109120007061487-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227363-2105110407592122-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225377.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/03/1903270615401487-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224931-200109052555100707-320x200.jpg"></a>
-<a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223838.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13224086-190129092411100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank">何润东新戏将在HBO首播 徐若瑄兼制作、演员</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229574.md#1" target="_blank">5座城市12组歌手云端合唱《城里的月光2021》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229086.md#1" target="_blank">周兴哲跨海宣传 首与对唱新人同台相见欢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227690.md#1" target="_blank">蔡健雅爱做甜点曾想转行 担心赔本才作罢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227429.md#1" target="_blank">玖壹壹成军12年 每年9月11日都想做特别事</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank">魏如萱产后变多愁善感 创作取材来自生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13221342.md#1" target="_blank">香里奈出院 感谢医护于疫情中照顾病患身心</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229574.md#1" target="_blank">5座城市12组歌手云端合唱《城里的月光2021》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227690.md#1" target="_blank">蔡健雅爱做甜点曾想转行 担心赔本才作罢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227429.md#1" target="_blank">玖壹壹成军12年 每年9月11日都想做特别事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank">魏如萱产后变多愁善感 创作取材来自生活</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13224881.md#1" target="_blank">遭酸民归类冷门歌手 孙燕姿线上演唱会7字回应</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank">回顾赵薇当年有多红 网友挖出孙俪曾给她伴舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
