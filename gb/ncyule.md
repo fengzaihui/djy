@@ -50,9 +50,9 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank">回顾赵薇当年有多红 网友挖出孙俪曾给她伴舞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13218036.md#1" target="_blank">被指来自天王嫂训练营 郭富城妻哽咽首谈内情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13220155.md#1" target="_blank">黄秋生自曝已抵台隔离 三个字评铁皮屋获大赞</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank">漫威首部华人英雄片热卖 男主角遭五毛翻旧账</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/8/n13220446.md#1" target="_blank">与黄晓明首度合演剧集遭搁置 赵薇由袁泉顶替</a></h4></td></tr>
