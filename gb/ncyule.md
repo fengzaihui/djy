@@ -31,18 +31,18 @@
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank">Lisa获BLACKPINK成员鼓励 专辑预售逾80万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223838.md#1" target="_blank">BLACKPINK登全球最多YouTube订阅数歌手</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223428.md#1" target="_blank">B.I涉毒案 法院判三年有期徒刑 缓刑四年</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229086.md#1" target="_blank">周兴哲跨海宣传 首与对唱新人同台相见欢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223897.md#1" target="_blank">宥胜分享下半年生活模式 都市乡村两地跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223731.md#1" target="_blank">何润东新戏将在HBO首播 徐若瑄兼制作、演员</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13222877.md#1" target="_blank">“雷神”晒与父亲温馨合照 网民：宛如双胞胎</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229086.md#1" target="_blank">周兴哲跨海宣传 首与对唱新人同台相见欢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227690.md#1" target="_blank">蔡健雅爱做甜点曾想转行 担心赔本才作罢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227429.md#1" target="_blank">玖壹壹成军12年 每年9月11日都想做特别事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank">魏如萱产后变多愁善感 创作取材来自生活</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13221342.md#1" target="_blank">香里奈出院 感谢医护于疫情中照顾病患身心</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13220702.md#1" target="_blank">本月少女在日本出道 单曲9月15日数位发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227690.md#1" target="_blank">蔡健雅爱做甜点曾想转行 担心赔本才作罢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227429.md#1" target="_blank">玖壹壹成军12年 每年9月11日都想做特别事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank">魏如萱产后变多愁善感 创作取材来自生活</a></h4></td></tr>
