@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a><br></h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227319-2109112143251487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/11/n13226039.md#1" target="_blank">Lisa《LALISA》65区iTunes登顶 MV创纪录</a><br></h3><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/11/n13226039.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13226123-200131101750100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229821.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13230116-200218225530100707-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229936.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229964-2109130548091487-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229574.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229594-2109130257381487-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229268-210913004110100707-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227690.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227710-2109120453431487-320x200.jpg"></a>
 <a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227429.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227435-2109120007061487-320x200.jpg"></a>
-<a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13227363-2105110407592122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13225377.md#1" target="_blank">胡歌：出道以来只为了证明自己是个演员</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13230247.md#1" target="_blank">宇宙少女新歌《Let Me In》 9月23日发行</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229821.md#1" target="_blank">金玟周改以演员身份活动 今启用“bubble”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229272.md#1" target="_blank">BTS获2021 MTV VMA三奖 录影片感谢粉丝支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229613.md#1" target="_blank">Dal★Shabet世理染疫痊愈出院：有重生的感觉</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/11/n13226039.md#1" target="_blank">Lisa《LALISA》65区iTunes登顶 MV创纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/10/n13224216.md#1" target="_blank">Lisa获BLACKPINK成员鼓励 专辑预售逾80万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229936.md#1" target="_blank">郭书瑶演网红人生 与闺蜜啖麻辣锅中互相扶持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/13/n13229086.md#1" target="_blank">周兴哲跨海宣传 首与对唱新人同台相见欢</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yzovrq360/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
