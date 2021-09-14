@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13231357.md#1" target="_blank">刘嘉玲分享探班照 梁朝伟自曝加盟漫威靠老婆</a><br></h3><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13231357.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2016/12/161222084141100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/12/n13228727.md#1" target="_blank">陈道明怒批“流量明星” 引大陆网络两派对战</a><br></h3><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/12/n13228727.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13231334-GettyImages-465025280-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233950-210914110742100707-320x200.jpg"></a>
 <a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13233118.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233169-2109140555041487-320x200.jpg"></a>
 <a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232919.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232995-200621232545100707-320x200.jpg"></a>
 <a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232338.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232404-2109140213221487-320x200.jpg"></a>
 <a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232035.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232057-2109132349091487-320x200.jpg"></a>
 <a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13230505-2109130932491487-320x200.jpg"></a>
-<a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13229821.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13230116-200218225530100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank">40岁谢娜产后复出首秀 公开二胎性别和小名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/10/n13225377.md#1" target="_blank">胡歌：出道以来只为了证明自己是个演员</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank">在中与俊秀时隔六年一起上节目：像在做梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13233674.md#1" target="_blank">STAYC首获音乐节目冠军 专辑首周销量创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13233151.md#1" target="_blank">河正宇非法注射牛奶针 遭罚款三千万韩元</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13233005.md#1" target="_blank">BTS获文在寅颁特别大使任命状 秀外交官护照</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232096.md#1" target="_blank">Lisa《LALISA》登销售冠军 MV创Solo歌手纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232758.md#1" target="_blank">第43届金穗奖周末登场 影视名人齐聚颁奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13231357.md#1" target="_blank">刘嘉玲分享探班照 梁朝伟自曝加盟漫威靠老婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank">Darren杨铭威争金钟男配 天心温昇豪曝经验谈</a></h4></td></tr>
