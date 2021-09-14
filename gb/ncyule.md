@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank">40岁谢娜产后复出首秀 公开二胎性别和小名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/10/n13225377.md#1" target="_blank">胡歌：出道以来只为了证明自己是个演员</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232096.md#1" target="_blank">Lisa《LALISA》登销售冠军 MV创Solo歌手纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232919.md#1" target="_blank">张根硕生日分享照片展 募款逾1亿韩元助弱势</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13231911.md#1" target="_blank">Coldplay与BTS创作双语词曲 合作曲24日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13231815.md#1" target="_blank">aespa首张迷你专辑《Savage》 10月5日发行</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13230247.md#1" target="_blank">宇宙少女新歌《Let Me In》 9月23日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/14/n13232758.md#1" target="_blank">第43届金穗奖周末登场 影视名人齐聚颁奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13231357.md#1" target="_blank">刘嘉玲分享探班照 梁朝伟自曝加盟漫威靠老婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/blffzl3237/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank">Darren杨铭威争金钟男配 天心温昇豪曝经验谈</a></h4></td></tr>
