@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13229821.md#1" target="_blank">金玟周改以演员身份活动 今启用“bubble”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13229272.md#1" target="_blank">BTS获2021 MTV VMA三奖 录影片感谢粉丝支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13229613.md#1" target="_blank">Dal★Shabet世理染疫痊愈出院：有重生的感觉</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13231357.md#1" target="_blank">刘嘉玲分享探班照 梁朝伟自曝加盟漫威靠老婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank">Darren杨铭威争金钟男配 天心温昇豪曝经验谈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13229936.md#1" target="_blank">郭书瑶演网红人生 与闺蜜啖麻辣锅中互相扶持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13229086.md#1" target="_blank">周兴哲跨海宣传 首与对唱新人同台相见欢</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/12/n13227294.md#1" target="_blank">严立婷接主持棒超紧张 廖庆学大赞合作满分</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13231357.md#1" target="_blank">刘嘉玲分享探班照 梁朝伟自曝加盟漫威靠老婆</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank">Darren杨铭威争金钟男配 天心温昇豪曝经验谈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xidiiv316/djy/blob/master/gb/21/9/13/n13229841.md#1" target="_blank">不受议论影响 金曲新人?te坏特：继续努力</a></h4></td></tr>
