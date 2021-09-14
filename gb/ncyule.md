@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229272.md#1" target="_blank">BTS获2021 MTV VMA三奖 录影片感谢粉丝支持</a><br></h3><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229272.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229435-190213223845100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank">40岁谢娜产后复出首秀 公开二胎性别和小名</a><br></h3><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13228658-GettyImages-578233058-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/14/n13232338.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232404-2109140213221487-320x200.jpg"></a>
 <a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/14/n13232035.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232057-2109132349091487-320x200.jpg"></a>
 <a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13230505-2109130932491487-320x200.jpg"></a>
 <a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229821.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13230116-200218225530100707-320x200.jpg"></a>
 <a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229936.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229964-2109130548091487-320x200.jpg"></a>
 <a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229574.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229594-2109130257381487-320x200.jpg"></a>
-<a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13229268-210913004110100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank">Darren杨铭威争金钟男配 天心温昇豪曝经验谈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229936.md#1" target="_blank">郭书瑶演网红人生 与闺蜜啖麻辣锅中互相扶持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229086.md#1" target="_blank">周兴哲跨海宣传 首与对唱新人同台相见欢</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/14/n13232338.md#1" target="_blank">卢广仲公开专辑视觉照 出道13年首摘眼镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank">周润发乘出租车曾遭拒 司机回应让他哭笑不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/14/n13232035.md#1" target="_blank">罹罕病仍心系公益 詹雅雯认养孩童持续30年</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13231357.md#1" target="_blank">刘嘉玲分享探班照 梁朝伟自曝加盟漫威靠老婆</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13230442.md#1" target="_blank">Darren杨铭威争金钟男配 天心温昇豪曝经验谈</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/9/n13221342.md#1" target="_blank">香里奈出院 感谢医护于疫情中照顾病患身心</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/14/n13232338.md#1" target="_blank">卢广仲公开专辑视觉照 出道13年首摘眼镜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/14/n13231911.md#1" target="_blank">Coldplay与BTS创作双语词曲 合作曲24日发行</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/13/n13229574.md#1" target="_blank">5座城市12组歌手云端合唱《城里的月光2021》</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/12/n13227690.md#1" target="_blank">蔡健雅爱做甜点曾想转行 担心赔本才作罢</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/12/n13227429.md#1" target="_blank">玖壹壹成军12年 每年9月11日都想做特别事</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hudtyc336/djy/blob/master/gb/21/9/7/n13217860.md#1" target="_blank">回顾赵薇当年有多红 网友挖出孙俪曾给她伴舞</a></h4></td></tr>
