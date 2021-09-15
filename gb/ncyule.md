@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233005.md#1" target="_blank">BTS获文在寅颁特别大使任命状 秀外交官护照</a><br></h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233005.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233120-200813040114100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank">周润发乘出租车曾遭拒 司机回应让他哭笑不得</a><br></h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/2005190622121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235523-210915032923100707-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235442-2006170753521487-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13234852-2006221013101470-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/07/DSC_9624-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233950-210914110742100707-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233118.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233169-2109140555041487-320x200.jpg"></a>
-<a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13232919.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232995-200621232545100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank">刘晓庆高温下穿貂皮拍戏 坐在草堆中满脸通红</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/12/n13228727.md#1" target="_blank">陈道明怒批“流量明星” 引大陆网络两派对战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank">40岁谢娜产后复出首秀 公开二胎性别和小名</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235455.md#1" target="_blank">李圣经响应善举 捐款1千万韩元帮助弱势</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235064.md#1" target="_blank">Super Junior-D&#038;E出道10周年 10月推正规专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235379.md#1" target="_blank">BTS时隔一年举办线上演唱会 10月24日开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235099.md#1" target="_blank">SHINee崔珉豪出演新戏 首度挑战悬疑剧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank">在中与俊秀时隔六年一起上节目：像在做梦</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233674.md#1" target="_blank">STAYC首获音乐节目冠军 专辑首周销量创新高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank">刘晓庆高温下穿貂皮拍戏 坐在草堆中满脸通红</a></h4></td></tr>
