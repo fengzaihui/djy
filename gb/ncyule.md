@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233005.md#1" target="_blank">BTS获文在寅颁特别大使任命状 秀外交官护照</a><br></h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233005.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233120-200813040114100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank">周润发乘出租车曾遭拒 司机回应让他哭笑不得</a><br></h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/2005190622121487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235442-2006170753521487-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13234852-2006221013101470-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/07/DSC_9624-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233950-210914110742100707-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233118.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233169-2109140555041487-320x200.jpg"></a>
 <a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13232919.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232995-200621232545100707-320x200.jpg"></a>
-<a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13232338.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13232404-2109140213221487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank">刘晓庆高温下穿貂皮拍戏 坐在草堆中满脸通红</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/12/n13228727.md#1" target="_blank">陈道明怒批“流量明星” 引大陆网络两派对战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank">40岁谢娜产后复出首秀 公开二胎性别和小名</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235379.md#1" target="_blank">BTS时隔一年举办线上演唱会 10月24日开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235099.md#1" target="_blank">SHINee崔珉豪出演新戏 首度挑战悬疑剧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank">在中与俊秀时隔六年一起上节目：像在做梦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233674.md#1" target="_blank">STAYC首获音乐节目冠军 专辑首周销量创新高</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233151.md#1" target="_blank">河正宇非法注射牛奶针 遭罚款三千万韩元</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank">刘晓庆高温下穿貂皮拍戏 坐在草堆中满脸通红</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233282.md#1" target="_blank">组图：2021年好莱坞最高片酬的10位巨星</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华死因 检方相验遗体：疾病原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13234413.md#1" target="_blank">香港话剧演员雷思兰罹癌离世 享年65岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233848.md#1" target="_blank">台演员龙劭华傍晚昏倒 送医不治 享寿68岁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233216.md#1" target="_blank">打完AZ头晕想吐 台湾22岁女团成员挂急诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
@@ -50,13 +50,13 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/12/n13228433.md#1" target="_blank">消失18天后“现身”微博 赵薇4字帖文透玄机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/8/n13220155.md#1" target="_blank">黄秋生自曝已抵台隔离 三个字评铁皮屋获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank">周润发乘出租车曾遭拒 司机回应让他哭笑不得</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/8/n13220155.md#1" target="_blank">黄秋生自曝已抵台隔离 三个字评铁皮屋获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/9/n13222625.md#1" target="_blank">受出事艺人牵连 杨紫三部新戏恐遭禁播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/8/n13220296.md#1" target="_blank">漫威首部华人英雄片热卖 男主角遭五毛翻旧账</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank">40岁谢娜产后复出首秀 公开二胎性别和小名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/8/n13220446.md#1" target="_blank">与黄晓明首度合演剧集遭搁置 赵薇由袁泉顶替</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/8/n13219236.md#1" target="_blank">台网红486账号遭停权 脸书回应：涉及仇恨言论</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/12/n13228727.md#1" target="_blank">陈道明怒批“流量明星” 引大陆网络两派对战</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/dllhhf3469/djy/blob/master/gb/21/9/14/n13233848.md#1" target="_blank">台演员龙劭华傍晚昏倒 送医不治 享寿68岁</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/dllhhf3469/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/dllhhf3469/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dllhhf3469/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/dllhhf3469/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
