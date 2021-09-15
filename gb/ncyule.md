@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233848.md#1" target="_blank">台演员龙劭华傍晚昏倒 送医不治 享寿68岁</a><br></h3><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233848.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233876-2109141042281487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233005.md#1" target="_blank">BTS获文在寅颁特别大使任命状 秀外交官护照</a><br></h3><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233005.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233120-200813040114100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13236388.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13236534-2109151022441487-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235858.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235867-2109150539112122-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235523-210915032923100707-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13234852-2006221013101470-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/07/DSC_9624-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233950-210914110742100707-320x200.jpg"></a>
-<a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233118.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233169-2109140555041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235604.md#1" target="_blank">与邱锋泽黄伟晋团聚录影 陈零九称进棚很感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13236388.md#1" target="_blank">龙劭华移灵回台北 家属规划3天开放追思区</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235840.md#1" target="_blank">蔡凡熙与李沐当“设计师” 体验客制衣趣味</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235858.md#1" target="_blank">蔡嘉茵角逐金钟视后 开心宣布登记结婚喜讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235706.md#1" target="_blank">诠释罹癌小喇叭手摘视帝 龙劭华经典剧作重播</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235604.md#1" target="_blank">与邱锋泽黄伟晋团聚录影 陈零九称进棚很感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
