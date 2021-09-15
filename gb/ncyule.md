@@ -9,8 +9,8 @@
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235858.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235867-2109150539112122-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235455.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235523-210915032923100707-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13234852-2006221013101470-320x200.jpg"></a>
-<a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2017/07/DSC_9624-320x200.jpg"></a>
 <a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233857.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233950-210914110742100707-320x200.jpg"></a>
+<a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13233118.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13233169-2109140555041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
