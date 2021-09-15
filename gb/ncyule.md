@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235064.md#1" target="_blank">Super Junior-D&#038;E出道10周年 10月推正规专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235379.md#1" target="_blank">BTS时隔一年举办线上演唱会 10月24日开唱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235099.md#1" target="_blank">SHINee崔珉豪出演新戏 首度挑战悬疑剧</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235706.md#1" target="_blank">诠释罹癌小喇叭手摘视帝 龙劭华经典剧作重播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235604.md#1" target="_blank">与邱锋泽黄伟晋团聚录影 陈零九称进棚很感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13234149.md#1" target="_blank">刘晓庆高温下穿貂皮拍戏 坐在草堆中满脸通红</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235858.md#1" target="_blank">蔡嘉茵角逐金钟视后 开心宣布登记结婚喜讯</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235706.md#1" target="_blank">诠释罹癌小喇叭手摘视帝 龙劭华经典剧作重播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235604.md#1" target="_blank">与邱锋泽黄伟晋团聚录影 陈零九称进棚很感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华死因 检方相验遗体：疾病原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/14/n13234413.md#1" target="_blank">香港话剧演员雷思兰罹癌离世 享年65岁</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mqzacj3432/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
