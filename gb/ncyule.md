@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a><br></h3><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13236828-GettyImages-601890264-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华死因 检方相验遗体：疾病原因</a><br></h3><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13235442-2006170753521487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238847-210402083150100707-320x200.jpg"></a>
 <a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238450.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238572-210423022100100707-320x200.jpg"></a>
 <a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238565-2109160539231487-320x200.jpg"></a>
 <a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238335.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238360-210904013455100707-320x200.jpg"></a>
 <a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238198.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238244-2109160345431487-320x200.jpg"></a>
 <a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13237757.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13237816-2109160001251487-320x200.jpg"></a>
-<a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13237633.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13237653-191004051717100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/15/n13236862.md#1" target="_blank">央视朱军性骚扰案宣判 弦子曝光庭审细节</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238762.md#1" target="_blank">伯贤当兵仍向粉丝报近况：生活规律注重健康</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238450.md#1" target="_blank">ENHYPEN染疫成员皆痊愈 10月发行正规专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238335.md#1" target="_blank">车勋染疫痊愈 N.Flying全员康复回归日常</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238243.md#1" target="_blank">安兪真染疫痊愈解除隔离 离开治疗所休息中</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13237840.md#1" target="_blank">方容国开设个人公司 将于多领域展开个人活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank">尹馨转战幕后首当制作人 谈身份转换心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13238198.md#1" target="_blank">感慨龙劭华猝逝 “痛苦歌王”同受糖尿病之苦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xttoxz3832/djy/blob/master/gb/21/9/16/n13237757.md#1" target="_blank">台剧《茶金》释正式海报 呈现时代美学与气味</a></h4></td></tr>
