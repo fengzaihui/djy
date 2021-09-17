@@ -7,10 +7,10 @@
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241091-2109141042281487-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240901-2109170237021487-320x200.jpg"></a>
+<a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13240632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240680-1809012257291487-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13240001.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/09/1909240748562384-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238847-210402083150100707-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238450.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238572-210423022100100707-320x200.jpg"></a>
-<a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238565-2109160539231487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
@@ -52,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank">周润发乘出租车曾遭拒 司机回应让他哭笑不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/10/n13225106.md#1" target="_blank">首度出演漫威英雄电影 梁朝伟惊人片酬曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华猝逝 检方验遗体后初判：死于疾病</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华猝逝 检方验遗体后初判：死于疾病</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/12/n13228574.md#1" target="_blank">40岁谢娜产后复出首秀 公开二胎性别和小名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
