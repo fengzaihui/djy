@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/15/n13236862.md#1" target="_blank">央视朱军性骚扰案宣判 弦子曝光庭审细节</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240892.md#1" target="_blank">Lisa《LALISA》刷新女歌手专辑首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240632.md#1" target="_blank">DAY6度云9月27日以单曲《忽然》Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240440.md#1" target="_blank">IU邀品牌一起做善事 捐8.5亿韩圜物品助弱势</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238762.md#1" target="_blank">伯贤当兵仍向粉丝报近况：生活规律注重健康</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238450.md#1" target="_blank">ENHYPEN染疫成员皆痊愈 10月发行正规专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank">防金钟奖超时 唐绮阳炎亚纶拍片“柔性”提醒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank">尹馨转战幕后首当制作人 谈身份转换心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238198.md#1" target="_blank">感慨龙劭华猝逝 “痛苦歌王”同受糖尿病之苦</a></h4></td></tr>
