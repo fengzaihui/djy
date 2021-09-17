@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/15/n13236862.md#1" target="_blank">央视朱军性骚扰案宣判 弦子曝光庭审细节</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240892.md#1" target="_blank">Lisa《LALISA》刷新女歌手专辑首周销量纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240632.md#1" target="_blank">DAY6度云9月27日以单曲《忽然》Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240440.md#1" target="_blank">IU邀品牌一起做善事 捐8.5亿韩圜物品助弱势</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238762.md#1" target="_blank">伯贤当兵仍向粉丝报近况：生活规律注重健康</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238450.md#1" target="_blank">ENHYPEN染疫成员皆痊愈 10月发行正规专辑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank">防金钟奖超时 唐绮阳炎亚纶拍片“柔性”提醒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank">尹馨转战幕后首当制作人 谈身份转换心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238198.md#1" target="_blank">感慨龙劭华猝逝 “痛苦歌王”同受糖尿病之苦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13237757.md#1" target="_blank">台剧《茶金》释正式海报 呈现时代美学与气味</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank">龙劭华灵堂开放亲友吊唁 9月22日办告别式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank">防金钟奖超时 唐绮阳炎亚纶拍片“柔性”提醒</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13240001.md#1" target="_blank">陈意涵晒怀二胎自拍照 暴瘦凸眼模样吓坏网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13239594.md#1" target="_blank">周星驰为何不再演戏？徐峥王晶析背后原因</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank">尹馨转战幕后首当制作人 谈身份转换心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/afvaic3202/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
