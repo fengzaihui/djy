@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238096.md#1" target="_blank">徐佳莹聊新碟进度 与魏如萱玩滤镜变脸笑趴</a><br></h3><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238096.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238169-2109160242051487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a><br></h3><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13237441-zhao-liying-huang-xiaoming-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13241452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241574-2106110238511487-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13241349.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2018/09/1805300633292384-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241091-2109141042281487-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240901-2109170237021487-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13240632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240680-1809012257291487-320x200.jpg"></a>
 <a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13240001.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/09/1909240748562384-320x200.jpg"></a>
-<a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238762.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13238847-210402083150100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank">尹馨转战幕后首当制作人 谈身份转换心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13238198.md#1" target="_blank">感慨龙劭华猝逝 “痛苦歌王”同受糖尿病之苦</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13237757.md#1" target="_blank">台剧《茶金》释正式海报 呈现时代美学与气味</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13241452.md#1" target="_blank">债主以为他有钱不还 澎恰恰否认有2千万合约</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13241349.md#1" target="_blank">需自主管理却聚餐引争议 王力宏与徐若瑄致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank">龙劭华灵堂开放亲友吊唁 9月22日办告别式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank">防金钟奖超时 唐绮阳炎亚纶拍片“柔性”提醒</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/16/n13240001.md#1" target="_blank">陈意涵晒怀二胎自拍照 暴瘦凸眼模样吓坏网友</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/tjhvfp364/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
