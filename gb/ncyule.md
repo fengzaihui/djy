@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241349.md#1" target="_blank">需自主管理却聚餐引争议 王力宏与徐若瑄致歉</a><br></h3><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241349.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/09/1805300633292384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13240440.md#1" target="_blank">IU邀品牌一起做善事 捐8.5亿韩圜物品助弱势</a><br></h3><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13240440.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240608-180914045434100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13243535-2109180546241487-320x200.jpg"></a>
 <a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/18/n13243358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13243400-210918041225100707-320x200.jpg"></a>
 <a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241925-2109170956291487-320x200.jpg"></a>
 <a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241574-2106110238511487-320x200.jpg"></a>
 <a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241091-2109141042281487-320x200.jpg"></a>
 <a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240901-2109170237021487-320x200.jpg"></a>
-<a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13240632.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240680-1809012257291487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241964.md#1" target="_blank">ATEEZ新作热销逾51万张 旼琦：为成员而自豪</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241278.md#1" target="_blank">Lisa于《Music Bank》摘首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241160.md#1" target="_blank">OH MY GIRL《Dolphin》创女团歌在榜最久纪录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank">《斯卡罗》迎接最终回 紧接播出幕后纪实影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/18/n13243468.md#1" target="_blank">第43届金穗奖得奖揭晓 纪录片《度日》夺大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank">防金钟奖超时 唐绮阳炎亚纶拍片“柔性”提醒</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/16/n13238494.md#1" target="_blank">尹馨转战幕后首当制作人 谈身份转换心情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank">《斯卡罗》迎接最终回 紧接播出幕后纪实影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/18/n13243468.md#1" target="_blank">第43届金穗奖得奖揭晓 纪录片《度日》夺大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13242465.md#1" target="_blank">台艺人龙劭华灵堂开放 总统蔡英文亲赴吊唁</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/17/n13241910.md#1" target="_blank">鱼丁糸新碟预购量破7万 宣传期“云聚”成日常</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nuzlxa3668/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
