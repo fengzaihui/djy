@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank">JINJIN“阴转阳”确诊染疫 ASTRO两成员隔离</a><br></h3><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245900-210721093849100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a><br></h3><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245632-180412005735100484-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/2009301002061487-320x200.jpg"></a>
 <a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13247302.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247526-191011064105100707-320x200.jpg"></a>
 <a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13246894.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247155-210303033805100707-320x200.jpg"></a>
 <a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247191-2109200446431487-320x200.jpg"></a>
 <a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247026-2109200311141487-320x200.jpg"></a>
 <a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246814-210920004117100707-320x200.jpg"></a>
-<a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13246135.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246157-2109192309051487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank">王齐麟录外景剪龙眼 认惧高：比打金牌战紧张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank">第73届艾美奖揭晓 凯特温斯蕾摘迷你剧视后</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank">《斯卡罗》迎接最终回 紧接播出幕后纪实影片</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13248160.md#1" target="_blank">五月天团长“怪兽”宣布当爸 女儿可爱模样曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank">王齐麟录外景剪龙眼 认惧高：比打金牌战紧张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank">第73届艾美奖揭晓 凯特温斯蕾摘迷你剧视后</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pybnyd3634/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
