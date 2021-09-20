@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank">《斯卡罗》迎接最终回 紧接播出幕后纪实影片</a><br></h3><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13243535-2109180546241487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a><br></h3><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13187880-yang-ziqiong-liang-chaowei-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246814-210920004117100707-320x200.jpg"></a>
 <a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13246135.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246157-2109192309051487-320x200.jpg"></a>
 <a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245964-200922052136100707-320x200.jpg"></a>
 <a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245900-210721093849100707-320x200.jpg"></a>
 <a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13243400-210918041225100707-320x200.jpg"></a>
 <a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13241910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241925-2109170956291487-320x200.jpg"></a>
+<a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13241452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241574-2106110238511487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank">NCT 127心系粉丝出新辑 《Sticker》获周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank">JINJIN“阴转阳”确诊染疫 ASTRO两成员隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243358.md#1" target="_blank">雪娥与男团成员演《恋爱天文学》：剧本有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13241964.md#1" target="_blank">ATEEZ新作热销逾51万张 旼琦：为成员而自豪</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13241278.md#1" target="_blank">Lisa于《Music Bank》摘首座音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank">《斯卡罗》迎接最终回 紧接播出幕后纪实影片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243468.md#1" target="_blank">第43届金穗奖得奖揭晓 纪录片《度日》夺大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
