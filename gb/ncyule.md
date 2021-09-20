@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a><br></h3><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245632-180412005735100484-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/19/n13244546.md#1" target="_blank">朱俐静用餐遭酱汁淋头 对店员态度感到失望</a><br></h3><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/19/n13244546.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13244552-2012232123311487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13247302.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247526-191011064105100707-320x200.jpg"></a>
 <a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13246894.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247155-210303033805100707-320x200.jpg"></a>
 <a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247191-2109200446431487-320x200.jpg"></a>
 <a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247026-2109200311141487-320x200.jpg"></a>
 <a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246814-210920004117100707-320x200.jpg"></a>
 <a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13246135.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246157-2109192309051487-320x200.jpg"></a>
-<a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245964-200922052136100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13247302.md#1" target="_blank">EXID哈妮新戏与EXY和率滨组女团 公开团体照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13246894.md#1" target="_blank">ATEEZ盼努力能获好结果 新作首周热销66万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank">NCT 127心系粉丝出新辑 《Sticker》获周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank">JINJIN“阴转阳”确诊染疫 ASTRO两成员隔离</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/18/n13243358.md#1" target="_blank">雪娥与男团成员演《恋爱天文学》：剧本有趣</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank">王齐麟录外景剪龙眼 认惧高：比打金牌战紧张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank">第73届艾美奖揭晓 凯特温斯蕾摘迷你剧视后</a></h4></td></tr>
@@ -53,8 +53,8 @@
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华猝逝 检方验遗体后初判：死于疾病</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/16/n13239594.md#1" target="_blank">周星驰为何不再演戏？徐峥王晶析背后原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/16/n13239594.md#1" target="_blank">周星驰为何不再演戏？徐峥王晶析背后原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/uimzxm315/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
