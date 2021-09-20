@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a><br></h3><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/08/id13187880-yang-ziqiong-liang-chaowei-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13242465.md#1" target="_blank">台艺人龙劭华灵堂开放 总统蔡英文亲赴吊唁</a><br></h3><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13242465.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241091-2109141042281487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245964-200922052136100707-320x200.jpg"></a>
 <a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13245900-210721093849100707-320x200.jpg"></a>
 <a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/18/n13243358.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13243400-210918041225100707-320x200.jpg"></a>
 <a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13241910.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241925-2109170956291487-320x200.jpg"></a>
 <a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13241452.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241574-2106110238511487-320x200.jpg"></a>
 <a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13241091-2109141042281487-320x200.jpg"></a>
-<a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13240901-2109170237021487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/19/n13244546.md#1" target="_blank">朱俐静用餐遭酱汁淋头 对店员态度感到失望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/19/n13244460.md#1" target="_blank">新歌呼应内心声音 卢广仲唱出励志转念新哲学</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/9/n13221462.md#1" target="_blank">小林由依暂停活动 缺席樱坂46巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/19/n13244460.md#1" target="_blank">新歌呼应内心声音 卢广仲唱出励志转念新哲学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/17/n13241910.md#1" target="_blank">鱼丁糸新碟预购量破7万 宣传期“云聚”成日常</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vuwsmg331/djy/blob/master/gb/21/9/16/n13238096.md#1" target="_blank">徐佳莹聊新碟进度 与魏如萱玩滤镜变脸笑趴</a></h4></td></tr>
