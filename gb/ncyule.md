@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243468.md#1" target="_blank">第43届金穗奖得奖揭晓 纪录片《度日》夺大奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13240877.md#1" target="_blank">防金钟奖超时 唐绮阳炎亚纶拍片“柔性”提醒</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13246231.md#1" target="_blank">台盲人歌手李炳辉演出锐减 感谢善心人士相挺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13246135.md#1" target="_blank">米可白庆中秋制宠物月饼 爱犬闻香飞扑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/19/n13245638.md#1" target="_blank">曾三次夺得金像奖 香港特效导演钟智行病逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/19/n13244546.md#1" target="_blank">朱俐静用餐遭酱汁淋头 对店员态度感到失望</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/20/n13246231.md#1" target="_blank">台盲人歌手李炳辉演出锐减 感谢善心人士相挺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/19/n13244460.md#1" target="_blank">新歌呼应内心声音 卢广仲唱出励志转念新哲学</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/17/n13241910.md#1" target="_blank">鱼丁糸新碟预购量破7万 宣传期“云聚”成日常</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/16/n13238096.md#1" target="_blank">徐佳莹聊新碟进度 与魏如萱玩滤镜变脸笑趴</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/14/n13233118.md#1" target="_blank">染疫后首场秀 陈零九下周与邱锋泽登广播金钟</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank">周润发乘出租车曾遭拒 司机回应让他哭笑不得</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zdhfsi3794/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
