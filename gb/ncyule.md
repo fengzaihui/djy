@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/21/n13249299.md#1" target="_blank">Lisa《LALISA》登告示牌Hot 100榜第84名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247302.md#1" target="_blank">EXID哈妮新戏与EXY和率滨组女团 公开团体照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246894.md#1" target="_blank">ATEEZ盼努力能获好结果 新作首周热销66万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank">NCT 127心系粉丝出新辑 《Sticker》获周榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank">JINJIN“阴转阳”确诊染疫 ASTRO两成员隔离</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank">王齐麟录外景剪龙眼 认惧高：比打金牌战紧张</a></h4></td></tr>
