@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank">第73届艾美奖揭晓 凯特温斯蕾摘迷你剧视后</a><br></h3><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247026-2109200311141487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/19/n13245793.md#1" target="_blank">被传怀上第三胎 孙俪工作室幽默回应</a><br></h3><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/19/n13245793.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-501992286-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/21/n13249399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249414-2109210034301487-320x200.jpg"></a>
 <a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/2009301002061487-320x200.jpg"></a>
 <a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247302.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247526-191011064105100707-320x200.jpg"></a>
 <a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246894.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247155-210303033805100707-320x200.jpg"></a>
 <a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247191-2109200446431487-320x200.jpg"></a>
 <a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246814-210920004117100707-320x200.jpg"></a>
-<a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246135.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13246157-2109192309051487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank">王齐麟录外景剪龙眼 认惧高：比打金牌战紧张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank">第73届艾美奖揭晓 凯特温斯蕾摘迷你剧视后</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/21/n13249399.md#1" target="_blank">吴申梅吃烧肉庆中秋 打小白球消脂全身痛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13248160.md#1" target="_blank">“五月天”团长宣布当爸 女儿可爱模样曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
@@ -48,9 +48,8 @@
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/17/n13241910.md#1" target="_blank">鱼丁糸新碟预购量破7万 宣传期“云聚”成日常</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/16/n13238096.md#1" target="_blank">徐佳莹聊新碟进度 与魏如萱玩滤镜变脸笑趴</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/14/n13231694.md#1" target="_blank">周润发乘出租车曾遭拒 司机回应让他哭笑不得</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/14/n13234560.md#1" target="_blank">早前访谈言论被指辱华 《尚气》主角首度回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华猝逝 检方验遗体后初判：死于疾病</a></h4></td></tr>
@@ -58,5 +57,6 @@
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/15/n13234841.md#1" target="_blank">龙劭华猝逝 经纪人悲恸发声“走得安详”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/hssxxf346/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/hssxxf346/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hssxxf346/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/hssxxf346/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
