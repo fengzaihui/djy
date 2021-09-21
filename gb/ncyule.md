@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246894.md#1" target="_blank">ATEEZ盼努力能获好结果 新作首周热销66万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246045.md#1" target="_blank">NCT 127心系粉丝出新辑 《Sticker》获周榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13245894.md#1" target="_blank">JINJIN“阴转阳”确诊染疫 ASTRO两成员隔离</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank">王齐麟录外景剪龙眼 认惧高：比打金牌战紧张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13246948.md#1" target="_blank">第73届艾美奖揭晓 凯特温斯蕾摘迷你剧视后</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/18/n13243508.md#1" target="_blank">《斯卡罗》迎接最终回 紧接播出幕后纪实影片</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13248160.md#1" target="_blank">“五月天”团长宣布当爸 女儿可爱模样曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/hssxxf346/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
