@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank">BTS联合国演讲：疫情中欢迎挑战 寻觅新道路</a><br></h3><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249747-210921045321100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a><br></h3><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/08/DSC_0274_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252586.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252633-2109220447451487-320x200.jpg"></a>
 <a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252396-200523054120100707-320x200.jpg"></a>
 <a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252331-2109220249161487-320x200.jpg"></a>
 <a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13251841-191208221423100707-320x200.jpg"></a>
 <a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249776.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249802-210303033805100707-320x200.jpg"></a>
 <a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249832-2109210624561487-320x200.jpg"></a>
-<a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249760-2109210455041487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252505.md#1" target="_blank">网红“草爷”养家与12员工 月开销逼近百万</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252586.md#1" target="_blank">曾静玟“原创”表演出色 获评委潘越云欣赏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252460.md#1" target="_blank">《水果奶奶》获2021台中国际动画影展闭幕片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252448.md#1" target="_blank">王力宏违规聚餐 北市开罚一万元</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13250589.md#1" target="_blank">林志玲中秋节送祝福 自拍照获赞“越来越美”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/22/n13252586.md#1" target="_blank">曾静玟“原创”表演出色 获评委潘越云欣赏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank">F.I.R.着古装会歌迷 遵循习俗分食1个月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank">点头演出MV 蔡振南问“告五人”：知道我吗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/20/n13246231.md#1" target="_blank">台盲人歌手李炳辉演出锐减 感谢善心人士相挺</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/19/n13244460.md#1" target="_blank">新歌呼应内心声音 卢广仲唱出励志转念新哲学</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nlugdh3172/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
