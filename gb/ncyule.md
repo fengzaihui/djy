@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank">BTS联合国演讲：疫情中欢迎挑战 寻觅新道路</a><br></h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249747-210921045321100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a><br></h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/08/DSC_0274_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252396-200523054120100707-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252331-2109220249161487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13251841-191208221423100707-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249776.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249802-210303033805100707-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249832-2109210624561487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249760-2109210455041487-320x200.jpg"></a>
-<a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249414-2109210034301487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -31,18 +31,18 @@
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249776.md#1" target="_blank">ATEEZ首度入告示牌Billboard 200榜 获第42名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank">BTS联合国演讲：疫情中欢迎挑战 寻觅新道路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249299.md#1" target="_blank">Lisa《LALISA》登告示牌Hot 100榜第84名</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252460.md#1" target="_blank">《水果奶奶》获2021台中国际动画影展闭幕片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252460.md#1" target="_blank">《水果奶奶》获2021台中国际动画影展闭幕片</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252448.md#1" target="_blank">王力宏违规聚餐 北市开罚一万元</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13250589.md#1" target="_blank">林志玲中秋节送祝福 自拍照获赞“越来越美”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank">F.I.R.着古装会歌迷 遵循习俗分食1个月饼</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank">点头演出MV 蔡振南问“告五人”：知道我吗</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/9/n13221543.md#1" target="_blank">BTS《Butter》登夏日歌曲代表 日文专辑创记录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank">F.I.R.着古装会歌迷 遵循习俗分食1个月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank">点头演出MV 蔡振南问“告五人”：知道我吗</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13246231.md#1" target="_blank">台盲人歌手李炳辉演出锐减 感谢善心人士相挺</a></h4></td></tr>
@@ -51,12 +51,12 @@
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/15/n13236589.md#1" target="_blank">遭封杀20天后 赵薇首次现身家乡安徽芜湖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/15/n13237195.md#1" target="_blank">赵丽颖重返节目帮洗碗 黄晓明惊呼遭调侃</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/15/n13235428.md#1" target="_blank">龙劭华猝逝 检方验遗体后初判：死于疾病</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/16/n13239594.md#1" target="_blank">周星驰为何不再演戏？徐峥王晶析背后原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/19/n13245793.md#1" target="_blank">被传怀上第三胎 孙俪工作室幽默回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/16/n13238198.md#1" target="_blank">感慨龙劭华猝逝 “痛苦歌王”同受糖尿病之苦</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/15/n13236862.md#1" target="_blank">央视朱军性骚扰案宣判 弦子曝光庭审细节</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/gfptuw363/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/gfptuw363/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/gfptuw363/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/gfptuw363/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
