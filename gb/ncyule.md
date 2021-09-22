@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank">BTS联合国演讲：疫情中欢迎挑战 寻觅新道路</a><br></h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249747-210921045321100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a><br></h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/08/DSC_0274_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252331-2109220249161487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13251841-191208221423100707-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249776.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249802-210303033805100707-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249832-2109210624561487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249760-2109210455041487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249414-2109210034301487-320x200.jpg"></a>
-<a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/2009301002061487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249776.md#1" target="_blank">ATEEZ首度入告示牌Billboard 200榜 获第42名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank">BTS联合国演讲：疫情中欢迎挑战 寻觅新道路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249299.md#1" target="_blank">Lisa《LALISA》登告示牌Hot 100榜第84名</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13247159.md#1" target="_blank">王齐麟录外景剪龙眼 认惧高：比打金牌战紧张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13250589.md#1" target="_blank">林志玲中秋节送祝福 自拍照获赞“越来越美”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank">F.I.R.着古装会歌迷 遵循习俗分食1个月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank">点头演出MV 蔡振南问“告五人”：知道我吗</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249399.md#1" target="_blank">吴申梅吃烧肉庆中秋 打小白球消脂全身痛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/13/n13228848.md#1" target="_blank">横山由依将自AKB48毕业 谈执导毕业作MV心情</a></h4></td></tr>
