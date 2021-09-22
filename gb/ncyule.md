@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank">BTS联合国演讲：疫情中欢迎挑战 寻觅新道路</a><br></h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249747-210921045321100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a><br></h3><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/08/DSC_0274_meitu_1-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13251841-191208221423100707-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249776.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249802-210303033805100707-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249832-2109210624561487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249760-2109210455041487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249399.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13249414-2109210034301487-320x200.jpg"></a>
 <a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/2009301002061487-320x200.jpg"></a>
-<a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13247302.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13247526-191011064105100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13250699.md#1" target="_blank">央视中秋晚会爆假唱 明星嘴闭上声音还在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/19/n13245793.md#1" target="_blank">被传怀上第三胎 孙俪工作室幽默回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank">JIMIN低调捐款1亿韩圜 帮助小儿麻痹患者</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249776.md#1" target="_blank">ATEEZ首度入告示牌Billboard 200榜 获第42名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249271.md#1" target="_blank">BTS联合国演讲：疫情中欢迎挑战 寻觅新道路</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249299.md#1" target="_blank">Lisa《LALISA》登告示牌Hot 100榜第84名</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13247302.md#1" target="_blank">EXID哈妮新戏与EXY和率滨组女团 公开团体照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/21/n13249270.md#1" target="_blank">黑嘉嘉开班授课 期待实践“人生使命”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gfptuw363/djy/blob/master/gb/21/9/20/n13247388.md#1" target="_blank">台北电影节评审团公布 林依晨评选国际新导演</a></h4></td></tr>
