@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank">JIMIN低调捐款1亿韩圜 帮助小儿麻痹患者</a><br></h3><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13251841-191208221423100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a><br></h3><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-1145305822-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254726-2109230223031487-320x200.jpg"></a>
 <a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254067-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13253587.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/170323102148100694-320x200.jpg"></a>
 <a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252505.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252684-2109220500012122-320x200.jpg"></a>
 <a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252586.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252633-2109220447451487-320x200.jpg"></a>
 <a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252396-200523054120100707-320x200.jpg"></a>
-<a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252448.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252457-2007290554461487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252728.md#1" target="_blank">龙劭华今告别式 演艺圈众友人送最后一程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252460.md#1" target="_blank">《水果奶奶》获2021台中国际动画影展闭幕片</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank">卢广仲谈心声 出道被嫌丑领奖时也担心招骂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/23/n13254328.md#1" target="_blank">《红人榜》11周年特辑 于美人扮韩国娘娘献艺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank">刘真离世一年半 辛龙发四字帖文喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252728.md#1" target="_blank">龙劭华今告别式 演艺圈众友人送最后一程</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252505.md#1" target="_blank">网红“草爷”养家与12员工 月开销逼近百万</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank">卢广仲谈心声 出道被嫌丑领奖时也担心招骂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/22/n13252586.md#1" target="_blank">曾静玟“原创”表演出色 获评委潘越云欣赏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank">F.I.R.着古装会歌迷 遵循习俗分食1个月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/21/n13249733.md#1" target="_blank">点头演出MV 蔡振南问“告五人”：知道我吗</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/20/n13246231.md#1" target="_blank">台盲人歌手李炳辉演出锐减 感谢善心人士相挺</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mvscgb326/djy/blob/master/gb/21/9/16/n13239594.md#1" target="_blank">周星驰为何不再演戏？徐峥王晶析背后原因</a></h4></td></tr>
