@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank">JIMIN低调捐款1亿韩圜 帮助小儿麻痹患者</a><br></h3><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13251795.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13251841-191208221423100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a><br></h3><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-1145305822-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
 <a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254818.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254827-200112015153100707-320x200.jpg"></a>
 <a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254967.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255004-2109230439361487-320x200.jpg"></a>
 <a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254726-2109230223031487-320x200.jpg"></a>
 <a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254067-210311000901100707-320x200.jpg"></a>
 <a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13253587.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/170323102148100694-320x200.jpg"></a>
-<a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13252505.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13252684-2109220500012122-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254815.md#1" target="_blank">台有线电视推4部韩剧 黄正音郑容和接力上阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254151.md#1" target="_blank">ATEEZ拿音乐节目冠军 旼琦：八人会长久地活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank">2021台北电影节登场 开幕片《月老》剧组亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254328.md#1" target="_blank">《红人榜》11周年特辑 于美人扮韩国娘娘献艺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13252728.md#1" target="_blank">龙劭华今告别式 演艺圈众友人送最后一程</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13252460.md#1" target="_blank">《水果奶奶》获2021台中国际动画影展闭幕片</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13252313.md#1" target="_blank">“DISNEY+”11月在台上线 《尚气》即将首播</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank">2021台北电影节登场 开幕片《月老》剧组亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254967.md#1" target="_blank">原公益生日演唱会 萧煌奇转线上唱3小时</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank">卢广仲谈心声 出道被嫌丑领奖时也担心招骂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254328.md#1" target="_blank">《红人榜》11周年特辑 于美人扮韩国娘娘献艺</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank">刘真离世一年半 辛龙发四字帖文喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
@@ -55,8 +55,8 @@
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/21/n13250699.md#1" target="_blank">央视中秋晚会爆假唱 明星嘴闭上声音还在</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank">《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank">《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ghmtyd332/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank">龙劭华灵堂开放亲友吊唁 9月22日办告别式</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ghmtyd332/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/ghmtyd332/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ghmtyd332/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/ghmtyd332/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
