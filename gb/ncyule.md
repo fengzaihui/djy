@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13253966.md#1" target="_blank">北京娱乐圈整肃出新招 税务总局定期抽检税单</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/22/n13253813.md#1" target="_blank">孙俪分享一妙招 有效应对孩子“起床气”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/24/n13256602.md#1" target="_blank">SEVENTEEN《Attacca》10月发行 延续前作谈爱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/24/n13256800.md#1" target="_blank">JAY B坦言筹备专辑很忧心 向台湾粉丝喊话</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13255014.md#1" target="_blank">ENHYPEN正规专辑预售破60万张 自身最佳纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13254818.md#1" target="_blank">(G)I-DLE录影片祝贺雨琦生日 舒华搞笑引笑声</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13254815.md#1" target="_blank">台有线电视推4部韩剧 黄正音郑容和接力上阵</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13254151.md#1" target="_blank">ATEEZ拿音乐节目冠军 旼琦：八人会长久地活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank">2021台北电影节登场 开幕片《月老》剧组亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/23/n13254328.md#1" target="_blank">《红人榜》11周年特辑 于美人扮韩国娘娘献艺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/22/n13252728.md#1" target="_blank">龙劭华今告别式 演艺圈众友人送最后一程</a></h4></td></tr>
@@ -49,7 +49,6 @@
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/21/n13249823.md#1" target="_blank">F.I.R.着古装会歌迷 遵循习俗分食1个月饼</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/19/n13245464.md#1" target="_blank">李嘉欣富豪丈夫似一夜变老 被拍拄拐杖蹒跚求医</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/16/n13239594.md#1" target="_blank">周星驰为何不再演戏？徐峥王晶析背后原因</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/19/n13245793.md#1" target="_blank">被传怀上第三胎 孙俪工作室幽默回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/17/n13242350.md#1" target="_blank">范冰冰40岁生日 罕见晒与家人合照</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/16/n13239828.md#1" target="_blank">张哲瀚事件后 朱一龙亦因旧照遭小粉红狂轰</a></h4></td></tr>
@@ -58,5 +57,6 @@
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/17/n13241083.md#1" target="_blank">龙劭华灵堂开放亲友吊唁 9月22日办告别式</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ilgvva362/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ilgvva362/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/ilgvva362/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ilgvva362/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/ilgvva362/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
