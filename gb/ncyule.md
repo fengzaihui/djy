@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank">卢广仲谈心声 出道被嫌丑领奖时也担心招骂</a><br></h3><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254726-2109230223031487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank">刘真离世一年半 辛龙发四字帖文喊话</a><br></h3><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/06/2006250740361487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257052-200127014552100707-320x200.jpg"></a>
 <a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
 <a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
 <a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13254818.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254827-200112015153100707-320x200.jpg"></a>
 <a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13254967.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255004-2109230439361487-320x200.jpg"></a>
 <a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254067-210311000901100707-320x200.jpg"></a>
-<a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/22/n13253587.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/02/170323102148100694-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank">BTS《Butter》获美国唱片协会双白金认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13256602.md#1" target="_blank">SEVENTEEN《Attacca》10月发行 延续前作谈爱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13256800.md#1" target="_blank">JAY B坦言筹备专辑很忧心 向台湾粉丝喊话</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13257596.md#1" target="_blank">范逸臣、王心恬出任务 拍摄国手训练生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank">严立婷打疫苗高烧三天 一度崩溃考虑立遗嘱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank">2021台北电影节登场 开幕片《月老》剧组亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13254328.md#1" target="_blank">《红人榜》11周年特辑 于美人扮韩国娘娘献艺</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/22/n13252728.md#1" target="_blank">龙劭华今告别式 演艺圈众友人送最后一程</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13257596.md#1" target="_blank">范逸臣、王心恬出任务 拍摄国手训练生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank">严立婷打疫苗高烧三天 一度崩溃考虑立遗嘱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank">曾之乔防疫期间重养生 难忘体重失控惨况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13256096.md#1" target="_blank">潘迎紫重启脸书专页 冻龄外表令人惊讶</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank">2021台北电影节登场 开幕片《月老》剧组亮相</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
@@ -54,9 +54,9 @@
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/17/n13242592.md#1" target="_blank">杨紫琼晒《尚气》花絮照 大赞梁朝伟和元华</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/21/n13250699.md#1" target="_blank">央视中秋晚会爆假唱 明星嘴闭上声音还在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank">刘真离世一年半 辛龙发四字帖文喊话</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ejxykk352/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/ejxykk352/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/ejxykk352/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ejxykk352/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/ejxykk352/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
