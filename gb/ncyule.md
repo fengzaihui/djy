@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/24/n13257761.md#1" target="_blank">邵雨薇绷紧腹肌演产子戏 喊“生到缺氧”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/24/n13257753.md#1" target="_blank">邱泽盼问鼎金马 回应秘恋许玮甯传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/18/n13243421.md#1" target="_blank">《创造营2021》和马-Kaz推出EP 与满岛光演MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/23/n13254967.md#1" target="_blank">原公益生日演唱会 萧煌奇转线上唱3小时</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank">卢广仲谈心声 出道被嫌丑领奖时也担心招骂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/bjszre3800/djy/blob/master/gb/21/9/22/n13252586.md#1" target="_blank">曾静玟“原创”表演出色 获评委潘越云欣赏</a></h4></td></tr>
