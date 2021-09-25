@@ -8,9 +8,9 @@
 <a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13258123-2109240924331487-320x200.jpg"></a>
 <a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257527-2109240454351487-320x200.jpg"></a>
 <a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
+<a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/23/n13256096.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2019/07/1907170244001487-320x200.jpg"></a>
 <a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
 <a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/23/n13254818.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254827-200112015153100707-320x200.jpg"></a>
-<a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/23/n13254967.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255004-2109230439361487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ywchuj3939/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
