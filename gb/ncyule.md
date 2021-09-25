@@ -5,18 +5,18 @@
 <tr><td><h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank">BTS《Butter》获美国唱片协会双白金认证</a><br></h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257052-200127014552100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a><br></h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13256707-GettyImages-808013400-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259990-2109250923171487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259549.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259581-210920004124100707-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259115-GettyImages-1027596612-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13258123-2109240924331487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257527-2109240454351487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
-<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257561.md#1" target="_blank">曹柔理10月7日以《GLASSY》Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank">韩综《无名歌手战》登TLC频道 选手以编号参赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257323.md#1" target="_blank">NCT 127创新纪录 《Sticker》首周热销215万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257596.md#1" target="_blank">范逸臣、王心恬出任务 拍摄国手训练生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank">严立婷打疫苗高烧三天 一度崩溃考虑立遗嘱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank">2021台北电影节登场 开幕片《月老》剧组亮相</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13254328.md#1" target="_blank">《红人榜》11周年特辑 于美人扮韩国娘娘献艺</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258741.md#1" target="_blank">曾为周慧敏等歌手伴舞 郭富城两度夺金马影帝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257761.md#1" target="_blank">邵雨薇绷紧腹肌演产子戏 喊“生到缺氧”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257753.md#1" target="_blank">邱泽盼问鼎金马 回应秘恋许玮甯传闻</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
