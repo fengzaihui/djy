@@ -12,11 +12,11 @@
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/10/n13223155.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13223168-516097-320x200.jpg"><br>《绝夜逢生》第二季影评：军民共存成全新挑战</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/4/n13210487.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13210490-515114-320x200.jpg"><br>《尚气与十环传奇》影评：漫威献给东方人的诚意大礼！</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/8/28/n13193577.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/08/id13193588-513883-320x200.jpg"><br>《男神养成记》影评：网红翻身 从改造校园边缘人着手</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  精彩图文</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/4/7/n12864720.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2019/05/GettyImages-938192652-320x200.jpg"><br> 雨天开车送孩上学 吴尊获七岁儿贴心嘱三事项</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/3/16/n12814544.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/03/2103160556261487-320x200.jpg"><br> 贾静雯谈育儿 “3C是工具但不能沉迷”</a></h4></td></tr>
