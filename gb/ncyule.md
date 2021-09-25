@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank">BTS《Butter》获美国唱片协会双白金认证</a><br></h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257052-200127014552100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a><br></h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13256707-GettyImages-808013400-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259549.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259581-210920004124100707-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259115-GettyImages-1027596612-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13258123-2109240924331487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257527-2109240454351487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
-<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13254818.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254827-200112015153100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/17/n13239538.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13239545-517352-320x200.jpeg"><br>《沙丘》影评：一流的太空科幻史诗钜作！</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257761.md#1" target="_blank">邵雨薇绷紧腹肌演产子戏 喊“生到缺氧”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257753.md#1" target="_blank">邱泽盼问鼎金马 回应秘恋许玮甯传闻</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/20/n13245954.md#1" target="_blank">村重杏奈年底自HKT48毕业：我已达成目标</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13254967.md#1" target="_blank">原公益生日演唱会 萧煌奇转线上唱3小时</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank">卢广仲谈心声 出道被嫌丑领奖时也担心招骂</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/22/n13252586.md#1" target="_blank">曾静玟“原创”表演出色 获评委潘越云欣赏</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/19/n13245793.md#1" target="_blank">被传怀上第三胎 孙俪工作室幽默回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/21/n13250699.md#1" target="_blank">央视中秋晚会爆假唱 明星嘴闭上声音还在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/22/n13253813.md#1" target="_blank">孙俪分享一妙招 有效应对孩子“起床气”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/21/n13250887.md#1" target="_blank">中秋夜晒与儿女亲吻照 章子怡称忙到忘吃月饼</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/20/n13248519.md#1" target="_blank">IG晒录歌照拟闯乐坛？刘嘉玲笑称隔行如隔山</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
