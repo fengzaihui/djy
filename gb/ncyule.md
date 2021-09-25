@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13253966.md#1" target="_blank">北京娱乐圈整肃出新招 税务总局定期抽检税单</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259549.md#1" target="_blank">NCT 127首度打入英国官方榜 夺音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257561.md#1" target="_blank">曹柔理10月7日以《GLASSY》Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank">韩综《无名歌手战》登TLC频道 选手以编号参赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257323.md#1" target="_blank">NCT 127创新纪录 《Sticker》首周热销215万张</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank">BTS《Butter》获美国唱片协会双白金认证</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257596.md#1" target="_blank">范逸臣、王心恬出任务 拍摄国手训练生活</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank">严立婷打疫苗高烧三天 一度崩溃考虑立遗嘱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank">2021台北电影节登场 开幕片《月老》剧组亮相</a></h4></td></tr>
