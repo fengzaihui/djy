@@ -6,11 +6,11 @@
 <tr><td><h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank">BTS《Butter》获美国唱片协会双白金认证</a><br></h3><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13256973.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257052-200127014552100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259990-2109250923171487-320x200.jpg"></a>
-<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259115-GettyImages-1027596612-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13258123-2109240924331487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257527-2109240454351487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
 <a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
+<a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/23/n13254818.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254827-200112015153100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kxcyuk3454/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
