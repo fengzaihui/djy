@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13258741.md#1" target="_blank">曾为周慧敏等歌手伴舞 郭富城两度夺金马影帝</a><br></h3><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13258741.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/10/GettyImages-498135728-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a><br></h3><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13258727-285d1c521da578481527a7379f1448cb-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261149-2109260353431487-320x200.jpg"></a>
 <a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13260710.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13260726-2109252236061487-320x200.jpg"></a>
 <a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13258123-2109240924331487-320x200.jpg"></a>
 <a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257527-2109240454351487-320x200.jpg"></a>
 <a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
 <a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
-<a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/23/n13254818.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13254827-200112015153100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13257561.md#1" target="_blank">曹柔理10月7日以《GLASSY》Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank">韩综《无名歌手战》登TLC频道 选手以编号参赛</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13257323.md#1" target="_blank">NCT 127创新纪录 《Sticker》首周热销215万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13260785.md#1" target="_blank">青少年超龄演唱《飘向北方》 影片获黄明志转发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13260710.md#1" target="_blank">丁文祺获广播金钟特别贡献奖 叹台湾媒体多且乱</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13257596.md#1" target="_blank">范逸臣、王心恬出任务 拍摄国手训练生活</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank">挑战宫崎骏动画主题歌 阎奕格花一周猛背歌词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13260785.md#1" target="_blank">青少年超龄演唱《飘向北方》 影片获黄明志转发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/26/n13260710.md#1" target="_blank">丁文祺获广播金钟特别贡献奖 叹台湾媒体多且乱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/22/n13253813.md#1" target="_blank">孙俪分享一妙招 有效应对孩子“起床气”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/kinvde348/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/kinvde348/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/kinvde348/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kinvde348/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/kinvde348/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
