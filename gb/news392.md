@@ -54,7 +54,7 @@
 
 请当红艺人在全国老百姓面前高唱红歌，开幕式导演的这种操作本是为了迎合上面，向领.........<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年09月25日 3:21 AM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fsbdcc399/djy/blob/master/gb/21/9/24/n13257926.md#1" target="_blank">【名家专栏】错误的联合国“气候真相”报告</a><br></h3><a href="https://github.com/fsbdcc399/djy/blob/master/gb/21/9/24/n13257926.md#1" target="_blank"><img width="150" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257929-GettyImages-1338279438-150x120.jpg" align ="left"></a>上个月，“联合国政府间气候变化专门委员会”（IPCC）拟具的气候科学报告里的大部分（如果不是全部的话）内容，都是错误的。其中最重要的结论，几乎是不可能实现的——不仅有争议性及夸大其词，而且几乎不可能做到。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年09月25日 1:52 AM			</td></tr>
-<tr><td width="742"><h3><a href="https://github.com/fsbdcc399/djy/blob/master/gb/21/9/26/n13260594.md#1" target="_blank">田云：中共人质外交曝司法黑暗 冤案知多少</a><br></h3>外界看穿，这是中共动用纳税人巨资，实施绑匪手段，利诱威胁后换回的党的一个棋子，以保全华为参与的中共秘密部署的一部分。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年09月26日 2:01 PM			</td></tr>
+<tr><td width="742"><h3><a href="https://github.com/fsbdcc399/djy/blob/master/gb/21/9/26/n13260594.md#1" target="_blank">田云：中共人质外交曝司法黑暗 大陆冤案知多少</a><br></h3>外界看穿，这是中共动用纳税人巨资，实施绑匪手段，利诱威胁后换回的党的一个棋子，以保全华为参与的中共秘密部署的一部分。......<br><img align="bottom" src="https://www.epochtimes.com/assets/themes/djy/images/time.gif"> 2021年09月26日 2:01 PM			</td></tr>
 <tr><td width="742"><h3><a href="https://github.com/fsbdcc399/djy/blob/master/gb/21/9/25/n13260313.md#1" target="_blank">王友群：马寅初被批判 至少4.5亿胎儿被杀</a><br></h3>马寅初曾经说:“言人之所言，那很容易，言人之所欲言，就不太容易，言人之所不敢言，就更难。我就言人之所欲言，言人之所不敢言。”
 
 在中华民国时代，马寅初确实敢讲真话。但是，中共当政之后，不断发动政治运动，对敢言知识分子发起一轮又一轮的迫害。
