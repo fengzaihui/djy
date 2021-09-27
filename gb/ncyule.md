@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank">挑战宫崎骏动画主题歌 阎奕格花一周猛背歌词</a><br></h3><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261018-2109260235501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a><br></h3><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13259990-2109250923171487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262604-2109262148311487-320x200.jpg"></a>
 <a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261235-2109260452141487-320x200.jpg"></a>
 <a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260710.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13260726-2109252236061487-320x200.jpg"></a>
 <a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13258123-2109240924331487-320x200.jpg"></a>
 <a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/24/n13257511.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257527-2109240454351487-320x200.jpg"></a>
 <a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/24/n13257197.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13257243-2109240211121487-320x200.jpg"></a>
+<a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/23/n13255113.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13255177-2109230544381487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/27/n13262578.md#1" target="_blank">SEVENTEEN《Attacca》预售量 一天达141万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13259549.md#1" target="_blank">NCT 127首度打入英国官方榜 夺音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/24/n13257561.md#1" target="_blank">曹柔理10月7日以《GLASSY》Solo出道</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/24/n13258034.md#1" target="_blank">韩综《无名歌手战》登TLC频道 选手以编号参赛</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/24/n13257323.md#1" target="_blank">NCT 127创新纪录 《Sticker》首周热销215万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank">杨雅喆不愿《天桥》童星拿金钟 盼孩子多点选择</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260785.md#1" target="_blank">青少年超龄演唱《飘向北方》 影片获黄明志转发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260710.md#1" target="_blank">丁文祺获广播金钟特别贡献奖 叹台湾媒体多且乱</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank">曾心梅疫情下选择展店 斥资300万改装做餐饮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13262210.md#1" target="_blank">郭富城新片剧组频出意外 开工9天4人受伤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank">杨雅喆不愿《天桥》童星拿金钟 盼孩子多点选择</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank">挑战宫崎骏动画主题歌 阎奕格花一周猛背歌词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/22/n13251963.md#1" target="_blank">好莱坞电影《圣斗士星矢》 新田真剑佑饰主角</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank">曾心梅疫情下选择展店 斥资300万改装做餐饮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank">挑战宫崎骏动画主题歌 阎奕格花一周猛背歌词</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/26/n13260785.md#1" target="_blank">青少年超龄演唱《飘向北方》 影片获黄明志转发</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/23/n13254967.md#1" target="_blank">原公益生日演唱会 萧煌奇转线上唱3小时</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/23/n13254695.md#1" target="_blank">卢广仲谈心声 出道被嫌丑领奖时也担心招骂</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/wswujy356/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank">刘真离世一年半 辛龙发四字帖文喊话</a></h4></td></tr>
