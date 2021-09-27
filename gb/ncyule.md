@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a><br></h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261149-2109260353431487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank">挑战宫崎骏动画主题歌 阎奕格花一周猛背歌词</a><br></h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261018-2109260235501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13264015.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13264020-1612032327051487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263838-2109270627411487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263662-2005170517501487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263467-2109270408301487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262510.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262661-210920004119100707-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262483-GettyImages-164047903-320x200.jpg"></a>
-<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262527-2109262106341487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13264015.md#1" target="_blank">崔敏焕携妻儿重回《家务男》 身材心态大转变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263629.md#1" target="_blank">张员瑛与朴成训将接任《Music Bank》主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263590.md#1" target="_blank">iKON成员BOBBY长子出生 获YG娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263485.md#1" target="_blank">太阳与闵孝琳即将为人父母 孩子性别不公开</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262837.md#1" target="_blank">ITZY正规专辑15区iTunes登顶 全球专辑榜居冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank">林予晞谈入围抱平常心 金钟战袍“走知性美”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262769.md#1" target="_blank">首掌传艺金曲奖主持 杨千霈带着使命感做准备</a></h4></td></tr>
