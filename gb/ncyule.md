@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a><br></h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261149-2109260353431487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank">挑战宫崎骏动画主题歌 阎奕格花一周猛背歌词</a><br></h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261018-2109260235501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263662-2005170517501487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263467-2109270408301487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262510.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262661-210920004119100707-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262483-GettyImages-164047903-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262527-2109262106341487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262604-2109262148311487-320x200.jpg"></a>
-<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261235-2109260452141487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263629.md#1" target="_blank">张员瑛与朴成训将接任《Music Bank》主持人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263590.md#1" target="_blank">iKON成员BOBBY长子出生 获YG娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263485.md#1" target="_blank">太阳与闵孝琳即将为人父母 孩子性别不公开</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262837.md#1" target="_blank">ITZY正规专辑15区iTunes登顶 全球专辑榜居冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262510.md#1" target="_blank">NCT 127《Sticker》登Billboard 200榜季军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262578.md#1" target="_blank">SEVENTEEN《Attacca》预售量 一天达141万张</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank">林予晞谈入围抱平常心 金钟战袍“走知性美”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262769.md#1" target="_blank">首掌传艺金曲奖主持 杨千霈带着使命感做准备</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank">杨雅喆不愿《天桥》童星拿金钟 盼孩子多点选择</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank">林予晞谈入围抱平常心 金钟战袍“走知性美”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262769.md#1" target="_blank">首掌传艺金曲奖主持 杨千霈带着使命感做准备</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank">张曼玉暴瘦近照曝光 健康状况引外界担忧</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank">丁当影片遭流出 证实与萧敬腾及狮子LION合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
@@ -50,12 +50,12 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank">刘真离世一年半 辛龙发四字帖文喊话</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank">张曼玉暴瘦近照曝光 健康状况引外界担忧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/21/n13250699.md#1" target="_blank">央视中秋晚会爆假唱 明星嘴闭上声音还在</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/22/n13253813.md#1" target="_blank">孙俪分享一妙招 有效应对孩子“起床气”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank">张曼玉暴瘦近照曝光 健康状况引外界担忧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/20/n13248325.md#1" target="_blank">贴文纪念安钧璨冥诞 安以轩连续7年没间断</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
