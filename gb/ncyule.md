@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/27/n13262578.md#1" target="_blank">SEVENTEEN《Attacca》预售量 一天达141万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/25/n13259549.md#1" target="_blank">NCT 127首度打入英国官方榜 夺音乐节目冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/24/n13257561.md#1" target="_blank">曹柔理10月7日以《GLASSY》Solo出道</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/27/n13262769.md#1" target="_blank">首掌传艺金曲奖主持 杨千霈带着使命感做准备</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank">杨雅喆不愿《天桥》童星拿金钟 盼孩子多点选择</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/26/n13261119.md#1" target="_blank">钟心凌《我的婆婆》争视后 曝戏拍完留后遗症</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/26/n13260785.md#1" target="_blank">青少年超龄演唱《飘向北方》 影片获黄明志转发</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/26/n13260710.md#1" target="_blank">丁文祺获广播金钟特别贡献奖 叹台湾媒体多且乱</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/27/n13262769.md#1" target="_blank">首掌传艺金曲奖主持 杨千霈带着使命感做准备</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank">张曼玉暴瘦近照曝光 健康状况引外界担忧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank">丁当影片遭流出 证实与萧敬腾及狮子LION合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank">曾心梅疫情下选择展店 斥资300万改装做餐饮</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/26/n13262210.md#1" target="_blank">郭富城新片剧组频出意外 开工9天4人受伤</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mycquw3398/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
