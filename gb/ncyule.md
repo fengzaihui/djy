@@ -8,9 +8,9 @@
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263838-2109270627411487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263467-2109270408301487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262510.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262661-210920004119100707-320x200.jpg"></a>
-<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262483-GettyImages-164047903-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262527-2109262106341487-320x200.jpg"></a>
 <a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262604-2109262148311487-320x200.jpg"></a>
+<a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261235-2109260452141487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/vhgtdc3457/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
