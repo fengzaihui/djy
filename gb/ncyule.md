@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266898.md#1" target="_blank">KEY参与制作 《BAD LOVE》32区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266093.md#1" target="_blank">KEY线上开唱后直播谈疫情：尽力做好能行之事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265667.md#1" target="_blank">张员瑛补庆生报近况 感叹因疫情见不到粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265577.md#1" target="_blank">ASTRO文彬及产贺解除隔离 重启演艺活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265357.md#1" target="_blank">河成云10月起于韩国三地举办巡回演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266171.md#1" target="_blank">动力火车登金钟献唱 挑战台、客语歌大叹好难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265896.md#1" target="_blank">《餐车2》赴台东 黄秋生与搭档遇开卖危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
