@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13264015.md#1" target="_blank">崔敏焕携妻儿重回《家务男》 身材心态大转变</a><br></h3><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13264015.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13264020-1612032327051487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a><br></h3><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263662-2005170517501487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/28/n13265343.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265350-200223043435100707-320x200.jpg"></a>
 <a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263838-2109270627411487-320x200.jpg"></a>
 <a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263467-2109270408301487-320x200.jpg"></a>
 <a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13262510.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262661-210920004119100707-320x200.jpg"></a>
 <a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262527-2109262106341487-320x200.jpg"></a>
 <a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13262604-2109262148311487-320x200.jpg"></a>
-<a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/26/n13261201.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13261235-2109260452141487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/28/n13265343.md#1" target="_blank">防弹少年团11月及12月于洛杉矶办现场演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263728.md#1" target="_blank">睿邻主演两部网路剧 饰《海村云宿》主角</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13264015.md#1" target="_blank">崔敏焕携妻儿重回《家务男》 身材心态大转变</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263629.md#1" target="_blank">张员瑛与朴成训将接任《Music Bank》主持人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263590.md#1" target="_blank">iKON成员BOBBY长子出生 获YG娱乐证实</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank">林予晞谈入围抱平常心 金钟战袍“走知性美”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/gvqeyf3810/djy/blob/master/gb/21/9/27/n13262769.md#1" target="_blank">首掌传艺金曲奖主持 杨千霈带着使命感做准备</a></h4></td></tr>
