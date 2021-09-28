@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13264719.md#1" target="_blank">49岁才发现患先天隐疾 杜汶泽被迫放弃梦想</a><br></h3><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13264719.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2020/05/191106074656100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13263822.md#1" target="_blank">入围金马角逐金钟 大霈：满享受这种双栖</a><br></h3><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13263822.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263823-7200f6ca7df7d3cc53d31f32e6b6e837-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13266321-2109280549551487-320x200.jpg"></a>
 <a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13266191-2109280442091487-320x200.jpg"></a>
 <a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265667.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265914-181211004112100707-320x200.jpg"></a>
 <a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265896.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265956-2109280240281487-320x200.jpg"></a>
 <a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265531.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265576-2109272355471487-320x200.jpg"></a>
 <a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265343.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265350-200223043435100707-320x200.jpg"></a>
-<a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13263617.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13263838-2109270627411487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265896.md#1" target="_blank">《餐车2》赴台东 黄秋生与搭档遇开卖危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13263271.md#1" target="_blank">林予晞谈入围抱平常心 金钟战袍“走知性美”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank">许富凯封歌王后推新作 进录音室遇神秘状况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266171.md#1" target="_blank">动力火车登金钟献唱 挑战台、客语歌大叹好难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265896.md#1" target="_blank">《餐车2》赴台东 黄秋生与搭档遇开卖危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13265531.md#1" target="_blank">吴姗儒晒与男友合照 谈心声 谢众人祝福</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13265083.md#1" target="_blank">刘德华庆60岁生日 自曝隔离21天吃睡也不胖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/23/n13254027.md#1" target="_blank">传宫胁咲良已与HYBE签约 玟周动向也受关注</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank">许富凯封歌王后推新作 进录音室遇神秘状况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank">丁当影片遭流出 证实与萧敬腾及狮子LION合作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank">曾心梅疫情下选择展店 斥资300万改装做餐饮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/26/n13260837.md#1" target="_blank">挑战宫崎骏动画主题歌 阎奕格花一周猛背歌词</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/26/n13260785.md#1" target="_blank">青少年超龄演唱《飘向北方》 影片获黄明志转发</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank">张曼玉暴瘦近照曝光 健康状况引外界担忧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/rrtcfu3611/djy/blob/master/gb/21/9/22/n13253897.md#1" target="_blank">刘真离世一年半 辛龙发四字帖文喊话</a></h4></td></tr>
