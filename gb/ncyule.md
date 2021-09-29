@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/29/n13268270.md#1" target="_blank">韶宥告别STARSHIP娱乐 签约新兴公司BPM</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/29/n13267951.md#1" target="_blank">PENTAGON珍虎 11月14日不返回部队退伍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/29/n13267869.md#1" target="_blank">华莎Solo专辑准备中 具体发行日程未定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266898.md#1" target="_blank">KEY参与制作 《BAD LOVE》32区iTunes夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266093.md#1" target="_blank">KEY线上开唱后直播谈疫情：尽力做好能行之事</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265667.md#1" target="_blank">张员瑛补庆生报近况 感叹因疫情见不到粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266171.md#1" target="_blank">动力火车登金钟献唱 挑战台、客语歌大叹好难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265896.md#1" target="_blank">《餐车2》赴台东 黄秋生与搭档遇开卖危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
@@ -54,8 +54,8 @@
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/22/n13253813.md#1" target="_blank">孙俪分享一妙招 有效应对孩子“起床气”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/26/n13262059.md#1" target="_blank">章子怡出席电影活动 谈女儿泪洒现场</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/22/n13253813.md#1" target="_blank">孙俪分享一妙招 有效应对孩子“起床气”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/27/n13264870.md#1" target="_blank">被“三国”周瑜后代认亲 周润发曾亲切回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
