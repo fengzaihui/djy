@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/27/n13265083.md#1" target="_blank">刘德华庆60岁生日 自曝隔离21天吃睡也不胖</a><br></h3><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/27/n13265083.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/11/1708100618292384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/28/n13265343.md#1" target="_blank">防弹少年团11月及12月于洛杉矶办现场演唱会</a><br></h3><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/28/n13265343.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265350-200223043435100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13268865-1812280305151487-320x200.jpg"></a>
 <a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13268666-2108230530261487-320x200.jpg"></a>
 <a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13268425-2109290219401487-320x200.jpg"></a>
 <a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268305.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13268349-2109290140321487-320x200.jpg"></a>
 <a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13267869.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13267877-180611033412100707-320x200.jpg"></a>
 <a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/28/n13266093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13266878-210928061441100707-320x200.jpg"></a>
-<a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13266321-2109280549551487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268024.md#1" target="_blank">李先彬演《金派特务》 男友李光洙支持鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268270.md#1" target="_blank">韶宥告别STARSHIP娱乐 签约新兴公司BPM</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13267951.md#1" target="_blank">PENTAGON珍虎 11月14日不返回部队退伍</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank">钮承泽性侵剧组女员工一案 判刑4年定谳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268622.md#1" target="_blank">第56届金钟公布颁奖人名单 应景邀 “5566”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268305.md#1" target="_blank">首演8点档入围金钟 薛仕凌：若夺视帝 捐奖金</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/28/n13266171.md#1" target="_blank">动力火车登金钟献唱 挑战台、客语歌大叹好难</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank">钮承泽性侵剧组女员工一案 判刑4年定谳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268622.md#1" target="_blank">第56届金钟公布颁奖人名单 应景邀 “5566”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/29/n13268305.md#1" target="_blank">首演8点档入围金钟 薛仕凌：若夺视帝 捐奖金</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/mahwig3172/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
