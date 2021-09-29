@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/27/n13265083.md#1" target="_blank">刘德华庆60岁生日 自曝隔离21天吃睡也不胖</a><br></h3><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/27/n13265083.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/11/1708100618292384-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265343.md#1" target="_blank">防弹少年团11月及12月于洛杉矶办现场演唱会</a><br></h3><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265343.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265350-200223043435100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/29/n13267869.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13267877-180611033412100707-320x200.jpg"></a>
 <a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13266878-210928061441100707-320x200.jpg"></a>
 <a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13266321-2109280549551487-320x200.jpg"></a>
 <a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266171.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13266191-2109280442091487-320x200.jpg"></a>
 <a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265667.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265914-181211004112100707-320x200.jpg"></a>
 <a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265896.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265956-2109280240281487-320x200.jpg"></a>
-<a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265531.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13265576-2109272355471487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/23/n13256233.md#1" target="_blank">张嘉译闫妮合唱红歌惹议 相关视频全网下架</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/29/n13267869.md#1" target="_blank">华莎Solo专辑准备中 具体发行日程未定</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266898.md#1" target="_blank">KEY参与制作 《BAD LOVE》32区iTunes夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266093.md#1" target="_blank">KEY线上开唱后直播谈疫情：尽力做好能行之事</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265667.md#1" target="_blank">张员瑛补庆生报近况 感叹因疫情见不到粉丝</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265577.md#1" target="_blank">ASTRO文彬及产贺解除隔离 重启演艺活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13266171.md#1" target="_blank">动力火车登金钟献唱 挑战台、客语歌大叹好难</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/28/n13265896.md#1" target="_blank">《餐车2》赴台东 黄秋生与搭档遇开卖危机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ypvmgw3220/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
