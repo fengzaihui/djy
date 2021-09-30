@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a><br></h3><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170411532122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank">49岁黎姿带女儿挤地铁 气质温婉似少女</a><br></h3><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/01/170109233506100615-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13271375.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13271376-200205235536100707-320x200.jpg"></a>
 <a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13271073-2109300333101487-320x200.jpg"></a>
 <a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13270271-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13270650-2109292339261487-320x200.jpg"></a>
 <a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/29/n13270004.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12983246-GettyImages-488954991-320x200.jpg"></a>
 <a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/29/n13269138.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13269150-2103170411412122-320x200.jpg"></a>
-<a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13268865-1812280305151487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/26/n13262059.md#1" target="_blank">章子怡出席电影活动 谈女儿泪洒现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13271375.md#1" target="_blank">本月少女公司拖欠薪水 编舞老师也发文催款</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13270823.md#1" target="_blank">STAYC获Hanteo颁发认证奖牌 录影片感谢粉丝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/29/n13268473.md#1" target="_blank">朴海秀结婚两年为人父 公司证实儿子已出生</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/29/n13268296.md#1" target="_blank">朴敏英自掏腰包 送《气象厅的人们》剧组礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
@@ -53,9 +53,9 @@
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/27/n13264870.md#1" target="_blank">被“三国”周瑜后代认亲 周润发曾亲切回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank">49岁黎姿带女儿挤地铁 气质温婉似少女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/23/n13256438.md#1" target="_blank">汤唯回国后首次公开露面 穿搭简约引关注</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank">49岁黎姿带女儿挤地铁 气质温婉似少女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/26/n13262059.md#1" target="_blank">章子怡出席电影活动 谈女儿泪洒现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ymotvy337/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/ymotvy337/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
