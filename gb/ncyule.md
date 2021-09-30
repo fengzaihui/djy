@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a><br></h3><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/03/2103170411532122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank">49岁黎姿带女儿挤地铁 气质温婉似少女</a><br></h3><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2017/01/170109233506100615-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13271073-2109300333101487-320x200.jpg"></a>
 <a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13270271-181211004125100707-320x200.jpg"></a>
 <a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13270650-2109292339261487-320x200.jpg"></a>
 <a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13270004.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/05/id12983246-GettyImages-488954991-320x200.jpg"></a>
 <a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13269138.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13269150-2103170411412122-320x200.jpg"></a>
 <a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13268865-1812280305151487-320x200.jpg"></a>
-<a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268622.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13268666-2108230530261487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268473.md#1" target="_blank">朴海秀结婚两年为人父 公司证实儿子已出生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268296.md#1" target="_blank">朴敏英自掏腰包 送《气象厅的人们》剧组礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268024.md#1" target="_blank">李先彬演《金派特务》 男友李光洙支持鼓励</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270498.md#1" target="_blank">《007》伦敦首映 丹尼尔告别庞德史诗结局</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank">钮承泽性侵剧组女员工一案 判刑4年定谳</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13269816.md#1" target="_blank">林依晨挺9月孕肚当评审 4天看12部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
