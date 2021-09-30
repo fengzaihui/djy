@@ -31,10 +31,10 @@
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13268296.md#1" target="_blank">朴敏英自掏腰包 送《气象厅的人们》剧组礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13268024.md#1" target="_blank">李先彬演《金派特务》 男友李光洙支持鼓励</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13268270.md#1" target="_blank">韶宥告别STARSHIP娱乐 签约新兴公司BPM</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/30/n13270498.md#1" target="_blank">《007》盛大首映 丹尼尔告别庞德史诗结局</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank">钮承泽性侵剧组女员工一案 判刑4年定谳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13268622.md#1" target="_blank">第56届金钟公布颁奖人名单 应景邀 “5566”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13268305.md#1" target="_blank">首演8点档入围金钟 薛仕凌：若夺视帝 捐奖金</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13269816.md#1" target="_blank">林依晨挺9月孕肚当评审 4天看12部电影</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zlelsj3910/djy/blob/master/gb/21/9/29/n13269470.md#1" target="_blank">闻林依晨怀孕表欣喜 杨谨华期待“跟上”脚步</a></h4></td></tr>
