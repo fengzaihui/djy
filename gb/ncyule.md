@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268473.md#1" target="_blank">朴海秀结婚两年为人父 公司证实儿子已出生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268296.md#1" target="_blank">朴敏英自掏腰包 送《气象厅的人们》剧组礼物</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268024.md#1" target="_blank">李先彬演《金派特务》 男友李光洙支持鼓励</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270498.md#1" target="_blank">《007》伦敦首映 丹尼尔告别庞德史诗结局</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268842.md#1" target="_blank">钮承泽性侵剧组女员工一案 判刑4年定谳</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13268622.md#1" target="_blank">第56届金钟公布颁奖人名单 应景邀 “5566”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13269816.md#1" target="_blank">林依晨挺9月孕肚当评审 4天看12部电影</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/29/n13269470.md#1" target="_blank">闻林依晨怀孕表欣喜 杨谨华期待“跟上”脚步</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/avhhls3540/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
