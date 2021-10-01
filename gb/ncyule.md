@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/10/1/n13273731.md#1" target="_blank">黄豪平当起高中老师 课程上线首周询问度高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/10/1/n13273563.md#1" target="_blank">搭档郑志伟拍MV 卢广仲原味破西装掀竞标热潮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13272719.md#1" target="_blank">安以轩41岁生日不收丈夫豪礼 原因贴心感人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13271220.md#1" target="_blank">布袋戏《素还真》登大银幕 揭晓传奇英雄起源</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
