@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a><br></h3><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13272695-GettyImages-75277567-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271709.md#1" target="_blank">东海与银赫先发行Solo曲 展开SJ-D&#038;E长期活动</a><br></h3><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271709.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/09/id13271749-200929072042100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13274746-2110010459322122-320x200.jpg"></a>
 <a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273874.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13273906-2110010431471487-320x200.jpg"></a>
 <a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273134.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13273145-201027060157100707-320x200.jpg"></a>
 <a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13272719.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1711150723582384-320x200.jpg"></a>
 <a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271215.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13272006-210415093229100707-320x200.jpg"></a>
 <a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271375.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13271376-200205235536100707-320x200.jpg"></a>
-<a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13271073-2109300333101487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：优质剧本 让丹尼尔克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank">动力火车为金钟彩排 尤秋兴旧疾复发忍痛上阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13274328.md#1" target="_blank">为金钟奖彩排 吴姗儒谈入围紧张：大脑想关机</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273874.md#1" target="_blank">47岁8点档男星剧组庆生 开心报结婚喜讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273731.md#1" target="_blank">黄豪平当起高中老师 课程上线首周询问度高</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273563.md#1" target="_blank">搭档郑志伟拍MV 卢广仲原味破西装掀竞标热潮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank">动力火车为金钟彩排 尤秋兴旧疾复发忍痛上阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273563.md#1" target="_blank">搭档郑志伟拍MV 卢广仲原味破西装掀竞标热潮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank">许富凯封歌王后推新作 进录音室遇神秘状况</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank">丁当影片遭流出 证实与萧敬腾及狮子LION合作</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank">张曼玉暴瘦近照曝光 健康状况引外界担忧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
