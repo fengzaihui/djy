@@ -12,7 +12,7 @@
 <a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271215.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13272006-210415093229100707-320x200.jpg"></a>
 <a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271375.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/09/id13271376-200205235536100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
-<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：优质剧本 让丹尼尔克雷格完美谢幕</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/25/n13259871.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259876-518652-320x200.jpg"><br>《疾冻救援》影评：大卡车司机 也可是矿坑事故的英雄</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/18/n13242894.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13242900-517651-320x200.jpg"><br>《夜读惊魂》影评：孩子大战女巫 老题材依然有看点</a></h4></td></tr>
