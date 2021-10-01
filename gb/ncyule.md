@@ -35,26 +35,26 @@
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270611.md#1" target="_blank">体验XR音乐节目 娄峻硕吴卓源同台直播开趴</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/10/1/n13273563.md#1" target="_blank">搭档郑志伟拍MV 卢广仲原味破西装掀竞标热潮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13272719.md#1" target="_blank">安以轩41岁生日不收丈夫豪礼 原因贴心感人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13271220.md#1" target="_blank">布袋戏《素还真》登大银幕 揭晓传奇英雄起源</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/25/n13259482.md#1" target="_blank">ADA与YMC合作 代理发行熊木杏里作品</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/10/1/n13273563.md#1" target="_blank">搭档郑志伟拍MV 卢广仲原味破西装掀竞标热潮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank">许富凯封歌王后推新作 进录音室遇神秘状况</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/27/n13262509.md#1" target="_blank">丁当影片遭流出 证实与萧敬腾及狮子LION合作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/27/n13262593.md#1" target="_blank">曾心梅疫情下选择展店 斥资300万改装做餐饮</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/26/n13262371.md#1" target="_blank">张曼玉暴瘦近照曝光 健康状况引外界担忧</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/24/n13258607.md#1" target="_blank">去年一年只拍一天戏 古天乐拒绝离港原因曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/27/n13264870.md#1" target="_blank">被“三国”周瑜后代认亲 周润发曾亲切回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank">49岁黎姿带女儿挤地铁 气质温婉似少女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/25/n13259982.md#1" target="_blank">第56届广播金钟奖得奖名单今揭晓</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/26/n13262059.md#1" target="_blank">章子怡出席电影活动 谈女儿泪洒现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/xkvyuq304/djy/blob/master/gb/21/9/25/n13258918.md#1" target="_blank">网购被骗 53岁胡军自曝遭妻女嘲笑</a></h4></td></tr>
