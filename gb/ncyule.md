@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/29/n13270004.md#1" target="_blank">43岁刘涛晒自拍照 搞笑喊“最近确实瘦了”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/26/n13262059.md#1" target="_blank">章子怡出席电影活动 谈女儿泪洒现场</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273987.md#1" target="_blank">《偶像学校》刻意诈欺 造假数高达233人次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273217.md#1" target="_blank">TWICE《The Feels》像回到出道 预告新辑与巡演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13273134.md#1" target="_blank">金裕贞迎生日捐款三千万韩圜 帮助受害儿童</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271215.md#1" target="_blank">利特谈梦想中的婚礼与求婚 被调侃“爱炫耀”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271709.md#1" target="_blank">东海与银赫先发行Solo曲 展开SJ-D&#038;E长期活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13271064.md#1" target="_blank">Janet入围金钟迷你剧女配 叶天伦：证明演技</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/qxelqr3958/djy/blob/master/gb/21/9/30/n13270933.md#1" target="_blank">视网膜主持金钟 “超时罚喝香菜汁”引热议</a></h4></td></tr>
