@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276092.md#1" target="_blank">TWICE《The Feels》于逾30区iTunes榜单夺冠</a><br></h3><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276092.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13276223-181214094600100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a><br></h3><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2018/04/GettyImages-56150955-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276922.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13276933-2110021240171487-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276408.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13276472-2110020801551487-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275352.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/11/GettyImages-491442564-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13274746-2110010459322122-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13273874.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13273906-2110010431471487-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13273134.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13273145-201027060157100707-320x200.jpg"></a>
-<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/30/n13272719.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1711150723582384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -31,14 +31,14 @@
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276147.md#1" target="_blank">ITZY正规专辑首周热销逾25万张 自身新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13273987.md#1" target="_blank">《偶像学校》刻意诈欺 造假数高达233人次</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13273217.md#1" target="_blank">TWICE《The Feels》像回到出道 预告新辑与巡演</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank">李奕樵12岁敲金钟 凭《天桥上》得新人奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276922.md#1" target="_blank">钟欣凌二度封后感谢上天 预告《婆婆》电影版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276408.md#1" target="_blank">《天桥》获戏剧节目、导演等6奖成金钟大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276436.md#1" target="_blank">吴姗儒4千万珠宝闪耀登金钟 大霈优雅迷人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276363.md#1" target="_blank">第56届电视金钟奖登场 视网膜带爱犬主持吸睛</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275352.md#1" target="_blank">吴彦祖47岁生日自嘲老了 坦言不想刻意庆生</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank">李奕樵12岁敲金钟 凭《天桥上》得新人奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276922.md#1" target="_blank">钟欣凌二度封后感谢上天 预告《婆婆》电影版</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276408.md#1" target="_blank">《天桥》获戏剧节目、导演等6奖成金钟大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276436.md#1" target="_blank">吴姗儒4千万珠宝闪耀登金钟 大霈优雅迷人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276363.md#1" target="_blank">第56届电视金钟奖登场 视网膜带爱犬主持吸睛</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275352.md#1" target="_blank">吴彦祖47岁生日自嘲老了 坦言不想刻意庆生</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
@@ -56,7 +56,7 @@
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/26/n13262059.md#1" target="_blank">章子怡出席电影活动 谈女儿泪洒现场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/29/n13270004.md#1" target="_blank">43岁刘涛晒自拍照 搞笑喊“最近确实瘦了”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nmoqrh3655/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/nmoqrh3655/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
