@@ -7,10 +7,10 @@
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/2/n13276408.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13276472-2110020801551487-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275352.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/11/GettyImages-491442564-320x200.jpg"></a>
-<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13275145.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2013/11/1311100447572146-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13274746-2110010459322122-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13273874.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13273906-2110010431471487-320x200.jpg"></a>
 <a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13273134.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13273145-201027060157100707-320x200.jpg"></a>
+<a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/30/n13272719.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1711150723582384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nmoqrh3655/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
