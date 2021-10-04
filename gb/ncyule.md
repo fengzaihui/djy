@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/2/n13277226.md#1" target="_blank">与两搭档获金钟主持人 炎亚纶爱台感言获大赞</a><br></h3><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/2/n13277226.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13277383-Screen-Shot-10-02-21-at-08.41-PM-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank">吴姗儒与唐绮阳炎亚纶 荣获金钟奖综艺主持人</a><br></h3><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13277002-2110021117011470-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280336-210721093902100707-320x200.jpg"></a>
+<a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280211.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280216-2110040420032122-320x200.jpg"></a>
 <a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280055.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280167-2110040444071487-320x200.jpg"></a>
 <a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279746-2009190636131487-320x200.jpg"></a>
 <a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279616-2110040030131487-320x200.jpg"></a>
 <a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1151622536-320x200.jpg"></a>
-<a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13277014-20211002-GBA56-4176-320x200.jpg"></a>
-<a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/2/n13276363.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13276382-2110020709341487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -27,18 +27,17 @@
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank">文彬演出涉抄袭ARASHI岚 TMA主办方致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279970.md#1" target="_blank">刘台午赴美拍戏返韩后高烧 确诊染疫暂停工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279770.md#1" target="_blank">A.C.E成员Jun出现染疫症状 “阴转阳”确诊</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279372.md#1" target="_blank">BTS夺TMA大赏：各自做好能行之事 以笑容相会</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280351.md#1" target="_blank">巴基斯坦动画《驴子当家》主题曲破亿点阅率</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280055.md#1" target="_blank">杨千霈12度接金马奖红毯 与“学弟”徐钧浩搭档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279815.md#1" target="_blank">56届金钟奖收视告捷 沈春华任立渝同台飙最高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首度诠释华语歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280211.md#1" target="_blank">公视英语影音平台 《斯卡罗》、《茶金》推向国际</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280351.md#1" target="_blank">巴基斯坦动画《驴子当家》主题曲破亿点阅率</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280211.md#1" target="_blank">公视英语影音平台 《斯卡罗》《茶金》推向国际</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13280055.md#1" target="_blank">杨千霈12度接金马奖红毯 与“学弟”徐钧浩搭档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279815.md#1" target="_blank">56届金钟奖收视告捷 沈春华任立渝同台飙最高</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首度诠释华语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
@@ -56,7 +55,7 @@
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/2/n13276408.md#1" target="_blank">《天桥》获戏剧节目、导演等6奖成金钟大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/9/29/n13270004.md#1" target="_blank">43岁刘涛晒自拍照 搞笑喊“最近确实瘦了”</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/9/27/n13263650.md#1" target="_blank">吴姗儒证实婚讯 吴宗宪赞未来女婿人帅孝顺</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yxpuce3758/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/yxpuce3758/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/yxpuce3758/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/yxpuce3758/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/yxpuce3758/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
