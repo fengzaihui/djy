@@ -49,8 +49,8 @@
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank">49岁黎姿带女儿挤地铁 气质温婉似少女</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/27/n13264870.md#1" target="_blank">被“三国”周瑜后代认亲 周润发曾亲切回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/27/n13264870.md#1" target="_blank">被“三国”周瑜后代认亲 周润发曾亲切回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
