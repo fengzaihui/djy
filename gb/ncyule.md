@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank">吴姗儒与唐绮阳炎亚纶 荣获金钟奖综艺主持人</a><br></h3><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13277002-2110021117011470-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276922.md#1" target="_blank">钟欣凌二度封后感谢上天 预告《婆婆》电影版</a><br></h3><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276922.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13276933-2110021240171487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279746-2009190636131487-320x200.jpg"></a>
+<a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279616-2110040030131487-320x200.jpg"></a>
 <a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/11/GettyImages-1151622536-320x200.jpg"></a>
 <a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13277014-20211002-GBA56-4176-320x200.jpg"></a>
 <a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276363.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13276382-2110020709341487-320x200.jpg"></a>
 <a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13275352.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/11/GettyImages-491442564-320x200.jpg"></a>
-<a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13274746-2110010459322122-320x200.jpg"></a>
-<a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13273874.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13273906-2110010431471487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -27,26 +27,26 @@
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279372.md#1" target="_blank">BTS夺TMA大赏：各自做好能行之事 以笑容相会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276092.md#1" target="_blank">TWICE《The Feels》于逾30区iTunes榜单夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276147.md#1" target="_blank">ITZY正规专辑首周热销逾25万张 自身新纪录</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13273987.md#1" target="_blank">《偶像学校》刻意诈欺 造假数高达233人次</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首诠释华语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank">吴姗儒与唐绮阳炎亚纶 荣获金钟奖综艺主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank">李奕樵12岁敲金钟 凭《天桥上》得新人奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276922.md#1" target="_blank">钟欣凌二度封后感谢上天 预告《婆婆》电影版</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首诠释华语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/3/n13278895.md#1" target="_blank">退出演艺圈13年 黎姿晒全家福庆50岁生日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13277226.md#1" target="_blank">与两搭档获金钟主持人 炎亚纶爱台感言获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank">吴姗儒与唐绮阳炎亚纶 荣获金钟奖综艺主持人</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank">李奕樵12岁敲金钟 凭《天桥上》得新人奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首诠释华语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank">动力火车为金钟彩排 尤秋兴旧疾复发忍痛上阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13273563.md#1" target="_blank">搭档郑志伟拍MV 卢广仲原味破西装掀竞标热潮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/28/n13266294.md#1" target="_blank">许富凯封歌王后推新作 进录音室遇神秘状况</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/28/n13267480.md#1" target="_blank">49岁黎姿带女儿挤地铁 气质温婉似少女</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/27/n13264870.md#1" target="_blank">被“三国”周瑜后代认亲 周润发曾亲切回应</a></h4></td></tr>
