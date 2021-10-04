@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279770.md#1" target="_blank">A.C.E成员Jun出现染疫症状 “阴转阳”确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279372.md#1" target="_blank">BTS夺TMA大赏：各自做好能行之事 以笑容相会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276092.md#1" target="_blank">TWICE《The Feels》于逾30区iTunes榜单夺冠</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276147.md#1" target="_blank">ITZY正规专辑首周热销逾25万张 自身新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首诠释华语歌</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ftiony323/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank">吴姗儒与唐绮阳炎亚纶 荣获金钟奖综艺主持人</a></h4></td></tr>
