@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/9/29/n13270004.md#1" target="_blank">43岁刘涛晒自拍照 搞笑喊“最近确实瘦了”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13276092.md#1" target="_blank">TWICE《The Feels》于逾30区iTunes榜单夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13276147.md#1" target="_blank">ITZY正规专辑首周热销逾25万张 自身新纪录</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/1/n13273987.md#1" target="_blank">《偶像学校》刻意诈欺 造假数高达233人次</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/1/n13273217.md#1" target="_blank">TWICE《The Feels》像回到出道 预告新辑与巡演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank">吴姗儒与唐绮阳炎亚纶 荣获金钟奖综艺主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank">李奕樵12岁敲金钟 凭《天桥上》得新人奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13276922.md#1" target="_blank">钟欣凌二度封后感谢上天 预告《婆婆》电影版</a></h4></td></tr>
@@ -39,10 +39,10 @@
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13277226.md#1" target="_blank">与两搭档获金钟主持人 炎亚纶爱台感言获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13276991.md#1" target="_blank">吴姗儒与唐绮阳炎亚纶 荣获金钟奖综艺主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/2/n13276951.md#1" target="_blank">李奕樵12岁敲金钟 凭《天桥上》得新人奖</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/9/25/n13259702.md#1" target="_blank">Hey! Say! JUMP连续30张单曲于公信榜夺冠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank">动力火车为金钟彩排 尤秋兴旧疾复发忍痛上阵</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/10/1/n13273563.md#1" target="_blank">搭档郑志伟拍MV 卢广仲原味破西装掀竞标热潮</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/iqmbsl392/djy/blob/master/gb/21/9/29/n13268412.md#1" target="_blank">戴爱玲与熊仔合作新歌 挑战出道以来首次唱跳</a></h4></td></tr>
