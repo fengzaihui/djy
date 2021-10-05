@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank">文彬演出涉抄袭ARASHI岚 TMA主办方致歉</a><br></h3><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280336-210721093902100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a><br></h3><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279318-1711160223221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
-<a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13283038-2110050736371487-320x200.jpg"></a>
 <a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282910-2110050627531487-320x200.jpg"></a>
 <a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282764-2110050421171487-320x200.jpg"></a>
 <a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282103.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282654-200603064015100707-320x200.jpg"></a>
 <a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282086.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282107-210914020837100707-320x200.jpg"></a>
 <a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282274-2110042341051487-320x200.jpg"></a>
+<a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13280265.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280335-20211004_award_01-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -27,6 +27,7 @@
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13283187.md#1" target="_blank">ITZY登Billboard 200榜第11名 自身最佳成绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282343.md#1" target="_blank">曹柔理Solo出道作《GLASSY》预售破5万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282103.md#1" target="_blank">金世正继拍摄公益广告后 捐款两千万韩圜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282086.md#1" target="_blank">BTS与Coldplay合作曲 登告示牌HOT 100榜冠军</a></h4></td></tr>
@@ -51,8 +52,8 @@
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/2/n13276408.md#1" target="_blank">《天桥》获戏剧节目、导演等6奖成金钟大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/9/29/n13270004.md#1" target="_blank">43岁刘涛晒自拍照 搞笑喊“最近确实瘦了”</a></h4></td></tr>
