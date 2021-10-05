@@ -31,9 +31,9 @@
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13279970.md#1" target="_blank">刘台午赴美拍戏返韩后高烧 确诊染疫暂停工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13279770.md#1" target="_blank">A.C.E成员Jun出现染疫症状 “阴转阳”确诊</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13281284.md#1" target="_blank">《星际迷航》主演夏特纳将乘蓝源飞船上太空</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13280351.md#1" target="_blank">巴基斯坦动画《驴子当家》主题曲破亿点阅率</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13280055.md#1" target="_blank">杨千霈12度接金马奖红毯 与“学弟”徐钧浩搭档</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13279815.md#1" target="_blank">56届金钟奖收视告捷 沈春华任立渝同台飙最高</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13280351.md#1" target="_blank">巴基斯坦动画《驴子当家》主题曲破亿点阅率</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13280265.md#1" target="_blank">张震揭北影百万首奖  邱泽林心如等颁奖阵容星光熠熠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pgfkuo3662/djy/blob/master/gb/21/10/4/n13280211.md#1" target="_blank">公视英语影音平台 《斯卡罗》《茶金》推向国际</a></h4></td></tr>
