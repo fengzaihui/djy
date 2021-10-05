@@ -27,9 +27,9 @@
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282343.md#1" target="_blank">曹柔理Solo出道作《GLASSY》预售破5万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282103.md#1" target="_blank">金世正继拍摄公益广告后 捐款两千万韩圜</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282086.md#1" target="_blank">BTS与Coldplay合作曲 登告示牌HOT 100榜冠军</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank">文彬演出涉抄袭ARASHI岚 TMA主办方致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/ppytfa315/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank">钟孟宏剧本要求严 贾静雯王净对戏要一字不漏</a></h4></td></tr>
