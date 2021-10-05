@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a><br></h3><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279318-1711160223221487-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/3/n13278895.md#1" target="_blank">退出演艺圈13年 黎姿晒全家福庆50岁生日</a><br></h3><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/3/n13278895.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2019/02/190217213542100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282274-2110042341051487-320x200.jpg"></a>
 <a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280265.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280335-20211004_award_01-320x200.jpg"></a>
 <a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280211.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280216-2110040420032122-320x200.jpg"></a>
 <a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280055.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280167-2110040444071487-320x200.jpg"></a>
 <a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279815.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279850-2110040227551487-320x200.jpg"></a>
 <a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279372.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279746-2009190636131487-320x200.jpg"></a>
-<a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13279616-2110040030131487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -27,17 +27,17 @@
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被问能否免费代言 黄渤回答马云获赞高情商</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/5/n13282086.md#1" target="_blank">BTS与Coldplay合作曲 登告示牌HOT 100榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank">文彬演出涉抄袭ARASHI岚 TMA主办方致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279970.md#1" target="_blank">刘台午赴美拍戏返韩后高烧 确诊染疫暂停工作</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279770.md#1" target="_blank">A.C.E成员Jun出现染疫症状 “阴转阳”确诊</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank">钟孟宏剧本要求严 贾静雯王净对戏要一字不漏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13281284.md#1" target="_blank">《星际迷航》主演夏特纳将乘蓝源飞船上太空</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280351.md#1" target="_blank">巴基斯坦动画《驴子当家》主题曲破亿点阅率</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280055.md#1" target="_blank">杨千霈12度接金马奖红毯 与“学弟”徐钧浩搭档</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank">钟孟宏剧本要求严 贾静雯王净对戏要一字不漏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280351.md#1" target="_blank">巴基斯坦动画《驴子当家》主题曲破亿点阅率</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280265.md#1" target="_blank">张震揭北影百万首奖  邱泽林心如等颁奖阵容星光熠熠</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280211.md#1" target="_blank">公视英语影音平台 《斯卡罗》《茶金》推向国际</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13280055.md#1" target="_blank">杨千霈12度接金马奖红毯 与“学弟”徐钧浩搭档</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zwpqwo316/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
