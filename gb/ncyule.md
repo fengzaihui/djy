@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13283794.md#1" target="_blank">中港逾200部电影报名竞逐第58届金马奖</a><br></h3><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13283794.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2015/07/150712085005100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a><br></h3><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13285292-2110050838422122-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13285573.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13285594-2110060522352122-320x200.jpg"></a>
 <a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13285122-2110050312582122-320x200.jpg"></a>
 <a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13284833-2110060213191487-320x200.jpg"></a>
 <a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
 <a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282910-2110050627531487-320x200.jpg"></a>
 <a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282764-2110050421171487-320x200.jpg"></a>
-<a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13282103.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282654-200603064015100707-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13285573.md#1" target="_blank">隋棠谈育儿生活 “和保持自我”之间取得平衡</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank">柯佳嬿新剧与郑元畅斗智 上演变身戏法</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284944.md#1" target="_blank">张信哲MV获国际双奖 宣布重启演唱会巡回</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank">拍照道具椅突发故障 隋棠专业反应获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
