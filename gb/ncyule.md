@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a><br></h3><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13281982-Screen-Shot-10-04-21-at-09.27-PM-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a><br></h3><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13281545-171125184052100694-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/6/n13284665.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13284670-211006004628100707-320x200.jpg"></a>
 <a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
 <a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282910-2110050627531487-320x200.jpg"></a>
 <a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282764-2110050421171487-320x200.jpg"></a>
 <a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282103.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282654-200603064015100707-320x200.jpg"></a>
 <a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282086.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282107-210914020837100707-320x200.jpg"></a>
-<a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282274-2110042341051487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/6/n13284665.md#1" target="_blank">银河、信飞、严智与BPM签约 三人组团活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13283187.md#1" target="_blank">ITZY登Billboard 200榜第11名 自身最佳成绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282343.md#1" target="_blank">曹柔理Solo出道作《GLASSY》预售破5万张</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282103.md#1" target="_blank">金世正继拍摄公益广告后 捐款两千万韩圜</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282086.md#1" target="_blank">BTS与Coldplay合作曲 登告示牌HOT 100榜冠军</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank">钟孟宏剧本要求严 贾静雯王净对戏要一字不漏</a></h4></td></tr>
