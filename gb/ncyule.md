@@ -49,8 +49,8 @@
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首度诠释华语歌</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传全渠道封杀艺人名单 赵薇列政治类别首位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传25位封杀艺人名单 赵薇列政治类别首位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
