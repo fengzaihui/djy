@@ -50,7 +50,7 @@
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传“全渠道封杀艺人”名单 赵薇列政治类首位</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传25位封杀艺人名单 赵薇列政治类别首位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/9/28/n13267702.md#1" target="_blank">林依晨证实已怀孕 预产期是10月底</a></h4></td></tr>
