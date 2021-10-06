@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank">钟孟宏剧本要求严 贾静雯王净对戏要一字不漏</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/6/n13284944.md#1" target="_blank">张信哲MV获国际双奖 宣布重启演唱会巡回</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank">拍照道具椅突发故障 隋棠专业反应获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13283794.md#1" target="_blank">中港逾200部电影报名竞逐第58届金马奖</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/6/n13284944.md#1" target="_blank">张信哲MV获国际双奖 宣布重启演唱会巡回</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank">出道22年 容祖儿升格执导自己的新作MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/5/n13282516.md#1" target="_blank">打破时空限制“五坚情”将用5G办互动演唱会</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首度诠释华语歌</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/1/n13274706.md#1" target="_blank">动力火车为金钟彩排 尤秋兴旧疾复发忍痛上阵</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/yjkpec3005/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
