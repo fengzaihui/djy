@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13285485.md#1" target="_blank">aespa《Savage》预售逾40万张 17区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284294.md#1" target="_blank">TWICE线上鼓励罕病儿童 反而获得能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284784.md#1" target="_blank">姜昇润及宋旻浩11月Solo开唱 开放观众入场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284665.md#1" target="_blank">银河、信飞、严智与BPM签约 三人组团活动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13283187.md#1" target="_blank">ITZY登Billboard 200榜第11名 自身最佳成绩</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank">柯佳嬿新剧与郑元畅斗智 上演变身戏法</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/imggnv371/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
