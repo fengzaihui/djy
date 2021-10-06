@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a><br></h3><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13281545-171125184052100694-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank">文彬演出涉抄袭ARASHI岚 TMA主办方致歉</a><br></h3><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/4/n13280028.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280336-210721093902100707-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
 <a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282910-2110050627531487-320x200.jpg"></a>
 <a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282764-2110050421171487-320x200.jpg"></a>
 <a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282103.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282654-200603064015100707-320x200.jpg"></a>
 <a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282086.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282107-210914020837100707-320x200.jpg"></a>
 <a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282274-2110042341051487-320x200.jpg"></a>
-<a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/4/n13280265.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13280335-20211004_award_01-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282175.md#1" target="_blank">钟孟宏剧本要求严 贾静雯王净对戏要一字不漏</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank">拍照道具椅突发故障 隋棠专业反应获大赞</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13283794.md#1" target="_blank">中港逾200部电影报名竞逐第58届金马奖</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank">出道22年 容祖儿升格执导自己的新作MV</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zomekd309/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
