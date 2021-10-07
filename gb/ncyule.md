@@ -35,10 +35,10 @@
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/6/n13286685.md#1" target="_blank">才演完《火神的眼泪》51岁洪绮阳独居骤逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/6/n13286466.md#1" target="_blank">贾静雯为拍《瀑布》离家独居 修杰楷暖举曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/6/n13285573.md#1" target="_blank">隋棠踩平底鞋被疑有孕 下月与温昇豪合拍影集</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank">柯佳嬿新剧与郑元畅斗智 上演变身戏法</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/6/n13284944.md#1" target="_blank">张信哲MV获国际双奖 宣布重启演唱会巡回</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
@@ -53,10 +53,10 @@
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/3/n13278687.md#1" target="_blank">网传全渠道封杀艺人名单 赵薇列政治类别首位</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/4/n13279085.md#1" target="_blank">章子怡手机屏幕遭偷拍 桌布画面曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/1/n13272876.md#1" target="_blank">章子怡公开介绍继女 小苹果回应超感动</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/9/30/n13270234.md#1" target="_blank">受邀参加大陆直播卖货 赵雅芝全程尴尬引热议</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/3/n13278895.md#1" target="_blank">退出演艺圈13年 黎姿晒全家福庆50岁生日</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/2/n13276408.md#1" target="_blank">《天桥》获戏剧节目、导演等6奖成金钟大赢家</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/9/30/n13272475.md#1" target="_blank">姚安娜被称“靠爸族” 上综艺节目遭宁静吐槽</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/zqwrfy332/djy/blob/master/gb/21/10/2/n13277226.md#1" target="_blank">与两搭档获金钟主持人 炎亚纶爱台感言获大赞</a></h4></td></tr>
 <tr><td><h3><a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule.md#1">上一页</a>&nbsp;&nbsp;1 &nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_2.md#1">2</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_3.md#1">3</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_4.md#1">4</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_5.md#1">5</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_6.md#1">6</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_7.md#1">7</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_8.md#1">8</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_9.md#1">9</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_10.md#1">10</a>&nbsp;&nbsp;<a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule_2.md#1">下一页</a></h3></td></tr>
 </table><div align="center"><h4>手机上长按并复制下列链接或二维码分享本文章：</h4>https://github.com/zqwrfy332/djy/blob/master/gb/ncyule.md#1<br><a href="https://github.com/zqwrfy332/djy/blob/master/gb/ncyule.md#1"><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zqwrfy332/djy/blob/master/gb/ncyule.md%231" title="分享本文章"></a><br>原文地址： <a href="https://www.epochtimes.com/gb/ncyule.htm">https://www.epochtimes.com/gb/ncyule.htm</a>    （国内需<a href="https://github.com/zqwrfy332/www/blob/master/README.md#8">下载翻墙软件</a>才能访问）</div>
