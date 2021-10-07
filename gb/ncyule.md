@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284199.md#1" target="_blank">遭网民嘲讽学历太低 杨超越大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13286980.md#1" target="_blank">NCT 127《Sticker》9月卖227万张 Gaon榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285485.md#1" target="_blank">aespa《Savage》预售逾40万张 17区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284294.md#1" target="_blank">TWICE线上鼓励罕病儿童 反而获得能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284784.md#1" target="_blank">姜昇润及宋旻浩11月Solo开唱 开放观众入场</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284665.md#1" target="_blank">银河、信飞、严智与BPM签约 三人组团活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank">柯佳嬿新剧与郑元畅斗智 上演变身戏法</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
