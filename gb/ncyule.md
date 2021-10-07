@@ -8,9 +8,9 @@
 <a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13288359.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13288447-2110070408012122-320x200.jpg"></a>
 <a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13287840.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13287857-2110060515362122-320x200.jpg"></a>
 <a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13287184.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13287210-1908301006041487-320x200.jpg"></a>
-<a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/6/n13286296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/11/1_meitu_1-59-320x200.jpg"></a>
 <a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13285122-2110050312582122-320x200.jpg"></a>
 <a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13284833-2110060213191487-320x200.jpg"></a>
+<a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -27,10 +27,10 @@
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/6/n13284199.md#1" target="_blank">遭网民嘲讽学历太低 杨超越大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13288338.md#1" target="_blank">ENHYPEN正规专辑预售逾91万张 较前作多两倍</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13287725.md#1" target="_blank">金玟周准备走演员路 未完全排除歌手活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13288238.md#1" target="_blank">Super Junior东海下周Solo出道 银赫调皮声援</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13287135.md#1" target="_blank">TWICE将于12月办现场演唱会 于首尔连唱三天</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13286980.md#1" target="_blank">NCT 127《Sticker》9月卖227万张 Gaon榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13288359.md#1" target="_blank">台北电影节闭幕 陈意涵挺孕肚为导演丈夫站台</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/7/n13287906.md#1" target="_blank">黄姵嘉接演爱情奇幻剧 与杨铭威同框穿制服</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/nnujju350/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank">柯佳嬿新剧与郑元畅斗智 上演变身戏法</a></h4></td></tr>
