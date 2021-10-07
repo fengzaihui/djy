@@ -5,12 +5,12 @@
 <tr><td><h3><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284199.md#1" target="_blank">遭网民嘲讽学历太低 杨超越大气回应</a><br></h3><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284199.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1178341297-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13283794.md#1" target="_blank">中港逾200部电影报名竞逐第58届金马奖</a><br></h3><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13283794.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2015/07/150712085005100311-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13287184.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13287210-1908301006041487-320x200.jpg"></a>
 <a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13286296.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2016/11/1_meitu_1-59-320x200.jpg"></a>
 <a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285573.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13285594-2110060522352122-320x200.jpg"></a>
 <a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13285122-2110050312582122-320x200.jpg"></a>
 <a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13284833-2110060213191487-320x200.jpg"></a>
 <a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13284093.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/09/1807120609312384-320x200.jpg"></a>
-<a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/10/id13282910-2110050627531487-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/1/n13272318.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/10/id13272325-519707-320x200.jpg"><br>《007：生死交战》影评：让克雷格完美谢幕</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/9/25/n13259180.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/09/id13259190-518586-320x200.jpg"><br>《My Little Pony：活力新生代》影评：马儿身体力行 促成种族大和解</a></h4></td></tr>
@@ -27,18 +27,18 @@
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284199.md#1" target="_blank">遭网民嘲讽学历太低 杨超越大气回应</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13281782.md#1" target="_blank">马伊琍无奈表心声：女演员需要具备“三高”</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13286980.md#1" target="_blank">NCT 127《Sticker》9月卖227万张 Gaon榜登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285485.md#1" target="_blank">aespa《Savage》预售逾40万张 17区iTunes登顶</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284294.md#1" target="_blank">TWICE线上鼓励罕病儿童 反而获得能量</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284784.md#1" target="_blank">姜昇润及宋旻浩11月Solo开唱 开放观众入场</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284665.md#1" target="_blank">银河、信飞、严智与BPM签约 三人组团活动</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank">柯佳嬿新剧与郑元畅斗智 上演变身戏法</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13287184.md#1" target="_blank">杨昇达颜面神经失调 宣布短期内不露脸表演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13286685.md#1" target="_blank">才演完《火神的眼泪》51岁洪绮阳独居骤逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13286466.md#1" target="_blank">贾静雯为拍《瀑布》离家独居 修杰楷暖举曝光</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285573.md#1" target="_blank">隋棠踩平底鞋被疑有孕 下月与温昇豪合拍影集</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285117.md#1" target="_blank">柯佳嬿新剧与郑元畅斗智 上演变身戏法</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
