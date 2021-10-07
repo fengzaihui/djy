@@ -35,18 +35,18 @@
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284778.md#1" target="_blank">罹癌化疗期间遭烫伤 柯一正露全脸秀复原模样</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13283013.md#1" target="_blank">58届金马奖公布入围名单 《浊水漂流》12项领跑</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13282741.md#1" target="_blank">孙德荣上节目谈疫情下得“怪病” 却不想好</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13287536.md#1" target="_blank">AKB48 Team TP在台成军3年 选拔16成员录单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13287184.md#1" target="_blank">杨昇达颜面神经失调 宣布短期内不露脸表演</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13286685.md#1" target="_blank">才演完《火神的眼泪》51岁洪绮阳独居骤逝</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13286466.md#1" target="_blank">贾静雯为拍《瀑布》离家独居 修杰楷暖举曝光</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13285573.md#1" target="_blank">隋棠踩平底鞋被疑有孕 下月与温昇豪合拍影集</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13287581.md#1" target="_blank">《NHK红白歌唱大赛》时隔两年开放观众入场</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13279160.md#1" target="_blank">2021 AAA颁奖礼改线上举行 明年颁奖在日本办</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/1/n13274308.md#1" target="_blank">小室哲哉宣布重启音乐活动：请让我工作</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/9/30/n13270260.md#1" target="_blank">宫胁咲良谈广播告终并非结束：会努力成长</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/9/28/n13266043.md#1" target="_blank">“岚”樱井翔与相叶雅纪 同日宣布各自婚讯</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/7/n13287536.md#1" target="_blank">AKB48 Team TP在台成军3年 选拔16成员录单曲</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/6/n13284944.md#1" target="_blank">张信哲MV获国际双奖 宣布重启演唱会巡回</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13282872.md#1" target="_blank">出道22年 容祖儿升格执导自己的新作MV</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/5/n13282516.md#1" target="_blank">打破时空限制“五坚情”将用5G办互动演唱会</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13279597.md#1" target="_blank">为电影《地球迷航》献唱 王识贤首度诠释华语歌</a></h4></td></tr>
 <tr><td><h3><p><strong>大纪元娱乐休闲  一周热门</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/4/n13281323.md#1" target="_blank">曾被马云问能否免费代言 黄渤回答获赞高情商</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/pfeabi3282/djy/blob/master/gb/21/10/1/n13275017.md#1" target="_blank">回应香港议题被打断 黄秋生怒呛主持人</a></h4></td></tr>
