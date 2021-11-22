@@ -5,11 +5,11 @@
 <tr><td><h3><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/21/n13388773.md#1" target="_blank">徐若瑄平安出院返家 与儿子相拥合照晒幸福</a><br></h3><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/21/n13388773.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/11/id13388786-2110070049102122-600x400.jpg"></a></td></tr>
 <tr><td><h3><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/20/n13388182.md#1" target="_blank">“五坚情”宣布开唱喜讯 陈零九泪洒快闪现场</a><br></h3><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/20/n13388182.md#1" target="_blank"><img width="600" src="https://i.epochtimes.com/assets/uploads/2021/11/id13388233-2111201147491487-600x400.jpg"></a></td></tr>
 <tr><td><h3><p><strong>大纪元   娱乐要闻</strong></p></h3></td></tr><tr><td><h4>
+<a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/22/n13390097.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/11/id13390102-190129092240100707-320x200.jpg"></a>
 <a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/21/n13388903.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/11/id13388931-2111210241441487-320x200.jpg"></a>
 <a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/21/n13388561.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/11/id13388579-2111202207271487-320x200.jpg"></a>
 <a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13386346.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/11/id13386412-2111190723301487-320x200.jpg"></a>
 <a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13386114.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2021/11/id13386161-2111190450421487-320x200.jpg"></a>
-<a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/18/n13384725.md#1" target="_blank"><img width="195" src="https://i.epochtimes.com/assets/uploads/2020/12/20201224PHO0033l-320x200.jpg"></a>
 <tr><td><h3><p><strong>大纪元娱乐休闲  影视评论</strong></p></h3></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/20/n13388053.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/11/id13388060-528295-320x200.jpeg"><br>《王者理查》影评：严格的父亲 造就一对网坛巨星</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13385192.md#1" target="_blank"><img src="https://i.epochtimes.com/assets/uploads/2021/11/id13385203-528079-320x200.jpg"><br>《公主闹双包3：浪漫星空》影评：“角色扮演”再成趣味看点</a></h4></td></tr>
@@ -26,10 +26,10 @@
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13387034.md#1" target="_blank">给儿子理发不慎剪到耳朵 张歆艺获2岁儿安慰</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13387175.md#1" target="_blank">范丞丞新片首映 范冰冰当观众入场支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13385245.md#1" target="_blank">谢娜工作室成被告登上热搜 代言公司回应</a></h4></td></tr>
+<tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/22/n13390097.md#1" target="_blank">TWICE正规三辑创纪录 登Billboard 200榜第三名</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/20/n13387742.md#1" target="_blank">Sana与彩瑛笑谈理想型 李龙真：传照片给你</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13385970.md#1" target="_blank">因韩国联考相关发言不当 ENHYPEN祯元致歉</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13385648.md#1" target="_blank">日本唱片大奖获奖名单 BTS、LiSA、NiziU入列</a></h4></td></tr>
-<tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/18/n13384160.md#1" target="_blank">Weki Meki迷你五辑展现独有色彩 成员很满意</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/21/n13388561.md#1" target="_blank">出道月薪仅1.7万 郭子乾：只要多赚1元就开心</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13387175.md#1" target="_blank">范丞丞新片首映 范冰冰当观众入场支持</a></h4></td></tr>
 <tr><td><h4><a href="https://github.com/fjmocf3555/djy/blob/master/gb/21/11/19/n13386114.md#1" target="_blank">“全明星篮球表演赛” 18位男星分组2队较劲</a></h4></td></tr>
